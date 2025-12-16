@@ -1,9 +1,0 @@
----
-title: "Không ngừng tụng ngôi nhà nhỏ thì trên người có còn vong linh không? Một số hành vi dễ chiêu mời vong linh
-Shuohua20130726 10:50"
-date: 2025-12-16T01:19:17.083Z
-draft: false
-url: "/2025/07/khong-ngung-tung-ngoi-nha-nho-thi-tren.html"
----
-
-Không ngừng tụng ngôi nhà nhỏ thì trên người có còn vong linh không? Một số hành vi dễ chiêu mời vong linh Shuohua20130726 10:50 Nam thính giả: Nếu vong linh đã rời đi, nhưng vẫn tiếp tục không ngừng tụng ngôi nhà nhỏ, thì trên người có còn vong linh xuất hiện nữa không ạ? Lư Đài Trưởng: Có đấy, vì vong linh là do nghiệp chướng kích hoạt. Vong linh có hai loại: một loại là bị kích hoạt từ bên trong, một loại là bị dẫn dụ từ bên ngoài. Ví dụ như con đi ngang qua nghĩa trang, hoặc con có ý định muốn nói chuyện với họ, hoặc con đặc biệt quan tâm đến người đã khuất nào đó mà con rất yêu thương—ví dụ như con suốt ngày cứ nhắc đến ca sĩ nào đó, thì hồn phách của người ấy cũng có thể nhập vào người con. (Ồ, vậy là nếu cứ tiếp tục tụng Lễ Phật Đại Sám Hối Văn...) Cho nên Thầy thường khuyên mọi người, đừng nghe quá nhiều những bài hát của người đã khuất. Bởi vì khi nghe những bài hát đó, con sẽ sinh lòng hoài niệm họ. Khi tâm niệm vừa khởi lên nhớ về họ, thì vong linh đó sẽ đến. (Con trước đây rất thích nghe nhạc của Trương Quốc Vinh, bây giờ không dám nghe nữa. Từ sau khi Thầy nói, con không còn nghe nữa.) Thầy trước đây cũng từng nghe bài hát của Đặng Lệ Quân, mỗi lần nghe là Thầy thấy cô ấy đến thật. Các con không nhìn thấy, nhưng Thầy thấy rất rõ—chỉ cần vừa nghe là họ sẽ tìm đến con. \*\* 不停地念小房子身上会有灵性吗；易招惹灵性的一些做法 Shuohua20130726 10:50 男听众：如果灵性走了，继续不停地念小房子，身上还会有灵性出来吗？ “卢台长”答：会，因为灵性是由业障激活的。灵性有两种：一种是激活，还有一种外面引来的。你在外面比方说路过坟场、或者你想跟他们讲话、或者有时候你对某一个过世的人特别关心，你特别爱他，比方说你整天念叨歌星，他的魂魄也会上身的（噢，那就是继续不停地念礼佛大忏悔文……）所以台长经常跟大家讲，过世人的歌少听了。因为过世的人那种歌，你经常听，会怀念他。当人的意念一动怀念他，他这个亡灵就会来（我以前很爱听Zhang guo rong的歌，现在不敢听了，自从台长说了以后我就不听了）台长过去也听过Deng li jun的歌曲，一听的话，我就看到她过来了。你们看不见，你们听好了，一听么来找你了。
