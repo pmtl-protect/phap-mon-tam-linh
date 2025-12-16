@@ -6,8 +6,8 @@ media_folder: "static/images/uploads" # Nơi lưu ảnh khi upload
 public_folder: "/images/uploads"
 
 # Cấu hình đường dẫn chèn script đăng nhập
-site_url: "https://thuvien-pmtl.netlify.app" # SỬA LẠI ĐÚNG LINK WEB CỦA BẠN
-display_url: "https://thuvien-pmtl.netlify.app"
+site_url: "https://timkhaithi.pmtl.site" # SỬA LẠI ĐÚNG LINK WEB CỦA BẠN
+display_url: "https://timkhaithi.pmtl.site"
 logo_url: "https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhYdjWTq3Ra3e2xSTQZRWq-aoJ5Y3yRgF9EjlQ11tugp9Dn6MKakCx1eIjiVz3ayShWDcvy85bB9A_L3na-uCNK6mz9PASQ4pe2BQbeO8JuP5YI4D8NtxoErwl4QLZnUSNYZGLvibHYTAal14rq5qW2lS6L9sn9kL7wjbnoeLbM7c7xB9YnK-NPc1P_1I0/s1600/logo.png"
 
 # Cấu hình tiếng Việt
