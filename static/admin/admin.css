@@ -1,178 +1,209 @@
 /* FILE: static/admin/admin.css */
 
-/* Tinh chỉnh chung cho thanh cuộn đẹp hơn trên Webkit */
-::-webkit-scrollbar { width: 4px; }
-::-webkit-scrollbar-thumb { background: #ccc; border-radius: 4px; }
+/* --- CẤU HÌNH BIẾN MÀU SẮC (THEO BLOGGER) --- */
+:root {
+    --bg-color: #ffffff;
+    --primary-orange: #f57c00; /* Màu cam Blogger */
+    --text-color: #202124;
+    --gray-line: #dadce0;
+    --fab-size: 56px;
+}
+
+/* --- 1. GLOBAL & RESET --- */
+body, html {
+    font-family: 'Roboto', -apple-system, BlinkMacSystemFont, sans-serif;
+    background-color: var(--bg-color);
+    color: var(--text-color);
+}
+
+/* Ẩn thanh cuộn thừa */
+::-webkit-scrollbar { width: 0px; background: transparent; }
 
 @media (max-width: 768px) {
 
-    /* --- 1. CẤU TRÚC CỐT LÕI (LAYOUT) --- */
-    body, html {
-        overflow-x: hidden;
-        background-color: #f0f2f5; /* Màu nền xám nhẹ dịu mắt */
-    }
-
-    /* Ép cột dọc cho toàn bộ bố cục */
-    div[class*="SplitPaneContainer"], 
-    .nc-app-main {
-        flex-direction: column !important;
-        height: auto !important;
-        overflow: visible !important;
-    }
-
-    /* Ẩn thanh Sidebar (Menu trái) mặc định để tiết kiệm chỗ. 
-       Khi cần có thể hiện lại bằng JS hoặc CSS :hover nếu muốn, 
-       nhưng trên mobile nên ẩn đi để tập trung nội dung */
-    div[class*="SidebarContainer"] {
-        display: none !important; 
-    }
-
-    /* --- 2. HEADER (THANH ĐIỀU HƯỚNG) --- */
-    /* Làm gọn thanh Topbar và ghim lên đầu */
+    /* --- 2. HEADER (THANH TRÊN CÙNG) --- */
+    /* Làm thanh Header màu trắng, tối giản */
     div[class*="AppHeader"] {
-        position: sticky;
-        top: 0;
-        z-index: 1000;
-        padding: 0 10px;
-        height: 50px;
-        min-height: 50px;
-        box-shadow: 0 2px 5px rgba(0,0,0,0.1);
+        background: #fff;
+        border-bottom: 1px solid var(--gray-line);
+        height: 60px;
+        box-shadow: none;
         display: flex;
         align-items: center;
-        justify-content: space-between;
-    }
-    
-    /* Thu nhỏ nút "New Entry" hoặc các nút hành động trên Header */
-    div[class*="AppHeader"] button {
-        font-size: 14px;
-        padding: 5px 12px;
+        padding: 0 16px;
     }
 
-    /* --- 3. DANH SÁCH BÀI VIẾT (LIST VIEW) --- */
+    /* Ẩn bớt các nút thừa trên Header để cho sạch */
+    div[class*="AppHeader-Actions"] {
+        display: none; 
+    }
+
+    /* --- 3. BIẾN NÚT "NEW ENTRY" THÀNH FAB (NÚT TRÒN GÓC DƯỚI) --- */
+    /* Đây là kỹ thuật quan trọng nhất để giống App Mobile */
     
-    /* Container chứa danh sách */
+    /* Tìm nút tạo bài viết (thường là link chứa text 'New') */
+    a[class*="RepoHeader-createNew"], 
+    button[class*="RepoHeader-createNew"] {
+        position: fixed !important;
+        bottom: 24px !important;
+        right: 24px !important;
+        width: var(--fab-size) !important;
+        height: var(--fab-size) !important;
+        border-radius: 50% !important;
+        background-color: #ea4335 !important; /* Màu đỏ cam của nút + */
+        color: transparent !important; /* Ẩn chữ "New Post" đi */
+        box-shadow: 0 4px 10px rgba(0,0,0,0.3) !important;
+        z-index: 9999;
+        display: flex;
+        align-items: center;
+        justify-content: center;
+        border: none;
+    }
+
+    /* Tạo dấu cộng (+) bằng giả lập CSS */
+    a[class*="RepoHeader-createNew"]::after,
+    button[class*="RepoHeader-createNew"]::after {
+        content: "+";
+        font-size: 32px;
+        color: #fff;
+        font-weight: 300;
+        position: absolute;
+        top: 50%;
+        left: 50%;
+        transform: translate(-50%, -50%);
+    }
+
+    /* --- 4. DANH SÁCH BÀI VIẾT (HOME) --- */
     div[class*="CollectionPage"] {
-        padding: 10px !important;
-        width: 100% !important;
-    }
-
-    /* Biến mỗi bài viết thành 1 thẻ (Card) gọn gàng */
-    a[class*="CollectionList-item"], 
-    .nc-collectionList-item {
-        display: block;
-        margin-bottom: 12px;
-        padding: 15px;
-        background: #fff;
-        border-radius: 8px;
-        border: none !important; /* Bỏ border cũ */
-        border-left: 4px solid #ff9800 !important; /* Điểm nhấn màu cam */
-        box-shadow: 0 2px 4px rgba(0,0,0,0.05);
-        transition: transform 0.1s;
-    }
-
-    a[class*="CollectionList-item"]:active {
-        transform: scale(0.98); /* Hiệu ứng nhấn nút */
-        background-color: #fafafa;
-    }
-
-    /* Tiêu đề bài viết trong list */
-    [class*="CollectionList-item-title"] {
-        font-size: 16px;
-        font-weight: 600;
-        color: #2c3e50;
-        margin-bottom: 4px;
-        line-height: 1.4;
-    }
-
-    /* Ngày tháng/Metadata trong list */
-    [class*="CollectionList-item-meta"] {
-        font-size: 12px;
-        color: #888;
-    }
-
-    /* --- 4. GIAO DIỆN SOẠN THẢO (EDITOR) --- */
-
-    /* Ẩn cột Preview (Bên phải) */
-    div[class*="SplitPane-Pane"]:nth-child(2) {
-        display: none !important;
-    }
-
-    /* Mở rộng cột Editor (Bên trái) full màn hình */
-    div[class*="SplitPane-Pane"]:nth-child(1) {
-        width: 100% !important;
-        min-width: 100% !important;
         padding: 0 !important;
     }
 
-    /* Container bao quanh các trường nhập liệu */
-    div[class*="EditorContainer"] {
-        padding: 10px 10px 80px 10px !important; /* Bottom padding để tránh nút Save che mất */
-    }
-
-    /* Tối ưu các Widget (Input, Image Upload, Markdown) */
-    div[class*="ControlPane-ControlContainer"] {
-        margin-bottom: 20px;
-        background: #fff;
-        padding: 15px;
-        border-radius: 8px;
-        box-shadow: 0 1px 2px rgba(0,0,0,0.03);
-    }
-
-    /* Nhãn (Label) của trường nhập liệu */
-    label[class*="ControlLabel"] {
-        font-size: 13px;
-        text-transform: uppercase;
-        font-weight: 700;
-        color: #999;
-        margin-bottom: 8px;
+    /* Item bài viết: Giống ảnh 1 (List view) */
+    a[class*="CollectionList-item"] {
         display: block;
+        padding: 16px;
+        border-bottom: 1px solid var(--gray-line);
+        background: #fff;
+        margin: 0;
+        border-radius: 0;
+        border-left: none !important;
     }
 
-    /* Input và Textarea: Font 16px để iOS không tự zoom */
-    input[type="text"], 
-    textarea, 
-    div[role="textbox"] {
-        font-size: 16px !important; 
-        line-height: 1.5;
-        padding: 10px;
-        border: 1px solid #ddd;
-        border-radius: 6px;
-        width: 100%;
-        box-sizing: border-box;
+    /* Tiêu đề bài viết */
+    [class*="CollectionList-item-title"] {
+        font-size: 16px;
+        font-weight: 500;
+        color: #000;
+        margin-bottom: 4px;
     }
 
-    /* Fix lỗi thanh công cụ Markdown bị tràn màn hình */
-    div[class*="ToolbarContainer"] {
-        overflow-x: auto;
-        white-space: nowrap;
-        -webkit-overflow-scrolling: touch;
-        padding-bottom: 5px;
-    }
-
-    /* --- 5. THANH CÔNG CỤ (SAVE/PUBLISH) --- */
+    /* --- 5. EDITOR (SOẠN THẢO - GIỐNG ẢNH 3 & 4) --- */
     
-    /* Ghim xuống đáy màn hình */
+    /* Ẩn cột Preview (bên phải) để tập trung viết */
+    div[class*="SplitPane-Pane"]:nth-child(2) {
+        display: none !important;
+    }
+    
+    /* Cột Editor full màn hình */
+    div[class*="SplitPane-Pane"]:nth-child(1) {
+        width: 100% !important;
+        padding: 0 !important;
+    }
+
+    /* Vùng chứa Editor */
+    div[class*="EditorContainer"] {
+        padding: 0 16px !important;
+        background: #fff;
+    }
+
+    /* Widget Containers: Làm sạch border */
+    div[class*="ControlPane-ControlContainer"] {
+        border: none;
+        padding: 10px 0;
+        margin-bottom: 0;
+        border-bottom: 1px solid transparent;
+    }
+
+    /* TIÊU ĐỀ BÀI VIẾT (INPUT) - Style gạch chân giống Material */
+    div[class*="ControlPane-ControlContainer"]:first-child input {
+        font-size: 22px !important;
+        border: none !important;
+        border-bottom: 1px solid var(--gray-line) !important;
+        border-radius: 0 !important;
+        padding: 10px 0 !important;
+        background: transparent;
+        font-weight: bold;
+    }
+    
+    /* Focus vào tiêu đề thì line màu cam */
+    div[class*="ControlPane-ControlContainer"]:first-child input:focus {
+        border-bottom: 2px solid var(--primary-orange) !important;
+        box-shadow: none !important;
+    }
+
+    /* NỘI DUNG CHÍNH (Markdown) */
+    div[class*="MarkdownControl"] {
+        border: none !important;
+    }
+    div[role="textbox"] {
+        font-size: 17px !important; /* Dễ đọc hơn */
+        line-height: 1.6;
+        min-height: 60vh;
+        padding: 10px 0;
+    }
+
+    /* THANH CÔNG CỤ (Save/Publish) - Đưa lên góc trên */
     div[class*="EditorToolbar"] {
         position: fixed;
-        bottom: 0;
-        left: 0;
+        top: 0;
         right: 0;
-        background: rgba(255, 255, 255, 0.95);
-        backdrop-filter: blur(5px);
-        padding: 10px 15px;
-        border-top: 1px solid #eee;
-        z-index: 9999;
-        display: flex;
-        justify-content: space-between;
-        align-items: center;
-        box-shadow: 0 -4px 10px rgba(0,0,0,0.05);
+        width: auto;
+        height: 60px;
+        background: transparent;
+        border: none;
+        z-index: 1001; /* Nằm đè lên Header gốc */
+        padding-right: 10px;
+        box-shadow: none;
     }
 
-    /* Nút Save/Publish to và dễ bấm hơn */
+    /* Nút Save/Publish: Style giống nút máy bay giấy màu cam */
     div[class*="EditorToolbar"] button {
-        height: 44px; /* Chuẩn touch target */
-        border-radius: 22px;
-        font-weight: 600;
-        padding: 0 20px;
+        background: var(--primary-orange) !important;
+        color: white !important;
+        border-radius: 4px;
+        padding: 6px 16px;
+        font-size: 14px;
+        font-weight: bold;
+        text-transform: uppercase;
+        border: none;
+        box-shadow: 0 2px 5px rgba(0,0,0,0.2);
+    }
+    
+    /* Đổi chữ "Publish" thành icon (Tùy chọn, ở đây giữ text cho dễ dùng) */
+
+    /* --- 6. MENU SIDEBAR (GIỐNG ẢNH 1) --- */
+    /* Phần này style lại Sidebar mặc định của Decap */
+    div[class*="SidebarContainer"] {
+        background: #fff;
+        border-right: 1px solid var(--gray-line);
+        /* Nếu muốn làm menu trượt (slide) thì cần thêm JS, 
+           tạm thời CSS sẽ hiển thị nó dạng danh sách phẳng sạch sẽ */
+    }
+    
+    a[class*="SidebarNavLink"] {
+        display: flex;
+        align-items: center;
+        padding: 15px 20px;
+        font-size: 16px;
+        color: #333;
+        border-left: 5px solid transparent;
+    }
+    
+    /* Active Link: Có vạch cam bên trái */
+    a[class*="SidebarNavLink"].sidebar-active, 
+    a[class*="SidebarNavLink"]:hover {
+        background-color: #fefcf5; /* Màu kem rất nhạt */
+        color: var(--primary-orange);
+        border-left: 5px solid var(--primary-orange);
     }
 }
