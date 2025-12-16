@@ -1,80 +1,87 @@
-/* FILE: static/admin/admin.css */
-
-/* 1. Tối ưu Sidebar (Dùng để chọn bài viết) trên Mobile */
+/* Thiết lập chung cho di động */
 @media (max-width: 768px) {
-    /* Ép Sidebar chiếm 100% chiều rộng trên màn hình nhỏ */
-    .css-1yq18o6 { /* Selector của Decap CMS Sidebar */
+    /* 1. Đảm bảo toàn bộ ứng dụng CMS nằm gọn */
+    body {
+        overflow-x: hidden; /* Ngăn chặn cuộn ngang gây ra bởi các phần tử bị tràn */
+    }
+
+    /* 2. Tắt chế độ chia đôi màn hình (Split Pane) */
+    /* Trong giao diện Editor, Decap CMS dùng Split Pane. Ta phải ép nó xếp chồng */
+    .SplitPaneContainer {
+        flex-direction: column !important;
+        height: auto !important;
+    }
+
+    /* Đặt tất cả các khung về 100% chiều rộng */
+    .SplitPane-Pane {
+        min-width: 100% !important;
+        max-width: 100% !important;
+        width: 100% !important;
+        /* Loại bỏ border phải/trái thừa trên điện thoại */
+        border-right: none !important;
+    }
+
+    /* 3. Tối ưu Giao diện Danh sách Bài viết (Sidebar) */
+    
+    /* Làm cho danh sách (cái khung bên trái) chiếm toàn bộ màn hình */
+    .CollectionTop, .css-1yq18o6 { /* Selector cho khung chính/sidebar */
         width: 100% !important;
         position: relative !important;
-    }
-    
-    /* Ẩn phần Content Editor khi đang ở danh sách bài viết */
-    .css-1r07bvb {
-        display: none !important;
+        z-index: 10;
+        min-height: 100vh; /* Đảm bảo đủ chiều cao */
     }
 
-    /* Hiển thị danh sách bài viết dưới dạng lưới (Grid) nếu cần, hoặc xếp chồng */
-    .CollectionTop {
-        flex-direction: column;
-    }
-
-    /* Căn chỉnh lại khoảng cách và kích thước font cho dễ đọc */
-    .CollectionList {
-        padding: 10px;
-    }
-    
+    /* Đảm bảo các mục bài viết hiển thị rõ ràng */
     .CollectionList-item {
-        margin-bottom: 15px;
-        padding: 15px;
-        border-radius: 8px;
+        margin-bottom: 8px;
+        padding: 12px;
+        border-radius: 4px;
+        /* Giúp tiêu đề xuống dòng tự động, không bị cắt */
+        white-space: normal; 
     }
-
-    /* Tăng kích thước tiêu đề bài viết trong danh sách */
+    
     .CollectionList-item-title {
         font-size: 16px;
-        white-space: normal; /* Cho phép tiêu đề xuống dòng */
-    }
-}
-
-/* 2. Tối ưu khu vực Soạn thảo (Editor) trên Mobile */
-/* Khi vào trang Editor, làm cho Editor chiếm toàn bộ màn hình */
-@media (max-width: 768px) {
-    /* Đảm bảo toàn bộ khung Editor chiếm đủ chiều rộng */
-    .css-1t68e9r, .css-1yq18o6 {
-        min-width: 100% !important;
-        padding: 10px;
+        line-height: 1.4;
     }
 
-    /* Đảm bảo các trường nhập liệu (Tiêu đề, URL...) chiếm 100% */
-    .ControlPanel-Wrapper {
-        padding: 10px;
-    }
-    .ControlPane-ControlContainer {
-        flex-direction: column;
-        gap: 5px;
-    }
+    /* 4. Tối ưu Giao diện Soạn thảo (Editor) */
     
-    /* Sửa lỗi hiển thị nút Preview bị tràn (nếu có) */
-    .SplitPaneContainer {
-        flex-direction: column;
-    }
-    .SplitPane-Pane {
-        min-width: 100%;
-        max-width: 100%;
-    }
-}
-
-/* 3. Tối ưu Markdown Editor (Chỉ hiển thị Editor, ẩn Preview) */
-@media (max-width: 600px) {
-    .cms-editor-container .SplitPaneContainer {
-        display: block; /* Hủy flex */
-    }
-    
-    /* Ẩn chế độ Preview khi dùng điện thoại, chỉ tập trung vào viết bài */
+    /* Khung soạn thảo Markdown (làm cho Editor chiếm toàn bộ, ẩn Preview) */
     .cms-editor-container .SplitPane-Pane:nth-child(2) {
-        display: none;
+        /* Khung Preview: Ẩn đi hoàn toàn trên mobile */
+        display: none !important;
     }
+    
     .cms-editor-container .SplitPane-Pane:nth-child(1) {
+        /* Khung Editor: Ép chiếm 100% khi Preview bị ẩn */
+        width: 100% !important;
+        min-height: 100vh; /* Đảm bảo đủ không gian viết */
+    }
+
+    /* 5. Tối ưu các trường nhập liệu (Title, Date, URL) */
+    
+    .ControlPane-ControlContainer {
+        /* Xếp chồng nhãn và ô input */
+        flex-direction: column;
+        align-items: flex-start;
+        gap: 5px;
+        padding: 8px 10px;
+    }
+    
+    /* Đảm bảo ô input chiếm hết chiều ngang */
+    .ControlPane-ControlContainer input,
+    .ControlPane-ControlContainer select {
         width: 100% !important;
     }
+    
+    /* Fix lỗi Font chữ trong ô nhập liệu */
+    input[type="text"], input[type="url"], input[type="datetime-local"], textarea {
+        font-size: 16px; 
+    }
+}
+
+/* Thêm hiệu ứng chạm (touch feedback) */
+.CollectionList-item:active {
+    background-color: rgba(0, 0, 0, 0.05);
 }
