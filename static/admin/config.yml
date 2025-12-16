@@ -19,6 +19,7 @@ collections:
     folder: "content/posts" # Thư mục chứa bài viết Hugo
     create: true # Cho phép tạo bài mới
     slug: "{{year}}-{{month}}-{{day}}-{{slug}}" # Định dạng tên file
+    identifier_field: "title"
     fields: # Các ô nhập liệu
       - {label: "Tiêu đề", name: "title", widget: "string"}
       - {label: "Ngày đăng", name: "date", widget: "datetime"}
