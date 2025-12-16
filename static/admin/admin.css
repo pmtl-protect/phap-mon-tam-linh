@@ -1,0 +1,80 @@
+/* FILE: static/admin/admin.css */
+
+/* 1. Tối ưu Sidebar (Dùng để chọn bài viết) trên Mobile */
+@media (max-width: 768px) {
+    /* Ép Sidebar chiếm 100% chiều rộng trên màn hình nhỏ */
+    .css-1yq18o6 { /* Selector của Decap CMS Sidebar */
+        width: 100% !important;
+        position: relative !important;
+    }
+    
+    /* Ẩn phần Content Editor khi đang ở danh sách bài viết */
+    .css-1r07bvb {
+        display: none !important;
+    }
+
+    /* Hiển thị danh sách bài viết dưới dạng lưới (Grid) nếu cần, hoặc xếp chồng */
+    .CollectionTop {
+        flex-direction: column;
+    }
+
+    /* Căn chỉnh lại khoảng cách và kích thước font cho dễ đọc */
+    .CollectionList {
+        padding: 10px;
+    }
+    
+    .CollectionList-item {
+        margin-bottom: 15px;
+        padding: 15px;
+        border-radius: 8px;
+    }
+
+    /* Tăng kích thước tiêu đề bài viết trong danh sách */
+    .CollectionList-item-title {
+        font-size: 16px;
+        white-space: normal; /* Cho phép tiêu đề xuống dòng */
+    }
+}
+
+/* 2. Tối ưu khu vực Soạn thảo (Editor) trên Mobile */
+/* Khi vào trang Editor, làm cho Editor chiếm toàn bộ màn hình */
+@media (max-width: 768px) {
+    /* Đảm bảo toàn bộ khung Editor chiếm đủ chiều rộng */
+    .css-1t68e9r, .css-1yq18o6 {
+        min-width: 100% !important;
+        padding: 10px;
+    }
+
+    /* Đảm bảo các trường nhập liệu (Tiêu đề, URL...) chiếm 100% */
+    .ControlPanel-Wrapper {
+        padding: 10px;
+    }
+    .ControlPane-ControlContainer {
+        flex-direction: column;
+        gap: 5px;
+    }
+    
+    /* Sửa lỗi hiển thị nút Preview bị tràn (nếu có) */
+    .SplitPaneContainer {
+        flex-direction: column;
+    }
+    .SplitPane-Pane {
+        min-width: 100%;
+        max-width: 100%;
+    }
+}
+
+/* 3. Tối ưu Markdown Editor (Chỉ hiển thị Editor, ẩn Preview) */
+@media (max-width: 600px) {
+    .cms-editor-container .SplitPaneContainer {
+        display: block; /* Hủy flex */
+    }
+    
+    /* Ẩn chế độ Preview khi dùng điện thoại, chỉ tập trung vào viết bài */
+    .cms-editor-container .SplitPane-Pane:nth-child(2) {
+        display: none;
+    }
+    .cms-editor-container .SplitPane-Pane:nth-child(1) {
+        width: 100% !important;
+    }
+}
