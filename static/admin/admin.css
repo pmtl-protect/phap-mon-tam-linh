@@ -1,87 +1,90 @@
-/* Thiết lập chung cho di động */
-@media (max-width: 768px) {
-    /* 1. Đảm bảo toàn bộ ứng dụng CMS nằm gọn */
-    body {
-        overflow-x: hidden; /* Ngăn chặn cuộn ngang gây ra bởi các phần tử bị tràn */
-    }
+/* FILE: static/admin/admin.css (Bản mô phỏng Blogger Mobile UI) */
 
-    /* 2. Tắt chế độ chia đôi màn hình (Split Pane) */
-    /* Trong giao diện Editor, Decap CMS dùng Split Pane. Ta phải ép nó xếp chồng */
+@media (max-width: 768px) {
+    /* --- 1. Tối ưu khung chứa chính (Ép ứng dụng toàn màn hình) --- */
+    body { overflow-x: hidden; }
     .SplitPaneContainer {
         flex-direction: column !important;
         height: auto !important;
     }
-
-    /* Đặt tất cả các khung về 100% chiều rộng */
     .SplitPane-Pane {
         min-width: 100% !important;
         max-width: 100% !important;
         width: 100% !important;
-        /* Loại bỏ border phải/trái thừa trên điện thoại */
         border-right: none !important;
     }
 
-    /* 3. Tối ưu Giao diện Danh sách Bài viết (Sidebar) */
+    /* --- 2. Giao diện Danh sách Bài viết (Home Screen) --- */
     
-    /* Làm cho danh sách (cái khung bên trái) chiếm toàn bộ màn hình */
-    .CollectionTop, .css-1yq18o6 { /* Selector cho khung chính/sidebar */
+    /* Đảm bảo danh sách bài viết chiếm toàn bộ màn hình */
+    .css-1yq18o6 { 
         width: 100% !important;
         position: relative !important;
-        z-index: 10;
-        min-height: 100vh; /* Đảm bảo đủ chiều cao */
+        min-height: 100vh;
+        z-index: 10; 
     }
-
-    /* Đảm bảo các mục bài viết hiển thị rõ ràng */
+    
+    /* Ẩn chế độ xem trước bài viết */
+    .css-1r07bvb {
+        display: none !important;
+    }
+    
+    /* Tối ưu các item trong danh sách (giống List View của app) */
     .CollectionList-item {
-        margin-bottom: 8px;
-        padding: 12px;
+        margin: 8px 0;
+        padding: 15px;
         border-radius: 4px;
-        /* Giúp tiêu đề xuống dòng tự động, không bị cắt */
+        box-shadow: 0 1px 3px rgba(0,0,0,0.05); /* Thêm box shadow nhẹ */
+        background-color: #fff;
+        border-left: 5px solid #ff9800; /* Màu cam Blogger */
         white-space: normal; 
     }
     
     .CollectionList-item-title {
-        font-size: 16px;
-        line-height: 1.4;
+        font-size: 17px;
+        font-weight: 600;
+        color: #333;
     }
 
-    /* 4. Tối ưu Giao diện Soạn thảo (Editor) */
-    
-    /* Khung soạn thảo Markdown (làm cho Editor chiếm toàn bộ, ẩn Preview) */
+    /* --- 3. Giao diện Soạn thảo (Editor Screen) --- */
+
+    /* Editor chiếm 100%, ẩn Preview */
     .cms-editor-container .SplitPane-Pane:nth-child(2) {
-        /* Khung Preview: Ẩn đi hoàn toàn trên mobile */
         display: none !important;
     }
-    
     .cms-editor-container .SplitPane-Pane:nth-child(1) {
-        /* Khung Editor: Ép chiếm 100% khi Preview bị ẩn */
         width: 100% !important;
-        min-height: 100vh; /* Đảm bảo đủ không gian viết */
+        min-height: 100vh;
+    }
+    
+    /* Làm nổi bật khu vực nhập liệu chính */
+    .ControlPanel-Wrapper {
+        padding: 10px;
     }
 
-    /* 5. Tối ưu các trường nhập liệu (Title, Date, URL) */
-    
+    /* Điều chỉnh các trường Meta Data (Giống Cài đặt bài đăng) */
     .ControlPane-ControlContainer {
-        /* Xếp chồng nhãn và ô input */
         flex-direction: column;
         align-items: flex-start;
         gap: 5px;
         padding: 8px 10px;
+        margin-bottom: 15px;
+        border-bottom: 1px solid #eee;
     }
     
-    /* Đảm bảo ô input chiếm hết chiều ngang */
-    .ControlPane-ControlContainer input,
-    .ControlPane-ControlContainer select {
-        width: 100% !important;
-    }
-    
-    /* Fix lỗi Font chữ trong ô nhập liệu */
+    /* Fix lỗi Font chữ và kích thước Input */
     input[type="text"], input[type="url"], input[type="datetime-local"], textarea {
         font-size: 16px; 
+        width: 100% !important;
+        box-sizing: border-box; /* Đảm bảo padding không làm tràn ra ngoài */
     }
-}
-
-/* Thêm hiệu ứng chạm (touch feedback) */
-.CollectionList-item:active {
-    background-color: rgba(0, 0, 0, 0.05);
+    
+    /* Nút Submit/Save ở dưới cùng */
+    .ControlBar {
+        position: sticky;
+        bottom: 0;
+        background: #fff;
+        padding: 10px;
+        box-shadow: 0 -2px 5px rgba(0,0,0,0.1);
+    }
 }
