@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.562Z
+title: "Nếu một người kiếp này âm khí rất nặng, ngoài việc liên quan đến môi trường sống của họ, có phải còn"
+date: 2025-12-16T01:10:54.087Z
 draft: false
 url: "/2025/06/neu-mot-nguoi-kiep-nay-am-khi-rat-nang.html"
 ---

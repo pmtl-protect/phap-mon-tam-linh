@@ -1,6 +1,6 @@
 ---
-title: "Có thể cầu Bồ Tát cho kỳ kinh nguyệt tự nhiên chấm dứt không?"
-date: 2025-12-15T22:19:51.880Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.007Z
 draft: false
 url: "/2025/12/co-cau-bo-tat-cho-ky-kinh-nguyet-tu.html"
 ---

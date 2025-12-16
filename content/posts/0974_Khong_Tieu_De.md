@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.940Z
+title: "Một người nói năng cũng thể hiện sự tu dưỡng nhất định"
+date: 2025-12-16T01:10:56.580Z
 draft: false
 url: "/2025/05/mot-nguoi-noi-nang-cung-hien-su-tu.html"
 ---

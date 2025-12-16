@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.985Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.800Z
 draft: false
 url: "/2025/08/nhung-tieu-ia-nguc-trong-bat-ai-hoa.html"
 ---

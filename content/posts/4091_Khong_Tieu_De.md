@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.037Z
+title: "Sư phụ không thể giúp các con mãi được. Mong các con có thể tự mình dựa vào mình tự giác của bản thâ"
+date: 2025-12-16T01:11:11.556Z
 draft: false
 url: "/2024/11/su-phu-khong-giup-cac-con-mai-uoc-mong_7.html"
 ---

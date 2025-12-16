@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.547Z
+title: "Bất kỳ người học Phật nào, trước tiên đều phải bỏ đi kiêu căng tự đại. Dù bạn giỏi giang thế nào, gi"
+date: 2025-12-16T01:11:06.675Z
 draft: false
 url: "/2025/09/bat-ky-nguoi-hoc-phat-nao-truoc-tien-eu.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.912Z
+title: "Nằm mơ thấy mình bôi thuốc vào vết mụn trên mặt thì khuôn mặt bạn sẽ trở nên sắc sảo, xấu xí"
+date: 2025-12-16T01:11:01.928Z
 draft: false
 url: "/2024/11/nam-mo-thay-minh-boi-thuoc-vao-vet-mun.html"
 ---

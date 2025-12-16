@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.231Z
+title: "Trích , Bạch Thoại Phật Pháp, Phải hiểu trước rồi mới đạt được định, có định rồi mới thông đạt"
+date: 2025-12-16T01:11:08.216Z
 draft: false
 url: "/2025/09/trich-bach-thoai-phat-phap-phai-hieu.html"
 ---

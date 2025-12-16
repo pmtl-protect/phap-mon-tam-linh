@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.004Z
+title: "Đôi khi những thứ mắt nhìn thấy cũng không nhất định là sự thật, đừng quá tin tưởng bản thân mình"
+date: 2025-12-16T01:11:02.137Z
 draft: false
 url: "/2025/02/oi-khi-nhung-thu-mat-nhin-thay-cung.html"
 ---

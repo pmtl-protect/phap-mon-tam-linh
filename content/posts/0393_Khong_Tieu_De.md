@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.472Z
+title: "Khai thị về nhang không nên cúng dường Bồ Tát Pháp Môn Tâm linh"
+date: 2025-12-16T01:10:53.899Z
 draft: false
 url: "/2025/06/khai-thi-ve-nhang-khong-nen-cung-duong.html"
 ---

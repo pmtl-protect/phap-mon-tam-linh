@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.506Z
+title: "Không nghe được Phật pháp, nghiệp ác chồng chất, không hành thiện, tương lai ắt khó thoát khỏi ba đư"
+date: 2025-12-16T01:10:53.978Z
 draft: false
 url: "/2025/06/khong-nghe-uoc-phat-phap-nghiep-ac.html"
 ---

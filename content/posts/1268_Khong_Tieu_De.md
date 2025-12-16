@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.632Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.921Z
 draft: false
 url: "/2025/04/cuu-ca-phong-sinh-quan-trong-la-phat.html"
 ---

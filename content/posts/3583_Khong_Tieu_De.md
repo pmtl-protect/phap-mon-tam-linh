@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.760Z
+title: "Sau khi phóng sinh, bệnh tình của cha mẹ đều có chuyển biến tốt"
+date: 2025-12-16T01:11:09.257Z
 draft: false
 url: "/2025/11/sau-khi-phong-sinh-benh-tinh-cua-cha-me.html"
 ---

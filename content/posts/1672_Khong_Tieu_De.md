@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.810Z
+title: "Càng gần với bầu trời cao, hiệu quả niệm kinh càng tốt"
+date: 2025-12-16T01:10:59.756Z
 draft: false
 url: "/2024/10/cang-gan-voi-bau-troi-cao-hieu-qua-niem.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.596Z
+title: "Lạy Phật có thể tiêu trừ nghiệp chướng"
+date: 2025-12-16T01:10:54.126Z
 draft: false
 url: "/2025/06/lay-phat-co-tieu-tru-nghiep-chuong.html"
 ---

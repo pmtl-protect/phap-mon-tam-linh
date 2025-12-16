@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.903Z
+title: "Phát nguyện không thể tùy tiện, nếu phát nguyện mà không hoàn thành thì sẽ không còn sức mạnh của ng"
+date: 2025-12-16T01:10:52.707Z
 draft: false
 url: "/2025/04/phat-nguyen-khong-tuy-tien-neu-phat.html"
 ---

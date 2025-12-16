@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.534Z
+title: "Giữ giới tức là nghiêm chỉnh tuân thủ giới luật"
+date: 2025-12-16T01:10:57.704Z
 draft: false
 url: "/2025/04/giu-gioi-tuc-la-nghiem-chinh-tuan-thu.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.894Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.487Z
 draft: false
 url: "/2025/11/su-phu-tuy-khong-nhin-thay-cac-con.html"
 ---

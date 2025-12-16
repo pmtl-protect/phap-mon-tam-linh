@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.797Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.533Z
 draft: false
 url: "/2024/11/tong-hop-cac-khai-thi-lien-quan-en-benh.html"
 ---

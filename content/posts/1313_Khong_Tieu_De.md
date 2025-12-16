@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.719Z
+title: "Thật tâm, thành tâm khởi lòng từ bi phóng sinh, tiền phóng sinh sẽ được Bồ Tát ban lại cho bạn thông"
+date: 2025-12-16T01:10:58.097Z
 draft: false
 url: "/2024/12/that-tam-thanh-tam-khoi-long-tu-bi.html"
 ---

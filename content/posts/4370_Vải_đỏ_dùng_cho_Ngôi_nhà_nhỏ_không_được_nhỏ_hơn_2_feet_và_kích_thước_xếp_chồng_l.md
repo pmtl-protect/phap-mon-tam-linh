@@ -1,6 +1,6 @@
 ---
-title: "Vải đỏ dùng cho Ngôi nhà nhỏ không được nhỏ hơn 2 feet và kích thước xếp chồng lên nhau tối thiểu không được nhỏ hơn A4"
-date: 2025-12-15T22:19:51.801Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.870Z
 draft: false
 url: "/2025/12/vai-o-dung-cho-ngoi-nha-nho-khong-uoc.html"
 ---

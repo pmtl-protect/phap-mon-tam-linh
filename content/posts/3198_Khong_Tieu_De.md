@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.524Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:06.628Z
 draft: false
 url: "/2024/11/mot-ngay-co-ot-bao-nhieu-loai-kinh-van.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.795Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.214Z
 draft: false
 url: "/2025/10/mot-phat-tu-mat-tong-khen-ngoi-ngoi-nha.html"
 ---

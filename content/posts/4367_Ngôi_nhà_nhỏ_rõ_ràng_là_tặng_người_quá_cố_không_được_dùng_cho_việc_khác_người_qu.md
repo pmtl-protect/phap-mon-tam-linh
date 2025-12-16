@@ -1,6 +1,6 @@
 ---
-title: "Ngôi nhà nhỏ rõ ràng là tặng người quá cố, không được dùng cho việc khác, người quá cố sẽ nổi giận"
-date: 2025-12-15T22:19:51.795Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.860Z
 draft: false
 url: "/2025/12/ngoi-nha-nho-ro-rang-la-tang-nguoi-qua.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.313Z
+title: "Đừng tranh dành , đừng cầu xin, đừng gây rắc rối với mọi người . Đây đều là ân oán xưa, đều là nhân "
+date: 2025-12-16T01:11:00.781Z
 draft: false
 url: "/2024/12/ung-tranh-danh-ung-cau-xin-ung-gay-rac.html"
 ---

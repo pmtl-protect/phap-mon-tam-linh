@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.011Z
+title: "Buổi Pháp hội, Sư Phụ cầu nguyện ngừng mưa lớn"
+date: 2025-12-16T01:10:54.674Z
 draft: false
 url: "/2025/06/buoi-phap-hoi-su-phu-cau-nguyen-ngung.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.948Z
+title: "Người học Phật, thứ nhất là không được tạo nghiệp. Thứ hai, nếu đã tạo nghiệp thì phải nhanh chóng s"
+date: 2025-12-16T01:10:56.619Z
 draft: false
 url: "/2025/05/nguoi-hoc-phat-thu-nhat-la-khong-uoc.html"
 ---

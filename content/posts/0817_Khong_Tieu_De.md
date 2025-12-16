@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.627Z
+title: "Xưa kia, nhiều pháp môn đã xuất hiện, nhưng cách tu hành thời đó dựa trên \"thiên thời, địa lợi, nhân"
+date: 2025-12-16T01:10:55.784Z
 draft: false
 url: "/2025/05/xua-kia-nhieu-phap-mon-xuat-hien-nhung.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.579Z
+title: "Học Phật che chở người nhà, Bồ Tát bảo hộ chồng tránh được tai nạn liên đới, thoát một kiếp nạn"
+date: 2025-12-16T01:10:54.095Z
 draft: false
 url: "/2025/06/hoc-phat-che-cho-nguoi-nha-bo-tat-bao.html"
 ---

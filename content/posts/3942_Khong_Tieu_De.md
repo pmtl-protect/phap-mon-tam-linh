@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.658Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.967Z
 draft: false
 url: "/2025/01/vi-sao-ong-tu-lam-viec-tai-nha-tang-le.html"
 ---

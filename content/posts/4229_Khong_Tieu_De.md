@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.377Z
+title: "Nên Phát nguyện niệm kinh gì để cắt đứt dục vọng, tà dâm"
+date: 2025-12-16T01:11:12.225Z
 draft: false
 url: "/2025/12/nen-phat-nguyen-niem-kinh-gi-e-cat-ut.html"
 ---

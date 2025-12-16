@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.211Z
+title: "Hoằng pháp cần thực tế, tự ý sáng tác viết sai sẽ tạo nghiệp chướng"
+date: 2025-12-16T01:10:57.136Z
 draft: false
 url: "/2025/05/hoang-phap-can-thuc-te-tu-y-sang-tac.html"
 ---

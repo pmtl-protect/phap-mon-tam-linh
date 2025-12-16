@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.916Z
+title: "VÀO NHỮNG NGÀY ĐẶC BIỆT, TỤNG LỄ PHẬT ĐẠI SÁM HỐI VĂN Ở BÊN NGOÀI CẦN XƯNG DANH HIỆU CÁC VỊ BỒ TÁT"
+date: 2025-12-16T01:10:54.549Z
 draft: false
 url: "/2025/05/vao-nhung-ngay-ac-biet-tung-le-phat-ai.html"
 ---

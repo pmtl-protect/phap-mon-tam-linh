@@ -1,6 +1,6 @@
 ---
-title: "Học Phật phải có Trí huệ, Nhẫn Nại, Tinh Tấn，phải làm sao để không đọc sai kinh văn, mạch máu trong não có phần tắc nghẽn, nên uống viên Đan Sâm."
-date: 2025-12-15T22:19:51.644Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.544Z
 draft: false
 url: "/2025/12/hoc-phat-phai-co-tri-hue-nhan-nai-tinh.html"
 ---

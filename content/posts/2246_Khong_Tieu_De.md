@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.071Z
+title: "Thầy thường nói với các con, Thầy luôn mong các con được pháp hỷ sung mãn, mong các con có thể thật "
+date: 2025-12-16T01:11:02.254Z
 draft: false
 url: "/2025/02/thay-thuong-noi-voi-cac-con-thay-luon.html"
 ---

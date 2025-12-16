@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.961Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:02.045Z
 draft: false
 url: "/2025/04/mot-ong-tu-mo-thay-3-4-nguoi-cam-thiet.html"
 ---

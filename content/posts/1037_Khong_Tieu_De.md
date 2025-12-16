@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.107Z
+title: "Trẻ sinh vào mùng một và rằm rất tốt, mùng một tốt hơn, rằm kém hơn một chút"
+date: 2025-12-16T01:10:56.966Z
 draft: false
 url: "/2025/02/tre-sinh-vao-mung-mot-va-ram-rat-tot.html"
 ---

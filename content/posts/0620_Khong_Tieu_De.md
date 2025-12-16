@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.183Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.870Z
 draft: false
 url: "/2025/06/nha-bi-hang-xom-chan-cua-thi-phai-lam.html"
 ---

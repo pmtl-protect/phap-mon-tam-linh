@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.065Z
+title: "Không nên giao tiếp trực tiếp với vong linh"
+date: 2025-12-16T01:11:11.602Z
 draft: false
 url: "/2024/12/khong-nen-giao-tiep-truc-tiep-voi-vong.html"
 ---

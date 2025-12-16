@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.884Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:56.395Z
 draft: false
 url: "/2025/05/mau-khong-tot-tren-nguoi-co-vong-linh.html"
 ---

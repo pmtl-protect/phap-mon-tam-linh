@@ -1,6 +1,6 @@
 ---
-title: "Việc ông chủ tăng lương và phúc lợi cho nhân viên là Tài bố thí, hay chỉ là phúc đức."
-date: 2025-12-15T22:19:51.634Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.512Z
 draft: false
 url: "/2025/12/viec-ong-chu-tang-luong-va-phuc-loi-cho.html"
 ---

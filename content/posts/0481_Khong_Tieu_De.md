@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.683Z
+title: "Ngài Quan Công - Vị Hộ Pháp Uy Dũng Trong Phật Giáo"
+date: 2025-12-16T01:10:54.265Z
 draft: false
 url: "/2025/06/ngai-quan-cong-vi-ho-phap-uy-dung-trong.html"
 ---

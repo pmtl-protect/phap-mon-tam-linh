@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.827Z
+title: "Bò rất dễ đầu thai làm người, vì cả đời bò là để chịu khổ: ăn cỏ, lại còn bị vắt sữa. Vì vậy tại sao"
+date: 2025-12-16T01:10:56.232Z
 draft: false
 url: "/2025/05/bo-rat-de-au-thai-lam-nguoi-vi-ca-oi-bo.html"
 ---

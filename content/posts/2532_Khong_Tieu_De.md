@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.743Z
+title: "Phần kính tặng của NNN ghi \" Tổ tiên các đời trước\" . Cần huỷ bỏ và ghi lại"
+date: 2025-12-16T01:11:03.550Z
 draft: false
 url: "/2024/11/phan-kinh-tang-cua-nnn-ghi-to-tien-cac.html"
 ---

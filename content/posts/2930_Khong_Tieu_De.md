@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.768Z
+title: "Đôi khi chúng ta phải rất khó để thuyết phục người khác. Tốt hơn là hãy thay đổi bản thân để thích n"
+date: 2025-12-16T01:11:05.482Z
 draft: false
 url: "/2025/04/oi-khi-chung-ta-phai-rat-kho-e-thuyet.html"
 ---

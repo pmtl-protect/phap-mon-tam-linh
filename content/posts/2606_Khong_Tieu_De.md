@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.901Z
+title: "Làm sao để bàn thờ trong nhà có Bồ Tát đến mà không có vong linh đến"
+date: 2025-12-16T01:11:03.960Z
 draft: false
 url: "/2024/11/lam-sao-e-ban-tho-trong-nha-co-bo-tat.html"
 ---

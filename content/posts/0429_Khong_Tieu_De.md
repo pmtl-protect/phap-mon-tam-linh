@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.549Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.058Z
 draft: false
 url: "/2025/06/cau-9-van-e-au-au-khi-niem-kinh-hoi-ap.html"
 ---

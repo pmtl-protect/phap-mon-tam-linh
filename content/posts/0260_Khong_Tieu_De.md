@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.132Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:53.259Z
 draft: false
 url: "/2025/07/vo-duyen-ai-tu.html"
 ---

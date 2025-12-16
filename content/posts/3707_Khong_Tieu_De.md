@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.078Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.760Z
 draft: false
 url: "/2024/11/hanh-thien-phai-dua-vao-kha-nang-ung.html"
 ---

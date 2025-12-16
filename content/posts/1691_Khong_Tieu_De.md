@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.851Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:59.844Z
 draft: false
 url: "/2024/11/sinh-la-kho-gia-la-kho-benh-la-kho-chet.html"
 ---

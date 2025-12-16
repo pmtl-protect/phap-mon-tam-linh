@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.345Z
+title: "Lý do việc số lượng Ngôi nhà nhỏ cần thiết ngày càng tăng là gì? Chất lượng của Ngôi nhà nhỏ là yếu "
+date: 2025-12-16T01:11:08.418Z
 draft: false
 url: "/2025/04/ly-do-viec-so-luong-ngoi-nha-nho-can.html"
 ---

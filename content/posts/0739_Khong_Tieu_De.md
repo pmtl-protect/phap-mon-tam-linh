@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.458Z
+title: "Bồ Tát bảo phải ăn nhiều dưa chuột, cà chua và rau cải bó xôi"
+date: 2025-12-16T01:10:55.380Z
 draft: false
 url: "/2025/05/bo-tat-bao-phai-nhieu-dua-chuot-ca-chua.html"
 ---

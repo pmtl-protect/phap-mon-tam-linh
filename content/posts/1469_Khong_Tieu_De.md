@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.206Z
+title: "Tranh sơn thủy chưa được khai quang treo trong nhà có tốt không, trong nhà nên treo tranh gì sẽ được"
+date: 2025-12-16T01:10:58.749Z
 draft: false
 url: "/2024/12/tranh-son-thuy-chua-uoc-khai-quang-treo.html"
 ---

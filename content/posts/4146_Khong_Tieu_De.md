@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.159Z
+title: "Ưu và nhược điểm của việc kích hoạt nghiệp sớm phụ thuộc vào ngộ tính của quý vị"
+date: 2025-12-16T01:11:11.756Z
 draft: false
 url: "/2024/11/uu-va-nhuoc-iem-cua-viec-kich-hoat.html"
 ---

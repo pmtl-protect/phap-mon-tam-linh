@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.812Z
+title: "Các vấn đề như hạn hán là do nghiệp chung hoặc thiên luật gây ra"
+date: 2025-12-16T01:10:54.386Z
 draft: false
 url: "/2025/06/cac-van-e-nhu-han-han-la-do-nghiep_11.html"
 ---

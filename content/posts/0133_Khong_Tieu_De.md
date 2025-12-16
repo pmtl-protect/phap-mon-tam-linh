@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.797Z
+title: "Trích Bạch Thoại Phật Pháp : 4-27: Tâm ôm trọn hư không, coi sự phỉ báng là thiện tri thức"
+date: 2025-12-16T01:10:52.503Z
 draft: false
 url: "/2025/07/trich-bach-thoai-phat-phap-4-27-tam-om.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.389Z
+title: "Đừng khinh suất phát nguyện thanh tu, một khi đã phát nguyện thì phải nghiêm túc đi cho trọn con đườ"
+date: 2025-12-16T01:10:57.446Z
 draft: false
 url: "/2025/04/ung-khinh-suat-phat-nguyen-thanh-tu-mot.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.169Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.683Z
 draft: false
 url: "/2024/12/en-chieu-sang-tren-ban-tho-phat-nen-lap.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Chia sẻ của thính giả sau khi tu theo Pháp môn Tâm Linh tình trạng sức khỏe được cải thiện tốt, không nên độ người khác giới, sau khi độ người nên cổ vũ và khích lệ lẫn nhau."
-date: 2025-12-15T22:19:51.663Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.581Z
 draft: false
 url: "/2025/12/chia-se-cua-thinh-gia-sau-khi-tu-theo.html"
 ---

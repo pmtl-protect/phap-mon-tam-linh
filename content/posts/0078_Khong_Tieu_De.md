@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.671Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:52.253Z
 draft: false
 url: "/2025/07/neu-nha-ban-lap-ban-tho-phap-mon-tam.html"
 ---

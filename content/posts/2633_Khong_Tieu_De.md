@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.962Z
+title: "Phải làm thế nào khi khó khăn trong việc sang nhượng cửa hàng"
+date: 2025-12-16T01:11:04.211Z
 draft: false
 url: "/2024/12/phai-lam-nao-khi-kho-khan-trong-viec.html"
 ---

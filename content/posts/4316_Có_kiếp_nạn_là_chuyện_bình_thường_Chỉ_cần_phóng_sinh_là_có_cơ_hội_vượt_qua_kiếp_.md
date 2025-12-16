@@ -1,6 +1,6 @@
 ---
-title: "Có kiếp nạn là chuyện bình thường; Chỉ cần phóng sinh là có cơ hội vượt qua kiếp nạn"
-date: 2025-12-15T22:19:51.671Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.599Z
 draft: false
 url: "/2025/12/co-kiep-nan-la-chuyen-binh-thuong-chi.html"
 ---

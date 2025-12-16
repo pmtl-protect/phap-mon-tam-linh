@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.125Z
+title: "Muốn độ hoá cha mẹ phải dùng tâm, chuyển từ duyên tình cảm thành phật duyên"
+date: 2025-12-16T01:11:11.700Z
 draft: false
 url: "/2024/11/muon-o-hoa-cha-me-phai-dung-tam-chuyen.html"
 ---

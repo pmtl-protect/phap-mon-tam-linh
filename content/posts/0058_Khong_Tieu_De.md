@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.622Z
+title: "Trong thời kỳ Mạt Pháp, Internet là phương tiện tốt nhất mà chư Bồ Tát ban cho chúng ta để thực hiện"
+date: 2025-12-16T01:10:52.155Z
 draft: false
 url: "/2025/07/trong-thoi-ky-mat-phap-internet-la.html"
 ---

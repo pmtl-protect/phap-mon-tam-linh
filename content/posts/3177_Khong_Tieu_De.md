@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.468Z
+title: "Chia sẻ về tầm quan trọng của Bạch Thoại Phật Pháp đối với việc tu tâm"
+date: 2025-12-16T01:11:06.544Z
 draft: false
 url: "/2024/11/chia-se-ve-tam-quan-trong-cua-bach.html"
 ---

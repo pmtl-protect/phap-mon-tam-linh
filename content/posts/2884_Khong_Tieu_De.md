@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.657Z
+title: "Trong các dịp như đám cưới, lễ mừng thọ của người lớn tuổi, cố gắng tránh quỳ lạy; việc tiếp nhận qu"
+date: 2025-12-16T01:11:05.265Z
 draft: false
 url: "/2024/11/trong-cac-dip-nhu-am-cuoi-le-mung-tho_26.html"
 ---

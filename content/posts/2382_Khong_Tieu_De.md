@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.410Z
+title: "Gần đây con đang sám hối về những nghiệp chướng tà dâm của cô ấy đã tạo ra trong kiếp này. Khung cản"
+date: 2025-12-16T01:11:02.865Z
 draft: false
 url: "/2024/11/gan-ay-con-ang-sam-hoi-ve-nhung-nghiep.html"
 ---

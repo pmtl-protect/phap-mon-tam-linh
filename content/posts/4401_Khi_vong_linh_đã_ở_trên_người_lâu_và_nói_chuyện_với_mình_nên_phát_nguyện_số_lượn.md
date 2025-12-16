@@ -1,6 +1,6 @@
 ---
-title: "Khi vong linh đã ở trên người lâu và nói chuyện với mình, nên phát nguyện số lượng Ngôi Nhà Nhỏ như thế nào?"
-date: 2025-12-15T22:19:51.909Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.057Z
 draft: false
 url: "/2025/12/khi-vong-linh-o-tren-nguoi-lau-va-noi.html"
 ---

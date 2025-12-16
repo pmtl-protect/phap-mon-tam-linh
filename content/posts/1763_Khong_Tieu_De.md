@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.002Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:00.308Z
 draft: false
 url: "/2025/05/tai-sao-khi-oc-chuyen-uc-phat-thi-cam.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.736Z
+title: "Ý thức nội tại là ý thức quan trọng để quyết định sau này đầu thai về đâu"
+date: 2025-12-16T01:11:01.619Z
 draft: false
 url: "/2024/11/y-thuc-noi-tai-la-y-thuc-quan-trong-e.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Wenda20141123B 15:18 Đi xa có thể niệm trước Lễ Phật Đại Sám Hối Văn của kinh bài tập không?"
-date: 2025-12-15T22:19:51.604Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.460Z
 draft: false
 url: "/2025/12/wenda20141123b-1518-i-xa-co-niem-truoc.html"
 ---

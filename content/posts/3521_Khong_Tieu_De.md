@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.548Z
+title: "Muốn sinh ra kỳ tích khi bị ung thư, thì nhất định phải ăn chay hoàn toàn, phải chịu khổ, phải nỗ lự"
+date: 2025-12-16T01:11:08.793Z
 draft: false
 url: "/2025/11/muon-sinh-ra-ky-tich-khi-bi-ung-thu-thi.html"
 ---

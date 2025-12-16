@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.522Z
+title: "Thực ra, chúng ta cách Bồ Tát rất gần — chỉ một ý niệm thiện là đã có thể gần Bồ Tát"
+date: 2025-12-16T01:10:54.000Z
 draft: false
 url: "/2025/06/thuc-ra-chung-ta-cach-bo-tat-rat-gan.html"
 ---

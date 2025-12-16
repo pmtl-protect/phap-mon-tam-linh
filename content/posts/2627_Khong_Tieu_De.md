@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.948Z
+title: "Phóng sinh cần bố thí vô tư, đừng tham cầu báo đáp, chỉ cần gieo trồng không hỏi thu hoạch, thì mới "
+date: 2025-12-16T01:11:04.187Z
 draft: false
 url: "/2025/08/phong-sinh-can-bo-thi-vo-tu-ung-tham.html"
 ---

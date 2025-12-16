@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.792Z
+title: "Khi một người không nhìn thấy chân tướng, họ sẽ phiền não"
+date: 2025-12-16T01:10:56.144Z
 draft: false
 url: "/2025/05/khi-mot-nguoi-khong-nhin-thay-chan.html"
 ---

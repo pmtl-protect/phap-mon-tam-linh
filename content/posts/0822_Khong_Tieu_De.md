@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.638Z
+title: "Sư phụ kể với mọi người một câu chuyện có thật"
+date: 2025-12-16T01:10:55.811Z
 draft: false
 url: "/2025/05/su-phu-ke-voi-moi-nguoi-mot-cau-chuyen.html"
 ---

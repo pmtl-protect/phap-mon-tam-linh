@@ -1,6 +1,6 @@
 ---
-title: "VONG LINH KHÔNG CẦN NGÔI NHÀ NHỎ, CHỈ CẦN LẤY MẠNG?"
-date: 2025-12-15T22:19:51.797Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.863Z
 draft: false
 url: "/2025/12/vong-linh-khong-can-ngoi-nha-nho-chi.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.335Z
+title: "Chúng ta là người học Phật phải học cách kết hợp tu hành và đời sống thực tế lại với nhau"
+date: 2025-12-16T01:10:57.354Z
 draft: false
 url: "/2024/10/chung-ta-la-nguoi-hoc-phat-phai-hoc.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.292Z
+title: "Hãy cẩn thận khi truyền đăng bài trên mạng, nếu đăng lại nội dung sai lệch sẽ dẫn đến nghiệp chướng "
+date: 2025-12-16T01:11:08.333Z
 draft: false
 url: "/2024/11/hay-can-than-khi-truyen-ang-bai-tren.html"
 ---

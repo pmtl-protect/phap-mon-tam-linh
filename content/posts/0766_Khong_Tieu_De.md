@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.512Z
+title: "Chánh tín chánh niệm, yêu nước yêu dân, là nguyên tắc cơ bản của Pháp Môn Tâm Linh"
+date: 2025-12-16T01:10:55.504Z
 draft: false
 url: "/2025/05/chanh-tin-chanh-niem-yeu-nuoc-yeu-dan.html"
 ---

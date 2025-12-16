@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.610Z
+title: "Hiểu được cúi đầu, con mới có thể ngẩng đầu lên được"
+date: 2025-12-16T01:11:01.370Z
 draft: false
 url: "/2025/02/hieu-uoc-cui-au-con-moi-co-ngang-au-len.html"
 ---

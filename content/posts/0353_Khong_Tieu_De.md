@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.366Z
+title: "Đừng vì một chút chuyện trên đời mà phiền não, cần phải chuyển hoá phiền não"
+date: 2025-12-16T01:10:53.699Z
 draft: false
 url: "/2025/06/ung-vi-mot-chut-chuyen-tren-oi-ma-phien.html"
 ---

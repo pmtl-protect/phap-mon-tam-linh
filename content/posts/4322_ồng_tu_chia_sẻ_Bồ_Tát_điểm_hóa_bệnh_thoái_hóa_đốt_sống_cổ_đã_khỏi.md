@@ -1,6 +1,6 @@
 ---
-title: "Đồng tu chia sẻ: Bồ Tát điểm hóa, bệnh thoái hóa đốt sống cổ đã khỏi."
-date: 2025-12-15T22:19:51.688Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.628Z
 draft: false
 url: "/2025/12/ong-tu-chia-se-bo-tat-iem-hoa-benh.html"
 ---

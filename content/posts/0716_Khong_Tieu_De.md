@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.404Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.266Z
 draft: false
 url: "/2025/05/tai-sao-lam-phung-su-vien-phap-mon-tam.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.040Z
+title: "Ngủ mơ thấy ghi phần kính tặng của  NNN bằng bút đỏ"
+date: 2025-12-16T01:11:00.391Z
 draft: false
 url: "/2024/11/ngu-mo-thay-ghi-phan-kinh-tang-cua-nnn.html"
 ---

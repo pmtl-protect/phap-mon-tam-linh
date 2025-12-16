@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.170Z
+title: "Ngoại trừ những lúc độ người, thời điểm khác nói ít nghĩ nhiều, trí tuệ từ từ khai mở"
+date: 2025-12-16T01:11:11.847Z
 draft: false
 url: "/2024/11/ngoai-tru-nhung-luc-o-nguoi-thoi-iem.html"
 ---

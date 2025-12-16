@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.652Z
+title: "MƠ THẤY CÓ NGƯỜI ĐI NGANG QUA NHÌN KHI ĐANG NIỆM KINH VÀ CHẤM NGÔI NHÀ NHỎ"
+date: 2025-12-16T01:11:03.370Z
 draft: false
 url: "/2025/08/mo-thay-co-nguoi-i-ngang-qua-nhin-khi.html"
 ---

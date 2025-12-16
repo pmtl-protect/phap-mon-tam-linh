@@ -1,6 +1,6 @@
 ---
-title: "Cầu xin giấy tờ (căn cước) phải luôn niệm kinh; chia sẻ việc được hoa sen gia hộ thoát khỏi tai nạn xe."
-date: 2025-12-15T22:19:51.698Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.647Z
 draft: false
 url: "/2025/12/cau-xin-giay-to-can-cuoc-phai-luon-niem.html"
 ---

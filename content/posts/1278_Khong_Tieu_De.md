@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.650Z
+title: "Nếu bạn vẫn không thể mơ sau khi niệm Ngôi nhà nhỏ cho người mẹ quá cố của mình thì đừng niệm nữa"
+date: 2025-12-16T01:10:57.964Z
 draft: false
 url: "/2024/12/neu-ban-van-khong-mo-sau-khi-niem-ngoi.html"
 ---

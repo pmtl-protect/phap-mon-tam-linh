@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.733Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:03.530Z
 draft: false
 url: "/2024/11/ve-van-e-kinh-van-in-ra-bi-loi.html"
 ---

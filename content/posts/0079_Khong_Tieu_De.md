@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.673Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:52.257Z
 draft: false
 url: "/2025/07/van-e-xu-ly-tai-san-ca-nhan-khi-quyet.html"
 ---

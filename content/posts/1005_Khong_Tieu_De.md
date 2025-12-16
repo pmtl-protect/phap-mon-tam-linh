@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.004Z
+title: "SỰ QUY Y CHÂN CHÍNH LÀ QUY Y TAM BẢO TỰ TÁNH"
+date: 2025-12-16T01:10:56.770Z
 draft: false
 url: "/2025/05/su-quy-y-chan-chinh-la-quy-y-tam-bao-tu.html"
 ---

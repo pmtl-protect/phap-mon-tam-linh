@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.980Z
+title: "Công đức là công đức.Thiện nghiệp là thiện nghiệp.Ác nghiệp là ác nghiệp"
+date: 2025-12-16T01:10:54.628Z
 draft: false
 url: "/2025/06/cong-uc-la-cong-ucthien-nghiep-la-thien.html"
 ---

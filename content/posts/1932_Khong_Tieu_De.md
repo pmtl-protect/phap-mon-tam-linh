@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.426Z
+title: "Sau khi ăn sầu riêng không thể ngay lập tức tụng kinh, dâng hương"
+date: 2025-12-16T01:11:01.015Z
 draft: false
 url: "/2025/04/sau-khi-sau-rieng-khong-ngay-lap-tuc.html"
 ---

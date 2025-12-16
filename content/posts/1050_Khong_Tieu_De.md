@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.130Z
+title: "Theo Thầy học Phật và niệm kinh để hóa giải kiếp nạn"
+date: 2025-12-16T01:10:57.020Z
 draft: false
 url: "/2024/12/theo-thay-hoc-phat-va-niem-kinh-e-hoa.html"
 ---

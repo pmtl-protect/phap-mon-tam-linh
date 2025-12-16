@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.809Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:52.522Z
 draft: false
 url: "/2025/07/ot-21-tam-ngoi-nha-nho-vao-mung-1-va.html"
 ---

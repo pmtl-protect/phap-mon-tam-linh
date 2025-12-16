@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.210Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:06.084Z
 draft: false
 url: "/2025/04/so-cai-gi-thi-cai-o-en-trong-tam-ly-hoc.html"
 ---

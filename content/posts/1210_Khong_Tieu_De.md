@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.507Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.653Z
 draft: false
 url: "/2024/12/ngon-tay-suyt-bi-cat-cut-uoc-phuc-hoi_16.html"
 ---

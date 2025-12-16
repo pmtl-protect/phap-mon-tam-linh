@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.849Z
+title: "Con người không nằm ở chỗ “có thể”, mà nằm ở chỗ “chân thành”"
+date: 2025-12-16T01:10:56.279Z
 draft: false
 url: "/2025/05/con-nguoi-khong-nam-o-cho-co-ma-nam-o.html"
 ---

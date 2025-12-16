@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.005Z
+title: "Trong tâm người học Phật không có thù hận đối với người khác"
+date: 2025-12-16T01:11:00.312Z
 draft: false
 url: "/2024/12/trong-tam-nguoi-hoc-phat-khong-co-thu.html"
 ---

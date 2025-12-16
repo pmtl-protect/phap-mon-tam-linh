@@ -1,6 +1,6 @@
 ---
-title: "NGÔI NHÀ NHỎ LÀ GÌ ?"
-date: 2025-12-15T22:19:51.832Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.935Z
 draft: false
 url: "/2025/12/ngoi-nha-nho-la-gi.html"
 ---

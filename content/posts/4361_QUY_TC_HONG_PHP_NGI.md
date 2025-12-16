@@ -1,6 +1,6 @@
 ---
-title: "QUY TẮC HOẰNG PHÁP ĐỘ NGƯỜI"
-date: 2025-12-15T22:19:51.781Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.834Z
 draft: false
 url: "/2025/12/quy-tac-hoang-phap-o-nguoi.html"
 ---

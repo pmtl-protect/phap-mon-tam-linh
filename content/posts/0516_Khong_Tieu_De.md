@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.857Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.433Z
 draft: false
 url: "/2025/03/bon-cau-noi-cua-quan-am-bo-tat-danh-cho_22.html"
 ---

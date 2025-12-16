@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.277Z
+title: "Sau khi niệm kinh đầu óc càng ngày càng tỉnh táo,vì sao cảm giác như có khí nóng ở miệng và mũi"
+date: 2025-12-16T01:11:08.317Z
 draft: false
 url: "/2025/03/sau-khi-niem-kinh-au-oc-cang-ngay-cang.html"
 ---

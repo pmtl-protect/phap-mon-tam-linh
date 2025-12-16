@@ -1,6 +1,6 @@
 ---
-title: "tranh thủ thời gian niệm kinh, không muốn nói chuyện nhiều với người khác, có phải là ngạo mạn không? Làm sao để đối đãi một cách viên dung?"
-date: 2025-12-15T22:19:51.762Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.793Z
 draft: false
 url: "/2025/12/voi-vang-tranh-thu-thoi-gian-niem-kinh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.439Z
+title: "Về vấn đề Thẻ Hộ Mệnh"
+date: 2025-12-16T01:10:57.534Z
 draft: false
 url: "/2025/02/ve-van-e-ho-menh.html"
 ---

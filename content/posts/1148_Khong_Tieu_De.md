@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.373Z
+title: "Những người hay nổi giận cần uống nhiều nước, nước là nguồn gốc của vạn vật"
+date: 2025-12-16T01:10:57.414Z
 draft: false
 url: "/2025/08/nhung-nguoi-hay-noi-gian-can-uong-nhieu.html"
 ---

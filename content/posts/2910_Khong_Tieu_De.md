@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.726Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.399Z
 draft: false
 url: "/2024/11/tap-2-kiem-soat-tu-duy-xa-tam-e-tu-tam.html"
 ---

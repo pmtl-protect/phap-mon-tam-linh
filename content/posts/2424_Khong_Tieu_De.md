@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.511Z
+title: "Làm sao để biết mình tu hành tốt hay không?.."
+date: 2025-12-16T01:11:03.077Z
 draft: false
 url: "/2025/01/lam-sao-e-biet-minh-tu-hanh-tot-hay.html"
 ---

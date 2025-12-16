@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.735Z
+title: "Nếu chẳng may làm vỡ Phật cụ, nên niệm Lễ Phật Đại Sám Hối Văn  7 lần"
+date: 2025-12-16T01:10:58.128Z
 draft: false
 url: "/2024/10/neu-chang-may-lam-vo-phat-cu-nen-niem.html"
 ---

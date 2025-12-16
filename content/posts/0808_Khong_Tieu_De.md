@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.600Z
+title: "Điều đáng sợ nhất đối với người học Phật là dùng bất kỳ lý do gì để biện hộ cho sự buông lơi của chí"
+date: 2025-12-16T01:10:55.730Z
 draft: false
 url: "/2025/05/ieu-ang-so-nhat-oi-voi-nguoi-hoc-phat.html"
 ---

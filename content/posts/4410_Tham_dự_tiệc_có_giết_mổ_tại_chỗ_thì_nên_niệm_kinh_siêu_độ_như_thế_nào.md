@@ -1,6 +1,6 @@
 ---
-title: "Tham dự tiệc có giết mổ tại chỗ thì nên niệm kinh siêu độ như thế nào?"
-date: 2025-12-15T22:19:51.939Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.094Z
 draft: false
 url: "/2025/12/tham-du-tiec-co-giet-mo-tai-cho-thi-nen.html"
 ---

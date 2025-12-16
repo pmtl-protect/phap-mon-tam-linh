@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.175Z
+title: "Ruột của con người rất dài, mọi người chỉ cần học một chút kiến thức là biết ngay. Ruột dài thì có l"
+date: 2025-12-16T01:11:08.114Z
 draft: false
 url: "/2025/09/ruot-cua-con-nguoi-rat-dai-moi-nguoi.html"
 ---

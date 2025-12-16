@@ -1,6 +1,6 @@
 ---
-title: "Mệnh càng xem càng tệ"
-date: 2025-12-15T22:19:51.976Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.169Z
 draft: false
 url: "/2025/12/menh-cang-xem-cang-te.html"
 ---

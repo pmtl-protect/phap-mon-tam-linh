@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.599Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.849Z
 draft: false
 url: "/2025/04/thien-duyen-va-ac-duyen-eu-phai-thien.html"
 ---

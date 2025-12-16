@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.091Z
+title: "Câu chuyện Phật học:   Thầy thuốc kém trị bệnh"
+date: 2025-12-16T01:11:05.983Z
 draft: false
 url: "/2024/11/cau-chuyen-phat-hoc-thay-thuoc-kem-tri.html"
 ---

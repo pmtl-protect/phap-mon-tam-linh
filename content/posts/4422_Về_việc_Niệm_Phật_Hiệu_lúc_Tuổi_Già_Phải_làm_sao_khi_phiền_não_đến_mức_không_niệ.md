@@ -1,6 +1,6 @@
 ---
-title: "Về việc Niệm Phật Hiệu lúc Tuổi Già; Phải làm sao khi phiền não đến mức không niệm kinh được?"
-date: 2025-12-15T22:19:51.968Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.155Z
 draft: false
 url: "/2025/12/ve-viec-niem-phat-hieu-luc-tuoi-gia.html"
 ---

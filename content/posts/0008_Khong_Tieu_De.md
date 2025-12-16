@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.473Z
+title: "Khi niệm kinh cho người nhà, cần phải báo cả họ tên của người niệm kinh  và họ tên của người nhà"
+date: 2025-12-16T01:10:51.904Z
 draft: false
 url: "/2025/07/khi-niem-kinh-cho-nguoi-nha-can-phai.html"
 ---

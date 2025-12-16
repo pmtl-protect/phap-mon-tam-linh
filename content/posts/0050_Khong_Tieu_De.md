@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.603Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:52.116Z
 draft: false
 url: "/2025/07/moi-quan-he-giua-nghiep-chuong-va-phuc.html"
 ---

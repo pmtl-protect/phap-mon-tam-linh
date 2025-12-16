@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.227Z
+title: "Máu có vấn đề, thận không tốt, bị lupus ban đỏ; công đức không đủ khó vượt qua kiếp nạn"
+date: 2025-12-16T01:11:00.681Z
 draft: false
 url: "/2024/11/mau-co-van-e-than-khong-tot-bi-lupus.html"
 ---

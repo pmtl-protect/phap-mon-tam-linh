@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.583Z
+title: "Tiền tài là kết quả của sự bố thí, là do công đức tích lũy từ kiếp trước"
+date: 2025-12-16T01:10:52.077Z
 draft: false
 url: "/2025/06/tien-tai-la-ket-qua-cua-su-bo-thi-la-do.html"
 ---

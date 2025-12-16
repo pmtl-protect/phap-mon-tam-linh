@@ -1,6 +1,6 @@
 ---
-title: "Đốt ngôi nhà nhỏ cho đối tượng khác nhau, thời gian cần cách nhau ít nhất một phút trở lên"
-date: 2025-12-15T22:19:51.788Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.847Z
 draft: false
 url: "/2025/12/ot-ngoi-nha-nho-cho-oi-tuong-khac-nhau.html"
 ---

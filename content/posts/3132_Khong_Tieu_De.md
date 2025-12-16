@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.347Z
+title: "Người mà tu sai lệch rất dễ trở thành yêu quái"
+date: 2025-12-16T01:11:06.279Z
 draft: false
 url: "/2024/11/nguoi-ma-tu-sai-lech-rat-de-tro-thanh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.475Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:03.008Z
 draft: false
 url: "/2025/01/tu-hanh-can-phai-chanh-tin-lam-theo-loi.html"
 ---

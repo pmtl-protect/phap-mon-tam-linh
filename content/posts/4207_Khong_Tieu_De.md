@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.302Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.130Z
 draft: false
 url: "/2024/10/co-ve-tranh-bo-tat-uoc-khong.html"
 ---

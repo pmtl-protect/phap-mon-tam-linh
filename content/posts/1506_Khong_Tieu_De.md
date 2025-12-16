@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.326Z
+title: "Trước khi ra ngoài hoằng pháp, đốt Ngôi Nhà nhỏ cho mình để ngăn ngừa gánh nghiệp"
+date: 2025-12-16T01:10:58.931Z
 draft: false
 url: "/2024/12/truoc-khi-ra-ngoai-hoang-phap-ot-ngoi.html"
 ---

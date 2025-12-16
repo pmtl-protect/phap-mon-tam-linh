@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.218Z
+title: "Người ăn mặn tối đa chỉ có thể lên đến cõi Trời Dục Giới"
+date: 2025-12-16T01:10:54.920Z
 draft: false
 url: "/2025/06/nguoi-man-toi-chi-co-len-en-coi-troi.html"
 ---

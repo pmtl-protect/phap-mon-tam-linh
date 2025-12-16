@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.273Z
+title: "Người học Phật cần có ý chí kiên định, không được giúp đỡ việc sát sinh; giúp người phải có diệu phá"
+date: 2025-12-16T01:10:53.512Z
 draft: false
 url: "/2025/06/nguoi-hoc-phat-can-co-y-chi-kien-inh.html"
 ---

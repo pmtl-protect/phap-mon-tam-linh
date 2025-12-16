@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.444Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:02.941Z
 draft: false
 url: "/2025/01/kiep-truoc-lam-qua-nhieu-viec-cua-loai.html"
 ---

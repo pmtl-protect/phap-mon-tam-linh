@@ -1,6 +1,6 @@
 ---
-title: "Từ Đông Chí đến mùng Ba Tết Âm Lịch, nên niệm Vãng Sanh Chú nhiều, điều này thích hợp cho tất cả mọi người."
-date: 2025-12-15T22:19:52.002Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.218Z
 draft: false
 url: "/2025/12/tu-ong-chi-en-mung-ba-tet-am-lich-nen_0734818023.html"
 ---

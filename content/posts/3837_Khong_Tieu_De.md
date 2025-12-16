@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.415Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.371Z
 draft: false
 url: "/2025/01/co-tang-bao-li-xi-cho-bac-truong-boi.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.394Z
+title: "Người nhà cờ bạc, cần phải liên tục niệm kinh cho họ; cha mẹ tạo nghiệp  cần sám hối nhiều, con cái "
+date: 2025-12-16T01:10:53.756Z
 draft: false
 url: "/2025/06/nguoi-nha-co-bac-can-phai-lien-tuc-niem.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.593Z
+title: "Pháp Môn Tâm Linh cơ bản đều dùng gỗ đàn hương để thắp, các loại hương khác thì chúng ta không dùng"
+date: 2025-12-16T01:11:05.136Z
 draft: false
 url: "/2024/11/phap-mon-tam-linh-co-ban-eu-dung-go.html"
 ---

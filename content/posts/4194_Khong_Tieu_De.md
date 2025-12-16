@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.275Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.073Z
 draft: false
 url: "/2024/11/khi-gap-tai-kiep-co-truc-tiep-phat.html"
 ---

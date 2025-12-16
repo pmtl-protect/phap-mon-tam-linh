@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.930Z
+title: "Phật quang phổ chiếu, những người tu tập tốt có thể cảm nhận được ánh sáng của Bồ Tát"
+date: 2025-12-16T01:10:56.541Z
 draft: false
 url: "/2025/05/phat-quang-pho-chieu-nhung-nguoi-tu-tap.html"
 ---

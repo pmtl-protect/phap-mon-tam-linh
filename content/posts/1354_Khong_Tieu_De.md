@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.836Z
+title: "Sư Phụ sẽ tiếp tục giảng cho quý vị biết, niệm kinh là một phần quan trọng của việc học Phật và tu t"
+date: 2025-12-16T01:10:58.247Z
 draft: false
 url: "/2024/12/su-phu-se-tiep-tuc-giang-cho-quy-vi.html"
 ---

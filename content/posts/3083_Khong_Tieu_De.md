@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.212Z
+title: "Người học Phật phải hiểu cách trừ bỏ phiền não"
+date: 2025-12-16T01:11:06.087Z
 draft: false
 url: "/2025/08/nguoi-hoc-phat-phai-hieu-cach-tru-bo.html"
 ---

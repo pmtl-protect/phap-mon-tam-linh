@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.517Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.599Z
 draft: false
 url: "/2025/02/nguyen-nhan-cua-viec-pha-tai-van-la-gi.html"
 ---

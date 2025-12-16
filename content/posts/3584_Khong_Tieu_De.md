@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.762Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.260Z
 draft: false
 url: "/2025/11/cach-cau-nguyen-cho-nan-nhan-vung-thien.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.174Z
+title: "Trích BTPP 5-Tập 16: Không bám duyên, không nghĩ thiện, không nghĩ ác"
+date: 2025-12-16T01:11:04.567Z
 draft: false
 url: "/2025/08/trich-btpp-5-tap-16-khong-bam-duyen.html"
 ---

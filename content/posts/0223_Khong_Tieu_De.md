@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.021Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:53.004Z
 draft: false
 url: "/2025/07/dung-phat-ly-phat-phap-e-chi-trich.html"
 ---

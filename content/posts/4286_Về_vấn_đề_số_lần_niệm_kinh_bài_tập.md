@@ -1,6 +1,6 @@
 ---
-title: "Về vấn đề số lần niệm kinh bài tập"
-date: 2025-12-15T22:19:51.607Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.464Z
 draft: false
 url: "/2025/12/ve-van-e-so-lan-niem-kinh-bai-tap.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.825Z
+title: "Chúng ta ở nhân gian, bình an là phúc, bình thường là đạo"
+date: 2025-12-16T01:11:01.779Z
 draft: false
 url: "/2025/04/chung-ta-o-nhan-gian-binh-la-phuc-binh.html"
 ---

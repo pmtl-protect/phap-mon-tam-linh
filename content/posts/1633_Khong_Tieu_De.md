@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.725Z
+title: "Cuối năm chúng ta nên niệm Lễ Phật Đại sám hối văn thường xuyên. Để tiêu trừ nghiệp chướng của chính"
+date: 2025-12-16T01:10:59.574Z
 draft: false
 url: "/2024/11/cuoi-nam-chung-ta-nen-niem-le-phat-ai.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.429Z
+title: "Quý vị có biết không, trí tuệ thực chất là một luồng ánh sáng trên đỉnh đầu"
+date: 2025-12-16T01:10:57.515Z
 draft: false
 url: "/2025/04/quy-vi-co-biet-khong-tri-tue-thuc-chat.html"
 ---

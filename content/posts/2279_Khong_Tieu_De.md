@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.154Z
+title: "Ngày 15 tháng 8, thắp đầu hương, nhìn thấy Quán Thế Âm Bồ Tát"
+date: 2025-12-16T01:11:02.383Z
 draft: false
 url: "/2024/11/ngay-15-thang-8-thap-au-huong-nhin-thay.html"
 ---

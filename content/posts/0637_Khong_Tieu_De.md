@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.230Z
+title: "Học cách không nổi giận, vì nổi giận vừa làm tổn hại thân thể, lại làm tổn thương tình cảm"
+date: 2025-12-16T01:10:54.943Z
 draft: false
 url: "/2025/05/hoc-cach-khong-noi-gian-vi-noi-gian-vua.html"
 ---

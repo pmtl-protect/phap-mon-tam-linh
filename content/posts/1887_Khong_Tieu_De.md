@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.333Z
+title: "Chăm chỉ hoằng pháp, vì sao vẫn gặp vấn đề ? Khi hoằng pháp cần phải biết điều chỉnh tâm thái của bả"
+date: 2025-12-16T01:11:00.825Z
 draft: false
 url: "/2025/02/cham-chi-hoang-phap-vi-sao-van-gap-van.html"
 ---

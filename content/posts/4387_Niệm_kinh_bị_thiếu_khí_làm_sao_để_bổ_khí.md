@@ -1,6 +1,6 @@
 ---
-title: "Niệm kinh bị thiếu khí, làm sao để bổ khí"
-date: 2025-12-15T22:19:51.860Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.992Z
 draft: false
 url: "/2025/12/niem-kinh-bi-thieu-khi-lam-sao-e-bo-khi.html"
 ---

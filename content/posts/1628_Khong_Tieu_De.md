@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.713Z
+title: "Trước khi đọc Bạch thoại Phật pháp, có thể niệm Tâm Kinh để cầu khai mở trí tuệ, giúp hiểu rõ hơn"
+date: 2025-12-16T01:10:59.551Z
 draft: false
 url: "/2024/11/truoc-khi-oc-bach-thoai-phat-phap-co.html"
 ---

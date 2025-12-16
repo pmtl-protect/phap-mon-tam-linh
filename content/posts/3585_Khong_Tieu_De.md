@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.765Z
+title: "Phật pháp thật ra là ở trong phiền não của quý vị, và nó không thể tách rời sự giác ngộ của quý vị v"
+date: 2025-12-16T01:11:09.264Z
 draft: false
 url: "/2025/03/phat-phap-that-ra-la-o-trong-phien-nao.html"
 ---

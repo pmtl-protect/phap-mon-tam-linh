@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.060Z
+title: "Một đồng tu là đệ tử, từng trong lúc nóng giận khuyên mẹ cô ấy ly hôn với cha cô"
+date: 2025-12-16T01:11:05.911Z
 draft: false
 url: "/2025/02/mot-ong-tu-la-e-tu-tung-trong-luc-nong.html"
 ---

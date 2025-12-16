@@ -1,6 +1,6 @@
 ---
-title: "Khi đốt Ngôi nhà nhỏ, nhìn thấy trên Ngôi nhà nhỏ có dấu tay lớn."
-date: 2025-12-15T22:19:51.632Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.509Z
 draft: false
 url: "/2025/12/khi-ot-ngoi-nha-nho-nhin-thay-tren-ngoi.html"
 ---

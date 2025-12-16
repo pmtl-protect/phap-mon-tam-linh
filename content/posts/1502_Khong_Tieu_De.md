@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.318Z
+title: "Khái niệm về pháp xuất thế và pháp nhập thế: Chỉ khi tu hành đạt đến cảnh giới cao mới có thể xem ch"
+date: 2025-12-16T01:10:58.906Z
 draft: false
 url: "/2025/03/khai-niem-ve-phap-xuat-va-phap-nhap-chi_27.html"
 ---

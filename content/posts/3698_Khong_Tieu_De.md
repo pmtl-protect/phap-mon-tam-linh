@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.027Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.717Z
 draft: false
 url: "/2025/11/loi-cau-nguyen-cho-ngoi-nha-nho-e-qua.html"
 ---

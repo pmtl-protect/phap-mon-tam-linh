@@ -1,6 +1,6 @@
 ---
-title: "VÌ SAO TRONG KHI TỨC GIẬN LẠI CÀNG LÚC CÀNG TỨC GIẬN HƠN"
-date: 2025-12-15T22:19:51.720Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.702Z
 draft: false
 url: "/2025/12/vi-sao-trong-khi-tuc-gian-lai-cang-luc_0225991216.html"
 ---

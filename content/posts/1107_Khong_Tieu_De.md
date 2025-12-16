@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.269Z
+title: "Sau khi niệm Ngôi nhà nhỏ, có người đến hỏi một vật gì đó có giá trị trong giấc mơ"
+date: 2025-12-16T01:10:57.249Z
 draft: false
 url: "/2024/10/sau-khi-niem-ngoi-nha-nho-co-nguoi-en.html"
 ---

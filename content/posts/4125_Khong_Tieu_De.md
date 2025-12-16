@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.112Z
+title: "Phật Pháp không phải là độ những người giàu có, quan chức hiển hách, mà là độ chúng sinh bình thường"
+date: 2025-12-16T01:11:11.678Z
 draft: false
 url: "/2025/03/phat-phap-khong-phai-la-o-nhung-nguoi.html"
 ---

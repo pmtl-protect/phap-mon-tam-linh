@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.879Z
+title: "Nhiều người kết bạn xấu mặc dù biết rằng họ sẽ làm tổn thương mình trong tương lai, vẫn tiếp xúc xã "
+date: 2025-12-16T01:11:01.864Z
 draft: false
 url: "/2024/11/nhieu-nguoi-ket-ban-xau-mac-du-biet.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "LỜI KHAI THỊ CỦA SƯ PHỤ TẠI PHÁP HỘI"
-date: 2025-12-15T22:19:51.729Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.724Z
 draft: false
 url: "/2025/12/loi-khai-thi-cua-su-phu-tai-phap-hoi.html"
 ---

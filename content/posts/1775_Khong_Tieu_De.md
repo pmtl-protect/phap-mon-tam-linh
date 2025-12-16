@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.025Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:00.357Z
 draft: false
 url: "/2024/12/sau-khi-i-tuyen-truyen-phap-mon-tren.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.162Z
+title: "Khi con đường ở trần gian không thông, phải học cách chọn một ngã rẽ"
+date: 2025-12-16T01:10:54.838Z
 draft: false
 url: "/2025/06/khi-con-uong-o-tran-gian-khong-thong.html"
 ---

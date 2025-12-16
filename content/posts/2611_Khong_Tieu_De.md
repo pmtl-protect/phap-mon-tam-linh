@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.911Z
+title: "Phát đại nguyện mới có thể nhận được sự gia trì lớn nhất , có khi một lời phát nguyện có thể thay đổ"
+date: 2025-12-16T01:11:03.979Z
 draft: false
 url: "/2024/11/phat-ai-nguyen-moi-co-nhan-uoc-su-gia.html"
 ---

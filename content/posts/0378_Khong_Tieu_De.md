@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.428Z
+title: "Không thể. Chỉ khi cúng dường chư Phật Bồ Tát trên bàn thờ mới được thắp hương, và phải là hương thẳ"
+date: 2025-12-16T01:10:53.837Z
 draft: false
 url: "/2025/06/khong-chi-khi-cung-duong-chu-phat-bo.html"
 ---

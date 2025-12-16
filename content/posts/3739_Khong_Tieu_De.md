@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.143Z
+title: "Dù có chuyện tồi tệ đến đâu xảy ra, cũng phải thuận theo mà chịu đựng"
+date: 2025-12-16T01:11:09.889Z
 draft: false
 url: "/2025/08/du-co-chuyen-toi-te-en-au-xay-ra-cung.html"
 ---

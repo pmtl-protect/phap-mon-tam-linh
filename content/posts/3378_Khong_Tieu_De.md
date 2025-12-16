@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.179Z
+title: "Ngày 4 và 5/7, Lư Đài Trưởng đã khai thị riêng cho 2000 tân đệ tử và 30.000 Phật tử toàn cầu"
+date: 2025-12-16T01:11:08.121Z
 draft: false
 url: "/2025/09/ngay-4-va-57-lu-ai-truong-khai-thi.html"
 ---

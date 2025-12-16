@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.769Z
+title: "Lý thuyết và cảnh giới phải đồng nhất"
+date: 2025-12-16T01:10:59.659Z
 draft: false
 url: "/2024/11/ly-thuyet-va-canh-gioi-phai-ong-nhat.html"
 ---

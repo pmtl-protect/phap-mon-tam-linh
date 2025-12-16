@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.021Z
+title: "Nếu có căn cơ của Phật, người phát nguyện đến nhân gian sẽ không bị mê lạc"
+date: 2025-12-16T01:11:04.302Z
 draft: false
 url: "/2025/03/neu-co-can-co-cua-phat-nguoi-phat_27.html"
 ---

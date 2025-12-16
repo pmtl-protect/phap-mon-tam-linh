@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.013Z
+title: "Vấn đề liên quan đến việc trong nhà có thờ tượng Phật khác, tụng kinh và đốt ngôi nhà nhỏ để cầu ngu"
+date: 2025-12-16T01:10:54.678Z
 draft: false
 url: "/2025/06/van-e-lien-quan-en-viec-trong-nha-co.html"
 ---

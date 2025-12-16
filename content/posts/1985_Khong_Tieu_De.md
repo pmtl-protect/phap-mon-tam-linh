@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.539Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.230Z
 draft: false
 url: "/2025/02/nhan-vat-trong-phim-hoat-hinh-va-phim_20.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.746Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.149Z
 draft: false
 url: "/2025/08/bai-tap-hang-ngay-niem-49-bien-chu-ai.html"
 ---

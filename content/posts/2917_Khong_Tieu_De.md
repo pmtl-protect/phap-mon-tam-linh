@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.742Z
+title: "Việc tụng niệm Tâm Kinh cho người nhà không tin Phật cần phải từ từ, từng bước một"
+date: 2025-12-16T01:11:05.430Z
 draft: false
 url: "/2025/08/viec-tung-niem-tam-kinh-cho-nguoi-nha_24.html"
 ---

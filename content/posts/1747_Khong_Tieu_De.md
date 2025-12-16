@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.963Z
+title: "Cầu Bồ Tát là thông qua một con đường chính quy, sử dụng năng lượng của Bồ Tát, ánh sáng từ tâm mình"
+date: 2025-12-16T01:11:00.220Z
 draft: false
 url: "/2024/12/cau-bo-tat-la-thong-qua-mot-con-uong.html"
 ---

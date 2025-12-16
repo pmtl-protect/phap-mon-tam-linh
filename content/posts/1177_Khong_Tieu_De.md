@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.435Z
+title: "Các bệnh phụ khoa hầu hết đều liên quan đến sảy thai"
+date: 2025-12-16T01:10:57.526Z
 draft: false
 url: "/2024/12/cac-benh-phu-khoa-hau-het-eu-lien-quan.html"
 ---

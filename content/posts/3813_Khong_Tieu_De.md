@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.354Z
+title: "Tại sao một số người không tin Phật, không thờ thần mà vẫn được sinh lên thiên giới, trong khi những"
+date: 2025-12-16T01:11:10.247Z
 draft: false
 url: "/2025/01/tai-sao-mot-so-nguoi-khong-tin-phat_26.html"
 ---

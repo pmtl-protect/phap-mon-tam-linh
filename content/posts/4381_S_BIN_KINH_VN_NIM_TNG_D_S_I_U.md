@@ -1,6 +1,6 @@
 ---
-title: "SỐ BIẾN KINH VĂN NIỆM TỤNG DƯ SẼ ĐI ĐÂU ?"
-date: 2025-12-15T22:19:51.843Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.951Z
 draft: false
 url: "/2025/12/so-bien-kinh-van-niem-tung-du-se-i-au.html"
 ---

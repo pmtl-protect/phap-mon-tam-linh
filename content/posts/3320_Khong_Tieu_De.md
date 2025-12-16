@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.042Z
+title: "Không được di chuyển đồ vật trên bàn thờ cho đến khi hương cháy hết"
+date: 2025-12-16T01:11:07.826Z
 draft: false
 url: "/2025/04/khong-uoc-di-chuyen-o-vat-tren-ban-tho.html"
 ---

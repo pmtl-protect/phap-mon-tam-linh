@@ -1,6 +1,6 @@
 ---
-title: "Kích thước cá phóng sinh ít nhất phải bằng một nửa đĩa CD, Phóng sinh cá quá nhỏ dẫn đến công đức không đủ"
-date: 2025-12-15T22:19:51.584Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.432Z
 draft: false
 url: "/2025/03/phong-sinh-ca-qua-nho-dan-en-cong-uc.html"
 ---

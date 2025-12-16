@@ -1,6 +1,6 @@
 ---
-title: "Ngôi nhà nhỏ quên ghi ngày tháng sau đó đốt đi có còn hiệu quả không? Tuyệt đối không được quên ghi tên!"
-date: 2025-12-15T22:19:50.236Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.094Z
 draft: false
 url: "/2025/11/ngoi-nha-nho-quen-ghi-ngay-thang-co-con.html"
 ---

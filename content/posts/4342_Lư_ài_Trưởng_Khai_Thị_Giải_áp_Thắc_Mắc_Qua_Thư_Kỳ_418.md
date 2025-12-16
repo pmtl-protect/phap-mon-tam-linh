@@ -1,6 +1,6 @@
 ---
-title: "Lư Đài Trưởng Khai Thị Giải Đáp Thắc Mắc Qua Thư (Kỳ 418)"
-date: 2025-12-15T22:19:51.734Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.735Z
 draft: false
 url: "/2025/12/lu-ai-truong-khai-thi-giai-ap-thac-mac.html"
 ---

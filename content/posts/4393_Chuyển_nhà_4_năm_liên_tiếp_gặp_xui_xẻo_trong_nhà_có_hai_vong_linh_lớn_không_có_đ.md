@@ -1,6 +1,6 @@
 ---
-title: "Chuyển nhà 4 năm liên tiếp gặp xui xẻo, trong nhà có hai vong linh lớn; không có điều kiện chuyển nhà thì phải mau mau tụng kinh siêu độ - Zongshu 20190323 27:46"
-date: 2025-12-15T22:19:51.885Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.015Z
 draft: false
 url: "/2025/12/chuyen-nha-4-nam-lien-tiep-gap-xui-xeo.html"
 ---

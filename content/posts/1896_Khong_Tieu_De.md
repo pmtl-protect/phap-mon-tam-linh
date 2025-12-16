@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.354Z
+title: "mơ thấy nhà xưởng của công ty mình. Anh ấy kéo theo hai đồng nghiệp, nhưng những người khác đều trượ"
+date: 2025-12-16T01:11:00.870Z
 draft: false
 url: "/2024/11/mo-thay-nha-xuong-cua-cong-ty-minh-anh.html"
 ---

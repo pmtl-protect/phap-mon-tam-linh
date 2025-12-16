@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.557Z
+title: "Hãy ghi nhớ một câu rằng: Trên đời này, không thể sống chỉ vì bản thân mà cần phải sống vì người khá"
+date: 2025-12-16T01:11:01.266Z
 draft: false
 url: "/2024/11/hay-ghi-nho-mot-cau-rang-tren-oi-nay.html"
 ---

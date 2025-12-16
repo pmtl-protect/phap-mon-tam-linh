@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.210Z
+title: "Trích BTPP 4-36: Phật Pháp là để giải thoát khổ nạn nhân gian"
+date: 2025-12-16T01:10:58.758Z
 draft: false
 url: "/2025/08/trich-btpp-4-36-phat-phap-la-e-giai.html"
 ---

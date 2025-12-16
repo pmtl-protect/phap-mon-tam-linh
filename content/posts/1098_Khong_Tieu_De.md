@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.252Z
+title: "Bồ Tát xuất hiện trong giấc mơ giúp tránh được nhiều tai kiếp; trên đầu có Hộ Pháp, chỉ cần phạm lỗi"
+date: 2025-12-16T01:10:57.215Z
 draft: false
 url: "/2024/10/bo-tat-xuat-hien-trong-giac-mo-giup.html"
 ---

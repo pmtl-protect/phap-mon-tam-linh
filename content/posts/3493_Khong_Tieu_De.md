@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.480Z
+title: "Phóng sanh là nhất đại pháp bảo của pháp môn tâm linh"
+date: 2025-12-16T01:11:08.654Z
 draft: false
 url: "/2025/04/phong-sanh-la-nhat-ai-phap-bao-cua-phap_2.html"
 ---

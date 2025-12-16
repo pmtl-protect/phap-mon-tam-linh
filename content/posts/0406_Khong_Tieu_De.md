@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.498Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:53.961Z
 draft: false
 url: "/2025/06/cau-22-van-e-hieu-qua-cua-viec-niem-le.html"
 ---

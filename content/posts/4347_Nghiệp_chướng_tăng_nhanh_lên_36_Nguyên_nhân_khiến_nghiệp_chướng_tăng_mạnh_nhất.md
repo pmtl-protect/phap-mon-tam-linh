@@ -1,6 +1,6 @@
 ---
-title: "Nghiệp chướng tăng nhanh lên 36%; Nguyên nhân khiến nghiệp chướng tăng mạnh nhất"
-date: 2025-12-15T22:19:51.746Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.759Z
 draft: false
 url: "/2025/12/nghiep-chuong-tang-nhanh-len-36-nguyen.html"
 ---

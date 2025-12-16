@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.707Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:52.329Z
 draft: false
 url: "/2025/07/lam-sao-e-nguoi-am-chim-trong-co-bac_24.html"
 ---

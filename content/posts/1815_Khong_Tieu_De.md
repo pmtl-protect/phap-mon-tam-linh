@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.107Z
+title: "Đọc nhiều 《Bạch thoại Phật pháp》 có thể nhanh chóng tiêu trừ nghiệp cũ"
+date: 2025-12-16T01:11:00.533Z
 draft: false
 url: "/2024/11/oc-nhieu-bach-thoai-phat-phap-co-nhanh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.873Z
+title: "Hãy nhìn thấu, suy nghĩ thông thoáng, đừng tính toán chi li"
+date: 2025-12-16T01:11:05.658Z
 draft: false
 url: "/2024/11/hay-nhin-thau-suy-nghi-thong-thoang-ung.html"
 ---

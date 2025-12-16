@@ -1,6 +1,6 @@
 ---
-title: "Ra mồ hôi liên tục là do cơ thể suy nhược, cần tăng cường niệm Chú Đại Bi."
-date: 2025-12-15T22:19:51.624Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.495Z
 draft: false
 url: "/2025/12/ra-mo-hoi-lien-tuc-la-do-co-suy-nhuoc.html"
 ---

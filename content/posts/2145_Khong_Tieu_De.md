@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.859Z
+title: "Mọi người nhất định phải ghi nhớ: dù làm việc gì cũng phải cẩn trọng như đi trên băng mỏng"
+date: 2025-12-16T01:11:01.822Z
 draft: false
 url: "/2025/08/moi-nguoi-nhat-inh-phai-ghi-nho-du-lam.html"
 ---

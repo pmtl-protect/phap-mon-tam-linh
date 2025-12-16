@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.927Z
+title: "Cầu Bồ Tát phù hộ có thể độ thêm nhiều chúng sinh hữu duyên, sẽ nhận được sự gia trì rất lớn từ Bồ T"
+date: 2025-12-16T01:10:52.751Z
 draft: false
 url: "/2025/06/cau-bo-tat-phu-ho-co-o-them-nhieu-chung.html"
 ---

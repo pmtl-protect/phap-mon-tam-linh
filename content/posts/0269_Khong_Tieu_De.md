@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.173Z
+title: "Đài trưởng hy vọng mọi người sẽ niệm Lễ Phật đại sám hối văn trước cuối năm"
+date: 2025-12-16T01:10:53.297Z
 draft: false
 url: "/2024/12/ai-truong-hy-vong-moi-nguoi-se-niem-le.html"
 ---

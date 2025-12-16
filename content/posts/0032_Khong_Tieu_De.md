@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.555Z
+title: "Vấn đề về việc chưa viết trước phần tên người nhận và người niệm trên Tổ hợp Kinh văn Ngôi Nhà Nhỏ"
+date: 2025-12-16T01:10:52.027Z
 draft: false
 url: "/2025/11/van-e-ve-viec-chua-viet-truoc-phan-ten.html"
 ---

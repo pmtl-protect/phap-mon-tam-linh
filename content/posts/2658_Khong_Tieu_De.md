@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.019Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:04.299Z
 draft: false
 url: "/2025/04/ve-viec-chap-truoc-vao-viec-tu-xung-la.html"
 ---

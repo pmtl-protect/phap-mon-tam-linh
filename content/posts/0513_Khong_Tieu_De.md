@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.844Z
+title: "Khuyên Phật tử thỉnh tượng Bồ Tát xuống có thể động đến nhân quả"
+date: 2025-12-16T01:10:54.420Z
 draft: false
 url: "/2025/06/khuyen-phat-tu-thinh-tuong-bo-tat-xuong.html"
 ---

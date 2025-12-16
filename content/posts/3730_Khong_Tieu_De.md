@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.124Z
+title: "Giải thích về \"việc thiện không lưu đến kiếp sau báo\" và phân biệt phước báo, thiện báo"
+date: 2025-12-16T01:11:09.841Z
 draft: false
 url: "/2025/08/giai-thich-ve-viec-thien-khong-luu-en.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.399Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.338Z
 draft: false
 url: "/2025/08/buoi-hoi-ap-ve-viec-hoang-phap-tai-hong.html"
 ---

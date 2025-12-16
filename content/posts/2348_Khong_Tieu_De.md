@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.329Z
+title: "Giúp người khác lập bàn thờ Phật, trong nhà mình sẽ có hoa sen"
+date: 2025-12-16T01:11:02.686Z
 draft: false
 url: "/2024/11/giup-nguoi-khac-lap-ban-tho-phat-trong.html"
 ---

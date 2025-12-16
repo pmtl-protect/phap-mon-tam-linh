@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.467Z
+title: "Nếu ở đâu cũng có mùi đàn hương thì rất tốt, vì mùi đàn hương có thể giúp con người đầu óc thanh tịn"
+date: 2025-12-16T01:11:10.451Z
 draft: false
 url: "/2025/10/neu-o-au-cung-co-mui-huong-thi-rat-tot.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.645Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.447Z
 draft: false
 url: "/2025/08/trich-btpp-tap-4-huu-so-bat-vi-tai-nang.html"
 ---

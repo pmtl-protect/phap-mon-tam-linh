@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.682Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.015Z
 draft: false
 url: "/2025/01/cach-tranh-cac-nghiep-qua-khong-tot-khi.html"
 ---

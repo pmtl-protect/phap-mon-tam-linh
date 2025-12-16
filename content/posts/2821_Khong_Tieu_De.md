@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.522Z
+title: "Một người Đức tên là John Rabe, trong Nạn thảm sát tại Nam Kinh đã cứu được 250.000 người Trung Quốc"
+date: 2025-12-16T01:11:04.998Z
 draft: false
 url: "/2025/04/mot-nguoi-uc-ten-la-john-rabe-trong-nan.html"
 ---

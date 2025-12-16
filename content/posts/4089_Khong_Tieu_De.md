@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.033Z
+title: "Con của bạn không nghe lời. Đừng niệm Chú Đại Bi nhiều"
+date: 2025-12-16T01:11:11.550Z
 draft: false
 url: "/2024/11/con-cua-ban-khong-nghe-loi-ung-niem-chu.html"
 ---

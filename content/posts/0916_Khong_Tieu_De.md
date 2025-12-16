@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.821Z
+title: "Một người cần học tập Bát Chánh Đạo"
+date: 2025-12-16T01:10:56.207Z
 draft: false
 url: "/2025/04/mot-nguoi-can-hoc-tap-bat-chanh-ao.html"
 ---

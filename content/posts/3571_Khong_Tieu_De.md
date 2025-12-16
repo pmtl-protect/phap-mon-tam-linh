@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.734Z
+title: "Hy vọng các con nỗ lực thật tốt. Nhất định phải chiến thắng chính mình"
+date: 2025-12-16T01:11:09.216Z
 draft: false
 url: "/2025/11/hy-vong-cac-con-no-luc-that-tot-nhat.html"
 ---

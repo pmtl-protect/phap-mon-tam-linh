@@ -1,6 +1,6 @@
 ---
-title: "Phát Nguyện, Phóng Sinh, Niệm Kinh, ba pháp bảo lớn này có tính tương hỗ với nhau."
-date: 2025-12-15T22:19:51.963Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.143Z
 draft: false
 url: "/2025/02/phat-nguyen-phong-sinh-niem-kinh-ba_25.html"
 ---

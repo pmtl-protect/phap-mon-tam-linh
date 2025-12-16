@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.681Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.026Z
 draft: false
 url: "/2025/08/niem-kinh-khi-nao-nen-quan-tuong-quan.html"
 ---

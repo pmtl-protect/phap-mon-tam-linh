@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.437Z
+title: "Khi nào có thể niệm Tiêu Tai Cát Tường Thần Chú"
+date: 2025-12-16T01:10:53.854Z
 draft: false
 url: "/2025/06/khi-nao-co-niem-tieu-tai-cat-tuong-than.html"
 ---

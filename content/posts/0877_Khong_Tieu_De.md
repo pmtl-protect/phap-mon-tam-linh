@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.747Z
+title: "Niệm kinh ở ngoài mà không thỉnh được Bồ Tát thì có ảnh hưởng đến hiệu quả không; niệm kinh trực tiế"
+date: 2025-12-16T01:10:56.053Z
 draft: false
 url: "/2025/05/niem-kinh-o-ngoai-ma-khong-thinh-uoc-bo.html"
 ---

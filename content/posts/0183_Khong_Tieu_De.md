@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.933Z
+title: "Khai thị tại Pháp hội Los Angeles, Mỹ, 2018-10-06"
+date: 2025-12-16T01:10:52.772Z
 draft: false
 url: "/2025/07/khai-thi-tai-phap-hoi-los-angeles-my.html"
 ---

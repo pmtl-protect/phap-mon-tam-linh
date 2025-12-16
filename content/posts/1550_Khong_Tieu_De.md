@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.475Z
+title: "Nói xấu người khác và tính toán chi li sẽ dẫn đến rò rỉ tài; học Phật niệm kinh, tâm hồn hướng thiện"
+date: 2025-12-16T01:10:59.141Z
 draft: false
 url: "/2025/03/noi-xau-nguoi-khac-va-tinh-toan-chi-li.html"
 ---

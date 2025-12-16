@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.194Z
+title: "Những vấn đề không hiểu thì đừng nên nói bừa"
+date: 2025-12-16T01:10:53.371Z
 draft: false
 url: "/2025/07/nhung-van-e-khong-hieu-thi-ung-nen-noi.html"
 ---

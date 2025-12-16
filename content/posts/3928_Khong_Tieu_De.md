@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.629Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.900Z
 draft: false
 url: "/2025/01/giac-mo-trong-giac-mo-theo-goc-nhin.html"
 ---

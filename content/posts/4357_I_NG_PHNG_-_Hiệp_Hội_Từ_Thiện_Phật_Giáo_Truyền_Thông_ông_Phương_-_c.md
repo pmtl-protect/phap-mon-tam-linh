@@ -1,6 +1,6 @@
 ---
-title: "ĐÀI ĐÔNG PHƯƠNG - Hiệp Hội Từ Thiện Phật Giáo Truyền Thông Đông Phương - Úc"
-date: 2025-12-15T22:19:51.770Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.811Z
 draft: false
 url: "/2025/12/ai-ong-phuong-hiep-hoi-tu-thien-phat.html"
 ---

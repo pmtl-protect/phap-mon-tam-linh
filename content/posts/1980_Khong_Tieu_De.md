@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.530Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.212Z
 draft: false
 url: "/2025/02/khai-thi-cua-bo-tat-na-tra.html"
 ---

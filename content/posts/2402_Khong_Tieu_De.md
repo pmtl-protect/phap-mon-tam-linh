@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.456Z
+title: "MỘT NGƯỜI KHÔNG TU TÂM GIỐNG NHƯ MỘT NGƯỜI GIÀ LEO DỐC"
+date: 2025-12-16T01:11:02.960Z
 draft: false
 url: "/2025/01/mot-nguoi-khong-tu-tam-giong-nhu-mot.html"
 ---

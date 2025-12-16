@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.389Z
+title: "Con cái học hành không tốt, không nghe lời, trên người có đứa trẻ mà mẹ cậu bé đã phá bỏ"
+date: 2025-12-16T01:11:12.246Z
 draft: false
 url: "/2025/12/con-cai-hoc-hanh-khong-tot-khong-nghe.html"
 ---

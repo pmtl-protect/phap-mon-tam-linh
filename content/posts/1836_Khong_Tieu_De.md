@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.170Z
+title: "Phát nguyện 1 kiếp tu thành sẽ không làm tăng thêm nghiệp lực của bản thân, nếu nhìn thấu mười hai n"
+date: 2025-12-16T01:11:00.616Z
 draft: false
 url: "/2024/10/phat-nguyen-1-kiep-tu-thanh-se-khong.html"
 ---

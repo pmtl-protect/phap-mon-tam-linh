@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.650Z
+title: "Bất kỳ điều gì không thuận lợi, đều cho thấy nghiệp chướng của mình rất nặng, phải học cách tiêu trừ"
+date: 2025-12-16T01:10:52.209Z
 draft: false
 url: "/2025/07/bat-ky-ieu-gi-khong-thuan-loi-eu-cho.html"
 ---

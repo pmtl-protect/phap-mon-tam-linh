@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.038Z
+title: "Khi bạn thả phóng sinh thì có thể mất 8 đến 10 năm mới có thể nhận được sự Phúc báo hồi đáp lại"
+date: 2025-12-16T01:10:54.716Z
 draft: false
 url: "/2025/06/khi-ban-tha-phong-sinh-thi-co-mat-8-en.html"
 ---

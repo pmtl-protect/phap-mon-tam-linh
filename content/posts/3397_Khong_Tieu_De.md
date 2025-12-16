@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.220Z
+title: "Mộng thấy các đồng tu của Pháp môn Tâm Linh đang thi Bạch Thoại Phật Pháp trên trời"
+date: 2025-12-16T01:11:08.209Z
 draft: false
 url: "/2025/09/mong-thay-cac-ong-tu-cua-phap-mon-tam.html"
 ---

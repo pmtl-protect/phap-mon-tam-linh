@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.094Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.648Z
 draft: false
 url: "/2024/11/ve-viec-di-doi-mo-truoc-hai-gio-chieu_6.html"
 ---

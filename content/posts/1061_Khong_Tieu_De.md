@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.151Z
+title: "Phản hồi từ các đồng tu: Đi phóng sinh về tránh được kiếp nạn , lái xe và người trong xe không hề hấ"
+date: 2025-12-16T01:10:57.066Z
 draft: false
 url: "/2024/12/phan-hoi-tu-cac-ong-tu-i-phong-sinh-ve.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.034Z
+title: "Trên thế gian này, bất cứ việc gì cũng cần chuẩn bị từ sớm.  Bồ Tát dạy chúng ta học Phật, chính là "
+date: 2025-12-16T01:11:00.380Z
 draft: false
 url: "/2025/05/tren-gian-nay-bat-cu-viec-gi-cung-can.html"
 ---

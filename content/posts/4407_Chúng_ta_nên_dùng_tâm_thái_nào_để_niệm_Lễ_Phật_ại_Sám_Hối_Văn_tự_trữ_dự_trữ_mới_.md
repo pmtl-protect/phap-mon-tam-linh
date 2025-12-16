@@ -1,6 +1,6 @@
 ---
-title: "Chúng ta nên dùng tâm thái nào để niệm Lễ Phật Đại Sám Hối Văn tự trữ (dự trữ) mới có thể đạt được hiệu quả tốt như nhau?"
-date: 2025-12-15T22:19:51.933Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.083Z
 draft: false
 url: "/2025/12/chung-ta-nen-dung-tam-thai-nao-e-niem.html"
 ---

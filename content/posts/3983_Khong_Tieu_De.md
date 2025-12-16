@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.757Z
+title: "Trong lòng rất minh bạch rất vui vẻ, chính là Tâm Quang Minh"
+date: 2025-12-16T01:11:11.131Z
 draft: false
 url: "/2025/10/trong-long-rat-minh-bach-rat-vui-ve.html"
 ---

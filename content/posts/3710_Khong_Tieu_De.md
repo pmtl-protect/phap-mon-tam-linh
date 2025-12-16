@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.083Z
+title: "Nếu thiếu trí tuệ hãy tụng nhiều Tâm Kinh, đừng lười biếng và ít nhìn vào điện thoại hơn"
+date: 2025-12-16T01:11:09.770Z
 draft: false
 url: "/2024/10/neu-thieu-tri-tue-hay-tung-nhieu-tam.html"
 ---

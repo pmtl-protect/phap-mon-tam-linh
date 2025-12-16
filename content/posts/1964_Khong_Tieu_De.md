@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.497Z
+title: "Trong trứng có chỉ máu, người phát nguyện ăn chay không được ăn"
+date: 2025-12-16T01:11:01.144Z
 draft: false
 url: "/2025/08/trong-trung-co-chi-mau-nguoi-phat.html"
 ---

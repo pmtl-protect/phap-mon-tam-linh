@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.625Z
+title: "Sau lưng bàn tán người khác là hai lưỡi, cần phải niệm Lễ Phật Đại Sám Hối Văn"
+date: 2025-12-16T01:10:55.777Z
 draft: false
 url: "/2025/05/sau-lung-ban-tan-nguoi-khac-la-hai-luoi.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.407Z
+title: "Nhiều người giả tu cả đời, có ích gì đâu? Vì vậy, muốn hiểu một người, muốn người đó tu tâm, trước h"
+date: 2025-12-16T01:10:53.778Z
 draft: false
 url: "/2025/06/nhieu-nguoi-gia-tu-ca-oi-co-ich-gi-au.html"
 ---

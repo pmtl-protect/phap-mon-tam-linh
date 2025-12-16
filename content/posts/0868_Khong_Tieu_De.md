@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.729Z
+title: "Hiện thân nói Pháp mà khoa trương, khoác lác, không những không có công đức, còn làm tăng tính kiêu "
+date: 2025-12-16T01:10:56.001Z
 draft: false
 url: "/2025/05/hien-than-noi-phap-ma-khoa-truong-khoac.html"
 ---

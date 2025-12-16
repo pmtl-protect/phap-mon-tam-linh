@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.647Z
+title: "Trước khi niệm Kinh Tâm Kinh, có thể cầu xin Quán Thế Âm Bồ Tát gia trì căn bản và khai mở trí huệ"
+date: 2025-12-16T01:10:54.203Z
 draft: false
 url: "/2025/06/truoc-khi-niem-kinh-tam-kinh-co-cau-xin.html"
 ---

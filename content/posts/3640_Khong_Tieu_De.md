@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.890Z
+title: "Người khác mắng ta , ta không mắng họ, 1 lần như vậy là 1 thiện; người khác làm hại ta, ta không làm"
+date: 2025-12-16T01:11:09.480Z
 draft: false
 url: "/2024/10/nguoi-khac-mang-ta-ta-khong-mang-ho-1.html"
 ---

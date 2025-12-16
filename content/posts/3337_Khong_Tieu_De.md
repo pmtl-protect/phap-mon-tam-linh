@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.077Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:07.916Z
 draft: false
 url: "/2025/09/nho-nguoi-khac-phong-sinh-chi-la-bo-thi.html"
 ---

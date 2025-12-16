@@ -1,6 +1,6 @@
 ---
-title: "Liên quan đến việc phát nguyện niệm 100.000 biến Giải kết chú cho nhiều loại bệnh, Phát nguyện cần tách riêng ."
-date: 2025-12-15T22:19:51.657Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.567Z
 draft: false
 url: "/2025/12/lien-quan-en-viec-phat-nguyen-niem.html"
 ---

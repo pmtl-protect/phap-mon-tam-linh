@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.842Z
+title: "Nghiệp chướng trên cơ thể giảm từ 55% xuống còn 30%, nghiệp chướng ít thì sẽ bình an"
+date: 2025-12-16T01:11:03.850Z
 draft: false
 url: "/2024/12/nghiep-chuong-tren-co-giam-tu-55-xuong.html"
 ---

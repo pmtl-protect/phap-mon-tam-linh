@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.577Z
+title: "Các Phật tử phải hành (rỗng) không, ngộ (rỗng) không, tích luỹ công đức mới có thể thành tựu Thánh q"
+date: 2025-12-16T01:11:05.104Z
 draft: false
 url: "/2024/11/cac-phat-tu-phai-hanh-rong-khong-ngo.html"
 ---

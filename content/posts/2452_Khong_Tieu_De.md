@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.575Z
+title: "Đừng tính toán, người tính không bằng trời tính"
+date: 2025-12-16T01:11:03.198Z
 draft: false
 url: "/2025/04/ung-tinh-toan-nguoi-tinh-khong-bang.html"
 ---

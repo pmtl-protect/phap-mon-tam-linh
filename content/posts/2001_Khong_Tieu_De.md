@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.569Z
+title: "Tại sao sát sinh nghiệp chướng lại đặc biệt nặng nề như vậy"
+date: 2025-12-16T01:11:01.290Z
 draft: false
 url: "/2024/11/tai-sao-sat-sinh-nghiep-chuong-lai-ac.html"
 ---

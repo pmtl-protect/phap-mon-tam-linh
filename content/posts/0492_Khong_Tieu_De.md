@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.722Z
+title: "Trong cuộc sống đừng nên lãng phí tiền tài"
+date: 2025-12-16T01:10:54.310Z
 draft: false
 url: "/2025/06/trong-cuoc-song-ung-nen-lang-phi-tien.html"
 ---

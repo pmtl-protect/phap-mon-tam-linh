@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.593Z
+title: "Mỗi vị Bồ Tát có một cảnh giới khác nhau.  Mỗi vị Bồ Tát đều có nền tảng khác nhau để trở thành Phật"
+date: 2025-12-16T01:11:01.336Z
 draft: false
 url: "/2025/02/moi-vi-bo-tat-co-mot-canh-gioi-khac.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.414Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:59.056Z
 draft: false
 url: "/2024/11/luu-y-va-cac-van-e-thuong-gap-ve-kinh.html"
 ---

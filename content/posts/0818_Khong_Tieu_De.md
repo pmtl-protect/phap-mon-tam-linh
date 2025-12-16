@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.629Z
+title: "Bồ Tát không thể thay đổi nhân quả, chỉ có thể dựa vào chính mình"
+date: 2025-12-16T01:10:55.793Z
 draft: false
 url: "/2025/05/bo-tat-khong-thay-oi-nhan-qua-chi-co.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.091Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.578Z
 draft: false
 url: "/2025/08/hoc-phat-lam-nguoi-can-hoc-cho-uoc-bon.html"
 ---

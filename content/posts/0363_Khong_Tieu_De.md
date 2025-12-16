@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.389Z
+title: "Niệm tụng kinh văn tiếng Anh không tốt bằng tiếng Trung"
+date: 2025-12-16T01:10:53.748Z
 draft: false
 url: "/2025/06/niem-tung-kinh-van-tieng-anh-khong-tot.html"
 ---

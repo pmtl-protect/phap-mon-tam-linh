@@ -1,6 +1,6 @@
 ---
-title: "Một phong bì đỏ có thể cho vào bao nhiêu Ngôi Nhà nhỏ và Kinh văn tự tu."
-date: 2025-12-15T22:19:51.646Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.548Z
 draft: false
 url: "/2025/12/mot-phong-bi-o-co-cho-vao-bao-nhieu.html"
 ---

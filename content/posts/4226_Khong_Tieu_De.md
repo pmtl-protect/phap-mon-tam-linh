@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.370Z
+title: "Khí hư, Âm khí nặng nên niệm nhiều Chú Đại Bi, phơi nắng nhiều"
+date: 2025-12-16T01:11:12.213Z
 draft: false
 url: "/2025/12/khi-hu-am-khi-nang-nen-niem-nhieu-chu.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "CÓ THỂ NIỆM KINH Ở TRÊN GIƯỜNG ĐƯỢC KHÔNG ?"
-date: 2025-12-15T22:19:51.847Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.959Z
 draft: false
 url: "/2025/12/co-niem-kinh-o-tren-giuong-uoc-khong.html"
 ---

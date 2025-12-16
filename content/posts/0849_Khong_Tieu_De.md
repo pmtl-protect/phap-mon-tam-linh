@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.690Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.921Z
 draft: false
 url: "/2025/05/cac-tang-troi-trong-6-coi-luc-ao-van-se_15.html"
 ---

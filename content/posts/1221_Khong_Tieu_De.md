@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.529Z
+title: "Duy trì năng lượng chính là giữ giới mỗi ngày, học Phật mỗi ngày, tinh tấn mỗi ngày"
+date: 2025-12-16T01:10:57.695Z
 draft: false
 url: "/2025/04/duy-tri-nang-luong-chinh-la-giu-gioi.html"
 ---

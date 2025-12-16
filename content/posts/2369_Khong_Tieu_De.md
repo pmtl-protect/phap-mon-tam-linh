@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.382Z
+title: "Tiền của người khác chuyển vào tài khoản của mình sẽ tiêu tán phước báo của chính mình"
+date: 2025-12-16T01:11:02.761Z
 draft: false
 url: "/2025/01/tien-cua-nguoi-khac-chuyen-vao-tai.html"
 ---

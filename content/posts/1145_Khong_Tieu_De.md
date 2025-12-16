@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.367Z
+title: "Chồng tôi bị tai nạn rơi từ tầng 5, tính mạng nguy kịch, nhờ sự từ bi và linh ứng của Quán Thế Âm Bồ"
+date: 2025-12-16T01:10:57.402Z
 draft: false
 url: "/2025/04/chong-toi-bi-tai-nan-roi-tu-tang-5-tinh.html"
 ---

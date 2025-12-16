@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.856Z
+title: "Sư Phụ vô cùng cảm ơn các con. Sư Phụ đang ở trên Trời đợi các con trở về nhà"
+date: 2025-12-16T01:11:09.420Z
 draft: false
 url: "/2025/11/su-phu-vo-cung-cam-on-cac-con-su-phu.html"
 ---

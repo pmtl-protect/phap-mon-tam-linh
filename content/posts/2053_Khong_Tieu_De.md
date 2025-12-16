@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.667Z
+title: "Hôm nay thấy mọi người nghe giảng rất vui, sư phụ Chân tướng của nhân quả luân hồi"
+date: 2025-12-16T01:11:01.490Z
 draft: false
 url: "/2025/02/hom-nay-thay-moi-nguoi-nghe-giang-rat.html"
 ---

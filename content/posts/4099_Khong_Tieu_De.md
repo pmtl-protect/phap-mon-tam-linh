@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.055Z
+title: "Nếu không siêng năng, tôi nói cho bạn biết, bạn sẽ không thể thoát khỏi khi tai họa ập đến"
+date: 2025-12-16T01:11:11.584Z
 draft: false
 url: "/2024/12/neu-khong-sieng-nang-toi-noi-cho-ban.html"
 ---

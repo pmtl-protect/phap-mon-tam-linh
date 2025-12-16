@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.564Z
+title: "Làm thế nào để hiểu khai thị của Quan Đế Bồ Tát: “Người ăn mặn không đến, người giữ giới không nghiê"
+date: 2025-12-16T01:10:54.091Z
 draft: false
 url: "/2025/06/lam-nao-e-hieu-khai-thi-cua-quan-e-bo.html"
 ---

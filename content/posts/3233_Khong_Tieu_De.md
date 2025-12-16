@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.593Z
+title: "Sư phụ nói với quý vị, học Phật chính là học làm người"
+date: 2025-12-16T01:11:06.755Z
 draft: false
 url: "/2025/04/su-phu-noi-voi-quy-vi-hoc-phat-chinh-la.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.351Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.377Z
 draft: false
 url: "/2025/04/loi-khai-thi-cua-phap-than-ai-truong-ve.html"
 ---

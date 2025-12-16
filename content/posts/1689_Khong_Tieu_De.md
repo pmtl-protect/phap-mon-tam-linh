@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.847Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:59.837Z
 draft: false
 url: "/2025/02/hat-hoi-khi-co-nguoi-noi-xau-minh-la.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.370Z
+title: "Người học Phật phải hiểu rằng, thành công nhỏ dựa vào trí tuệ, thành công lớn dựa vào đạo đức"
+date: 2025-12-16T01:10:53.710Z
 draft: false
 url: "/2025/06/nguoi-hoc-phat-phai-hieu-rang-thanh.html"
 ---

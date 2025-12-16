@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.761Z
+title: "Về việc \"Hai hồn hai vía đầu thai làm tôm hùm\"; Tôm hùm có tính linh rất mạnh, ăn vào bị tổn thọ ngh"
+date: 2025-12-16T01:11:01.665Z
 draft: false
 url: "/2025/08/ve-viec-hai-hon-hai-via-au-thai-lam-tom.html"
 ---

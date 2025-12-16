@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.474Z
+title: "Trong thời kỳ mạt pháp, muốn làm Bồ Tát thì chỉ có cách độ người; nhân gian chỉ là nơi tạm trú"
+date: 2025-12-16T01:10:57.593Z
 draft: false
 url: "/2025/04/trong-thoi-ky-mat-phap-muon-lam-bo-tat.html"
 ---

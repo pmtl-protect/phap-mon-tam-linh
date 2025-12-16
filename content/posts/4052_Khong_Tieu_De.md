@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.909Z
+title: "KHÔNG NÊN ĐEO TRANG SỨC BẰNG PHA LÊ…"
+date: 2025-12-16T01:11:11.413Z
 draft: false
 url: "/2025/01/khong-nen-eo-trang-suc-bang-pha-le.html"
 ---

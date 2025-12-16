@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.308Z
+title: "Chào các bạn, hôm nay chúng ta tiếp tục nói về \"Bạch Thoại Phật Pháp\""
+date: 2025-12-16T01:10:55.066Z
 draft: false
 url: "/2025/06/chao-cac-ban-hom-nay-chung-ta-tiep-tuc.html"
 ---

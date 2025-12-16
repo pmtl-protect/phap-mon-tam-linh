@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.384Z
+title: "Người học Phật lấy mình làm gương, càng dễ độ hóa người nhà học Phật"
+date: 2025-12-16T01:10:53.738Z
 draft: false
 url: "/2025/06/nguoi-hoc-phat-lay-minh-lam-guong-cang.html"
 ---

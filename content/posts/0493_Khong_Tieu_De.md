@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.738Z
+title: "Làm sao để sám hối nghiệp chướng trong tình cảm, phải nói với Bồ Tát trước rồi tụng kinh mới có thể "
+date: 2025-12-16T01:10:54.314Z
 draft: false
 url: "/2025/06/lam-sao-e-sam-hoi-nghiep-chuong-trong.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.473Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:08.642Z
 draft: false
 url: "/2024/10/cau-hoi-ve-cach-tung-kinh-trong-le.html"
 ---

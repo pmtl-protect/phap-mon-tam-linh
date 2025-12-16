@@ -1,6 +1,6 @@
 ---
-title: "NIỆM NGÔI NHÀ NHỎ KHÔNG TẬP TRUNG CÒN HƠN LÀ KHÔNG NIỆM"
-date: 2025-12-15T22:19:51.845Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.955Z
 draft: false
 url: "/2025/12/niem-ngoi-nha-nho-khong-tap-trung-con.html"
 ---

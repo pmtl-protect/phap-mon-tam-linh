@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.694Z
+title: "Mỗi người đều chỉ có một lần được sống, không ai có sinh mệnh cao quý hơn người khác, cũng không ai "
+date: 2025-12-16T01:11:05.358Z
 draft: false
 url: "/2025/04/moi-nguoi-eu-chi-co-mot-lan-uoc-song.html"
 ---

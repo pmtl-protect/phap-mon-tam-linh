@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.400Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.257Z
 draft: false
 url: "/2025/05/ban-ve-binh-phap-ton-tu-va-ly-thuyet-am.html"
 ---

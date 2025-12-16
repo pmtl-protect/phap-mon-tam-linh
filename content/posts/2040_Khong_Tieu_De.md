@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.643Z
+title: "Trong kỳ kinh nguyệt thì không nên đụng vào bàn thờ Phật, Hộ Pháp Thần không cho phép chạm vào"
+date: 2025-12-16T01:11:01.443Z
 draft: false
 url: "/2025/08/trong-ky-kinh-nguyet-thi-khong-nen-ung.html"
 ---

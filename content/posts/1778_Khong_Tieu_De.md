@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.030Z
+title: "Hãy kiên nhẫn khi trả lời các câu hỏi của đồng tu; Việc làm công đức tùy thuộc vào đặc điểm cá nhân "
+date: 2025-12-16T01:11:00.372Z
 draft: false
 url: "/2025/05/hay-kien-nhan-khi-tra-loi-cac-cau-hoi.html"
 ---

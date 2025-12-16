@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.324Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.098Z
 draft: false
 url: "/2025/05/nguoi-ac-biet-so-lanh-thi-phai-lam-sao.html"
 ---

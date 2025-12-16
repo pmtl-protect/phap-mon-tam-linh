@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.804Z
+title: "ĐỪNG KHÓC KHI NIỆM KINH, BỒ TÁT THÍCH NHỮNG ĐỨA TRẺ KIÊN CƯỜNG VÀ KHAI NGỘ"
+date: 2025-12-16T01:11:01.742Z
 draft: false
 url: "/2025/02/ung-khoc-khi-niem-kinh-bo-tat-thich.html"
 ---

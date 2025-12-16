@@ -1,6 +1,6 @@
 ---
-title: "NGƯỜI CẦN KINH NÓNG VỘI MUỐN NNN GẤP THÌ CẦU XIN BỒ TÁT NHƯ THẾ NÀO ?"
-date: 2025-12-15T22:19:51.809Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.886Z
 draft: false
 url: "/2025/12/nguoi-can-kinh-nong-voi-muon-nnn-gap.html"
 ---

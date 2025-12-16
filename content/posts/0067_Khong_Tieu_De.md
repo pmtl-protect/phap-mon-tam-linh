@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.646Z
+title: "Người học Phật không thể có tâm đố kỵ"
+date: 2025-12-16T01:10:52.201Z
 draft: false
 url: "/2025/07/nguoi-hoc-phat-khong-co-tam-o-ky.html"
 ---

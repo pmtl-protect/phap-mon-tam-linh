@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.055Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.751Z
 draft: false
 url: "/2025/06/tuong-phat-tung-e-lam-vat-trang-tri.html"
 ---

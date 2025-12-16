@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.851Z
+title: "Hiểu thấu đáo được \"Tâm Kinh\" là việc vô cùng khó khăn"
+date: 2025-12-16T01:11:03.865Z
 draft: false
 url: "/2025/04/hieu-thau-ao-uoc-tam-kinh-la-viec-vo.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.337Z
+title: "Sư phụ thành Phật là phổ độ người hữu duyên"
+date: 2025-12-16T01:10:55.123Z
 draft: false
 url: "/2025/05/su-phu-thanh-phat-la-pho-o-nguoi-huu.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Về vấn đề có ý niệm xấu khi niệm kinh"
-date: 2025-12-15T22:19:51.941Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.100Z
 draft: false
 url: "/2025/12/ve-van-e-co-y-niem-xau-khi-niem-kinh.html"
 ---

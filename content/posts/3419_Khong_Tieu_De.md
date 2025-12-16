@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.273Z
+title: "HẬU QUẢ VIỆC TRÌ HOÃN NIỆM NNN CHO NGƯỜI CẦN KINH CỦA MÌNH"
+date: 2025-12-16T01:11:08.311Z
 draft: false
 url: "/2025/09/hau-qua-viec-tri-hoan-niem-nnn-cho.html"
 ---

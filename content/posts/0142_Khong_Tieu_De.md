@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.818Z
+title: "Không được dùng tên của Bồ Tát làm tên Wechat"
+date: 2025-12-16T01:10:52.538Z
 draft: false
 url: "/2025/07/khong-uoc-dung-ten-cua-bo-tat-lam-ten.html"
 ---

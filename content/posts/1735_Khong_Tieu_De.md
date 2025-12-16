@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.939Z
+title: "Bé nghịch ngợm, nên cầu nguyện với Bồ Tát như thế nào ? Vì sao không nên tùy tiện nói “Hồi hướng”"
+date: 2025-12-16T01:11:00.083Z
 draft: false
 url: "/2025/02/be-nghich-ngom-nen-cau-nguyen-voi-bo.html"
 ---

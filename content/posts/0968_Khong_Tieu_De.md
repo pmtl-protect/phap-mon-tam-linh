@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.928Z
+title: "Khi gặp nghiệp chướng nặng hoặc khổ nạn lớn, nên phát nguyện số lượng lớn Ngôi Nhà Nhỏ"
+date: 2025-12-16T01:10:56.536Z
 draft: false
 url: "/2025/05/khi-gap-nghiep-chuong-nang-hoac-kho-nan.html"
 ---

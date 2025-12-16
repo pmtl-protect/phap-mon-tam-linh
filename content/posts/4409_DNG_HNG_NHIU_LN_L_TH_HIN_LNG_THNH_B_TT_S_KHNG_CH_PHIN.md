@@ -1,6 +1,6 @@
 ---
-title: "DÂNG HƯƠNG NHIỀU LẦN LÀ THỂ HIỆN LÒNG THÀNH, BỒ TÁT SẼ KHÔNG CHÊ PHIỀN."
-date: 2025-12-15T22:19:51.937Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.091Z
 draft: false
 url: "/2025/12/dang-huong-nhieu-lan-la-hien-long-thanh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.011Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.474Z
 draft: false
 url: "/2025/03/bat-luan-quy-vi-quy-y-ai-lam-su-phu.html"
 ---

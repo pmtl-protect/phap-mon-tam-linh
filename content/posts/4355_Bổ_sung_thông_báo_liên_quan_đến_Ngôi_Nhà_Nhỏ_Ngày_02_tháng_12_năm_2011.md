@@ -1,6 +1,6 @@
 ---
-title: "Bổ sung thông báo liên quan đến \"Ngôi Nhà Nhỏ\" ( Ngày 02 tháng 12 năm 2011 )"
-date: 2025-12-15T22:19:51.765Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.800Z
 draft: false
 url: "/2025/12/bo-sung-thong-bao-lien-quan-en-ngoi-nha.html"
 ---

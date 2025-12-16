@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.118Z
+title: "Cộng nghiệp của người thân; giúp đỡ người khác phải hiểu Trung Dung Chi Đạo"
+date: 2025-12-16T01:10:53.211Z
 draft: false
 url: "/2025/07/cong-nghiep-cua-nguoi-than-giup-o-nguoi.html"
 ---

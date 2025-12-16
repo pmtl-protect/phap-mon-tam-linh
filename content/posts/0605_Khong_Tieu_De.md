@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.146Z
+title: "🇻🇳 Người học Phật không cần tranh cãi với Nhân Quả"
+date: 2025-12-16T01:10:54.809Z
 draft: false
 url: "/2025/06/nguoi-hoc-phat-khong-can-tranh-cai-voi.html"
 ---

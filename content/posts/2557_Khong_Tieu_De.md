@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.795Z
+title: "Phải thực lòng hiếu thảo, dùng tâm mình cảm động Quán Thế Âm Bồ Tát để cứu cha"
+date: 2025-12-16T01:11:03.765Z
 draft: false
 url: "/2025/01/phai-thuc-long-hieu-thao-dung-tam-minh.html"
 ---

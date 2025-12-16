@@ -1,6 +1,6 @@
 ---
-title: "Nhìn thấy động vật chết trên đường, khi niệm Vãng Sanh Chú có cần cầu nguyện cụ thể không?"
-date: 2025-12-15T22:19:51.992Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.199Z
 draft: false
 url: "/2025/12/nhin-thay-ong-vat-chet-tren-uong-khi_01307919643.html"
 ---

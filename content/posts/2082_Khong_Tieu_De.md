@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.721Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.592Z
 draft: false
 url: "/2024/11/oc-bach-thoai-phat-phap-nguoi-nghe-cang.html"
 ---

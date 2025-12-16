@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.098Z
+title: "Làm sao để hiểu lời khai thị của Bồ tát Phổ Hiền rằng “tình yêu là hạt giống của luân hồi”"
+date: 2025-12-16T01:11:00.510Z
 draft: false
 url: "/2025/03/lam-sao-e-hieu-loi-khai-thi-cua-bo-tat.html"
 ---

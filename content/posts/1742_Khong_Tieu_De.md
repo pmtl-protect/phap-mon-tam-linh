@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.952Z
+title: "Khai thị của Ngài Thích Ca Mâu Ni Phật về các sáng kiến từ thiện và gây quỹ từ thiện"
+date: 2025-12-16T01:11:00.188Z
 draft: false
 url: "/2024/11/khai-thi-cua-ngai-thich-ca-mau-ni-phat.html"
 ---

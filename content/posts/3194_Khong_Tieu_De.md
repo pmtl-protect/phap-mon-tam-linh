@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.513Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:06.607Z
 draft: false
 url: "/2025/09/ung-tuy-tien-cho-nguoi-khac-cong-uc.html"
 ---

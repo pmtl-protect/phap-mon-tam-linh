@@ -1,6 +1,6 @@
 ---
-title: "LÀM SAO ĐỂ TĂNG CHẤT LƯỢNG NGÔI NHÀ NHỎ ?"
-date: 2025-12-15T22:19:51.818Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.902Z
 draft: false
 url: "/2025/12/lam-sao-e-tang-chat-luong-ngoi-nha-nho.html"
 ---

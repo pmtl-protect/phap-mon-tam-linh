@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.680Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.117Z
 draft: false
 url: "/2025/03/viec-tung-tam-kinh-cho-nguoi-chua-tin.html"
 ---

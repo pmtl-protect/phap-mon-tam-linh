@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.198Z
+title: "Chúng ta biết rằng hôm nay mình sống không chỉ vì bản thân"
+date: 2025-12-16T01:10:54.899Z
 draft: false
 url: "/2025/06/chung-ta-biet-rang-hom-nay-minh-song.html"
 ---

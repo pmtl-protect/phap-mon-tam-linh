@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.760Z
+title: "Ý kiến của người khác là chân lý trên đường đời của chúng ta"
+date: 2025-12-16T01:10:59.641Z
 draft: false
 url: "/2025/05/y-kien-cua-nguoi-khac-la-chan-ly-tren.html"
 ---

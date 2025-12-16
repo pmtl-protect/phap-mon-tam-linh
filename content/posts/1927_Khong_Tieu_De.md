@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.414Z
+title: "BÁT CHÁNH ĐẠO : thực chất là tám phương pháp mà Phật và Bồ Tát dạy chúng ta để tiêu trừ phiền não"
+date: 2025-12-16T01:11:00.992Z
 draft: false
 url: "/2025/02/bat-chanh-ao-thuc-chat-la-tam-phuong.html"
 ---

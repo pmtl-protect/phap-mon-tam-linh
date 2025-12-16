@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.694Z
+title: "Giấc mơ về việc có người nhắc nhở đồng tu làm sai khi độ người; không nên vì lợi ích cá nhân mà độ n"
+date: 2025-12-16T01:11:03.457Z
 draft: false
 url: "/2024/10/giac-mo-ve-viec-co-nguoi-nhac-nho-ong.html"
 ---

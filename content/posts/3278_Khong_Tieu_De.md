@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.948Z
+title: "Nhiều người tu cả đời, nhưng ngay cả người cũng chưa chắc đã làm được"
+date: 2025-12-16T01:11:07.599Z
 draft: false
 url: "/2024/11/nhieu-nguoi-tu-ca-oi-nhung-ngay-ca.html"
 ---

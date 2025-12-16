@@ -1,6 +1,6 @@
 ---
-title: "QUY TRÌNH ĐỐT NGÔI NHÀ NHỎ"
-date: 2025-12-15T22:19:51.805Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.878Z
 draft: false
 url: "/2025/12/quy-trinh-ot-ngoi-nha-nho.html"
 ---

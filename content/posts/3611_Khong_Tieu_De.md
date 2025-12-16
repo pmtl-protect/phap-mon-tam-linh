@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.824Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.364Z
 draft: false
 url: "/2025/11/luc-ia-bo-tat-that-ia-bo-tat-giang-tran.html"
 ---

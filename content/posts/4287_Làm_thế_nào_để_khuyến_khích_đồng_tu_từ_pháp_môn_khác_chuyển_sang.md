@@ -1,6 +1,6 @@
 ---
-title: "Làm thế nào để khuyến khích đồng tu từ pháp môn khác chuyển sang?"
-date: 2025-12-15T22:19:51.609Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.472Z
 draft: false
 url: "/2025/12/lam-nao-e-khuyen-khich-ong-tu-tu-phap.html"
 ---

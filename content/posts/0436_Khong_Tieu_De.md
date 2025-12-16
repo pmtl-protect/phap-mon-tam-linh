@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.560Z
+title: "Tốt nhất là nên khấn cầu ở bàn thờ Phật trước rồi hãy đi phóng sinh"
+date: 2025-12-16T01:10:54.083Z
 draft: false
 url: "/2025/06/tot-nhat-la-nen-khan-cau-o-ban-tho-phat.html"
 ---

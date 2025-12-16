@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.825Z
+title: "Chỉ có tin tưởng mới được cứu, Phật độ người hữu duyên, người vô duyên trước tiên phải khiến họ có d"
+date: 2025-12-16T01:10:52.551Z
 draft: false
 url: "/2025/06/chi-co-tin-tuong-moi-uoc-cuu-phat-o.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Sám hối vốn đã nằm trong Tam Đại Pháp Bảo của Pháp Môn Tâm Linh"
-date: 2025-12-15T22:19:51.589Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.440Z
 draft: false
 url: "/2025/12/sam-hoi-von-nam-trong-tam-ai-phap-bao.html"
 ---

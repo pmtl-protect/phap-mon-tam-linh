@@ -1,6 +1,6 @@
 ---
-title: "TỔNG HỢP KHAI THỊ : ĂN CHAY, NIỆM KINH, PHÓNG SINH"
-date: 2025-12-15T22:19:51.727Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.721Z
 draft: false
 url: "/2025/12/tong-hop-khai-thi-chay-niem-kinh-phong.html"
 ---

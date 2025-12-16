@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.155Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.947Z
 draft: false
 url: "/2025/11/hoi-123-thua-thay-neu-con-quyengop-tien.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.550Z
+title: "Giấc mơ nhắc nhở phải ra ngoài hoằng Pháp độ người; vứt bỏ tài liệu hoằng Pháp sẽ bị trừng phạt"
+date: 2025-12-16T01:10:54.062Z
 draft: false
 url: "/2025/06/giac-mo-nhac-nho-phai-ra-ngoai-hoang.html"
 ---

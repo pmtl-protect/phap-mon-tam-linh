@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.958Z
+title: "Chia sẻ về sự linh nghiệm khi Nam Kinh Bồ Tát giúp đỡ làm hài hòa mối quan hệ giữa các cá nhân"
+date: 2025-12-16T01:10:56.669Z
 draft: false
 url: "/2025/05/chia-se-ve-su-linh-nghiem-khi-nam-kinh.html"
 ---

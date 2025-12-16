@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.102Z
+title: "Người học Phật, phải biết tự trách mình, phải thường xuyên sinh tâm hổ thẹn, phải nghĩ rằng tôi rất "
+date: 2025-12-16T01:10:53.178Z
 draft: false
 url: "/2025/06/nguoi-hoc-phat-phai-biet-tu-trach-minh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.527Z
+title: "Lời Sư Phụ dạy: Bồ Tát chưa bao giờ quên những đứa trẻ chịu khổ còn đang ở nhân gian"
+date: 2025-12-16T01:10:57.691Z
 draft: false
 url: "/2025/04/loi-su-phu-day-bo-tat-chua-bao-gio-quen.html"
 ---

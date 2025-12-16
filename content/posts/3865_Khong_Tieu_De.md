@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.487Z
+title: "Ngày mùng một Tết không nên giặt quần, sẽ tổn thất tài chính"
+date: 2025-12-16T01:11:10.505Z
 draft: false
 url: "/2025/01/ngay-mung-mot-tet-khong-nen-giat-quan.html"
 ---

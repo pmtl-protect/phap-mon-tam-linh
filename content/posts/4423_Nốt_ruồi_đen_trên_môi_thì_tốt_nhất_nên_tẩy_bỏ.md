@@ -1,6 +1,6 @@
 ---
-title: "Nốt ruồi đen trên môi thì tốt nhất nên tẩy bỏ."
-date: 2025-12-15T22:19:51.970Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.159Z
 draft: false
 url: "/2025/12/not-ruoi-en-tren-moi-thi-tot-nhat-nen.html"
 ---

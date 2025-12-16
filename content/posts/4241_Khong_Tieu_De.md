@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.407Z
+title: "KINH BÀI TẬP HÀNG NGÀY SẼ XÁC ĐỊNH CÔNG ĐỨC THEO SỐ LẦN ĐÃ ĐỊNH, NẾU KHÔNG ĐỊNH SỐ LẦN THÌ CÔNG ĐỨC "
+date: 2025-12-16T01:11:12.274Z
 draft: false
 url: "/2025/12/kinh-bai-tap-hang-ngay-se-xac-inh-cong.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.688Z
+title: "Thiết lập Quan Âm Đường tốt nhất nên đăng ký với Ban Tổ Chức Hoằng Pháp của Đài Đông Phương"
+date: 2025-12-16T01:11:11.027Z
 draft: false
 url: "/2025/10/thiet-lap-quan-am-uong-tot-nhat-nen-ang.html"
 ---

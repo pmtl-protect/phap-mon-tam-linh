@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.121Z
+title: "Đối với đại đa số người có căn cơ học Phật hạn chế và ít tiếp xúc với giáo lý, việc thấu hiểu ý nghĩ"
+date: 2025-12-16T01:10:56.997Z
 draft: false
 url: "/2025/05/oi-voi-ai-so-nguoi-co-can-co-hoc-phat_3.html"
 ---

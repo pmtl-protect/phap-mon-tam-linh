@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.202Z
+title: "Cả đời người đều sống trong sự hối hận. Đôi khi, khi người thân còn sống, chúng ta lại không biết tậ"
+date: 2025-12-16T01:10:54.903Z
 draft: false
 url: "/2025/06/ca-oi-nguoi-eu-song-trong-su-hoi-han-oi.html"
 ---

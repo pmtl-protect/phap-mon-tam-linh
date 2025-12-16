@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.581Z
+title: "Khi tụng kinh ở bên ngoài nên nói với Quán Thế Âm Bồ Tát"
+date: 2025-12-16T01:10:52.072Z
 draft: false
 url: "/2024/11/khi-tung-kinh-o-ben-ngoai-nen-noi-voi.html"
 ---

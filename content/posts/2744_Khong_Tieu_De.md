@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.248Z
+title: "Đời người có một khuyết điểm lớn nhất, đó chính là nổi giận"
+date: 2025-12-16T01:11:04.664Z
 draft: false
 url: "/2025/02/oi-nguoi-co-mot-khuyet-iem-lon-nhat-o.html"
 ---

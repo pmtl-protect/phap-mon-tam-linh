@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.116Z
+title: "mỗi ngày niệm 7 biến Chú Đại Bi cho con cái, có thể bảo hộ con cái học hành thông minh, gia đình bìn"
+date: 2025-12-16T01:10:56.985Z
 draft: false
 url: "/2025/02/moi-ngay-niem-7-bien-chu-ai-bi-cho-con.html"
 ---

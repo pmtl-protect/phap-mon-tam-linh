@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.488Z
+title: "Trên thế gian này, chỉ cần quý vị là một người tu hành, thì sẽ không có ai là hoàn hảo"
+date: 2025-12-16T01:10:57.619Z
 draft: false
 url: "/2025/04/tren-gian-nay-chi-can-quy-vi-la-mot.html"
 ---

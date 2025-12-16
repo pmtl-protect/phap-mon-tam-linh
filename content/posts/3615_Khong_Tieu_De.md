@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.833Z
+title: "Về việc ăn chung với gia đình, không thể ăn hoàn toàn chay, nếu không có điều kiện thì nên thuận the"
+date: 2025-12-16T01:11:09.381Z
 draft: false
 url: "/2025/02/ve-viec-chung-voi-gia-inh-khong-an-hoan.html"
 ---

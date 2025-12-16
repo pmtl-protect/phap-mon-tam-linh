@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.967Z
+title: "Ngôi Nhà Nhỏ phải do chính người đọc kinh ký tên. Chấm đỏ có thể cho người khác chấm thế"
+date: 2025-12-16T01:11:09.614Z
 draft: false
 url: "/2024/10/ngoi-nha-nho-phai-do-chinh-nguoi-oc.html"
 ---

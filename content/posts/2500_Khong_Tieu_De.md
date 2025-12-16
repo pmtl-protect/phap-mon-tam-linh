@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.670Z
+title: "Người bị hôi miệng hoặc hơi thở có mùi thì nên niệm kinh thế nào; trước khi niệm kinh có thể nhai kẹ"
+date: 2025-12-16T01:11:03.406Z
 draft: false
 url: "/2025/01/nguoi-bi-hoi-mieng-hoac-hoi-tho-co-mui.html"
 ---

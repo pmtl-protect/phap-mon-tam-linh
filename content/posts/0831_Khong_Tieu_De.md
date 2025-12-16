@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.656Z
+title: "Tâm thái của một người quyết định số phận của người đó. Nhiều người nói rằng tâm thái tốt sẽ dẫn đến"
+date: 2025-12-16T01:10:55.848Z
 draft: false
 url: "/2025/05/tam-thai-cua-mot-nguoi-quyet-inh-so.html"
 ---

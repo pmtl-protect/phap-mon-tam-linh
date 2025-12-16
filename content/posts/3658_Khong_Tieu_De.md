@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.930Z
+title: "Phật quang xuyên thấu mọi nơi, chiếu rọi trong ngoài, gia trì khắp chốn"
+date: 2025-12-16T01:11:09.548Z
 draft: false
 url: "/2025/02/phat-quang-xuyen-thau-moi-noi-chieu-roi.html"
 ---

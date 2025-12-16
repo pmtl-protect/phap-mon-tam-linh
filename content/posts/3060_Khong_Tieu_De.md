@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.097Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.994Z
 draft: false
 url: "/2025/04/nhieu-nguoi-thuong-noi-toi-khong-can.html"
 ---

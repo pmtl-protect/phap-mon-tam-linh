@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.687Z
+title: "Vào mỗi dịp lễ lớn của Bồ Tát Quán Thế Âm, trên trời dưới đất đều vô cùng hoan hỷ, vô cùng vui vẻ"
+date: 2025-12-16T01:11:09.127Z
 draft: false
 url: "/2025/03/vao-moi-dip-le-lon-cua-bo-tat-quan-am.html"
 ---

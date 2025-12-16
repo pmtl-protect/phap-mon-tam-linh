@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.648Z
+title: "Có thể trực tiếp in tên trên ngôi nhà nhỏ và kinh văn tự tu"
+date: 2025-12-16T01:11:01.453Z
 draft: false
 url: "/2024/11/co-truc-tiep-in-ten-tren-ngoi-nha-nho.html"
 ---

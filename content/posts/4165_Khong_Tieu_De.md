@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.201Z
+title: "Nghiệp ai người đó gánh, công đức của ai người đó tự hưởng, ai ăn cơm người đó no"
+date: 2025-12-16T01:11:11.909Z
 draft: false
 url: "/2024/11/nghiep-ai-nguoi-o-ganh-cong-uc-cua-ai.html"
 ---

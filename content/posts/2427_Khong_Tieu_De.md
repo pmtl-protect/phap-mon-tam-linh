@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.519Z
+title: "Đức Phật khi xưa trong lúc hoằng pháp đã phải chịu vô số sự vu khống, phỉ báng và đàn áp, nhưng ngài"
+date: 2025-12-16T01:11:03.095Z
 draft: false
 url: "/2025/05/uc-phat-khi-xua-trong-luc-hoang-phap.html"
 ---

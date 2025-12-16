@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.985Z
+title: "Một số Phật tử có điều kiện kinh tế không tốt, thực ra chỉ cần quý vị phát tâm chân thành, dù chỉ ph"
+date: 2025-12-16T01:11:04.246Z
 draft: false
 url: "/2025/03/mot-so-phat-tu-co-ieu-kien-kinh-te_58.html"
 ---

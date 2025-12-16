@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.577Z
+title: "Đọc nhiều Bạch Thoại Phật Pháp Có Thể Nhanh Chóng Tiêu Trừ Nghiệp Cũ"
+date: 2025-12-16T01:11:03.202Z
 draft: false
 url: "/2025/01/oc-nhieu-bach-thoai-phat-phap-co-nhanh.html"
 ---

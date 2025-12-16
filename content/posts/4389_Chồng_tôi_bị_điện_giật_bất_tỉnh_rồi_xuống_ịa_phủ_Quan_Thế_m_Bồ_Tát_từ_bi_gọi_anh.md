@@ -1,6 +1,6 @@
 ---
-title: "Chồng tôi bị điện giật bất tỉnh rồi xuống Địa phủ, Quan Thế Âm Bồ Tát từ bi gọi anh ấy trở về nhân gian"
-date: 2025-12-15T22:19:51.865Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.000Z
 draft: false
 url: "/2025/12/chong-toi-bi-ien-giat-bat-tinh-roi_02008191524.html"
 ---

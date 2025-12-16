@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.282Z
+title: "Không sử dụng hình ảnh Bồ Tát khi làm tranh  Phật Ngôn Phật Ngữ , vì như vậy là thiếu Tôn Kính"
+date: 2025-12-16T01:11:12.091Z
 draft: false
 url: "/2024/10/khong-su-dung-hinh-anh-bo-tat-khi-lam.html"
 ---

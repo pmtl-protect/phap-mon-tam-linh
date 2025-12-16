@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.038Z
+title: "Sốt xuất huyết và các bệnh truyền nhiễm khác là bệnh Tâm Linh"
+date: 2025-12-16T01:10:58.513Z
 draft: false
 url: "/2025/01/sot-xuat-huyet-va-cac-benh-truyen-nhiem.html"
 ---

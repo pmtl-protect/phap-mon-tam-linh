@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.972Z
+title: "Nếu bạn là người tu tâm hành thiện. Thì trên đầu bạn sẽ có ánh sáng trắng"
+date: 2025-12-16T01:11:00.251Z
 draft: false
 url: "/2024/12/neu-ban-la-nguoi-tu-tam-hanh-thien-thi.html"
 ---

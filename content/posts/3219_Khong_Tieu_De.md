@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.565Z
+title: "Thế gian pháp luật có nhiều đến đâu, thì cũng không thể nào ràng buộc được người mà họ muốn phạm phá"
+date: 2025-12-16T01:11:06.705Z
 draft: false
 url: "/2025/09/the-gian-phap-luat-co-nhieu-en-au-thi.html"
 ---

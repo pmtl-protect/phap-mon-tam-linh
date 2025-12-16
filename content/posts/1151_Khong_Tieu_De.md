@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.379Z
+title: "“369” là kiếp nạn theo thiên luật, dựa vào nghiệp chướng đời trước mà định"
+date: 2025-12-16T01:10:57.427Z
 draft: false
 url: "/2025/03/369-la-kiep-nan-theo-thien-luat-dua-vao.html"
 ---

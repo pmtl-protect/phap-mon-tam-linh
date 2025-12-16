@@ -1,6 +1,6 @@
 ---
-title: "GIỚI THIỆU VỀ ĐÀI TRƯỞNG"
-date: 2025-12-15T22:19:51.778Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.829Z
 draft: false
 url: "/2025/12/gioi-thieu-ve-ai-truong.html"
 ---

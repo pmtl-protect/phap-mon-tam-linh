@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.283Z
+title: "Quán Thế Âm Bồ Tát: “Hài tử, vi sư giảng cho con một câu trong Bát Nhã Tâm Kinh: ‘Thị chư pháp không"
+date: 2025-12-16T01:11:00.733Z
 draft: false
 url: "/2025/02/quan-am-bo-tat-hai-tu-vi-su-giang-cho_28.html"
 ---

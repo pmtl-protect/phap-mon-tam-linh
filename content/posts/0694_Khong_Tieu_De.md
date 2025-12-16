@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.359Z
+title: "Người phàm phu thường hay nghĩ không thông, người khác khuyên răn cả buổi, họ vẫn không thông suốt; "
+date: 2025-12-16T01:10:55.168Z
 draft: false
 url: "/2025/05/nguoi-pham-phu-thuong-hay-nghi-khong.html"
 ---

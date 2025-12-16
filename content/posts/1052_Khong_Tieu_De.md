@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.134Z
+title: "Lời dạy của Sư phụ Lư Quân Hoành và Trả lời câu hỏi từ thư (623) (Đăng ngày 6 tháng 4 năm 2015)"
+date: 2025-12-16T01:10:57.030Z
 draft: false
 url: "/2025/08/loi-day-cua-su-phu-lu-quan-hoanh-va-tra.html"
 ---

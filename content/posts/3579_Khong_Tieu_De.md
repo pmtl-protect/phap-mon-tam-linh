@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.750Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.243Z
 draft: false
 url: "/2024/10/van-han-trong-cuoc-oi-co-co-inh-khong.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.425Z
+title: "Một người học Phật chính là học làm người"
+date: 2025-12-16T01:11:01.011Z
 draft: false
 url: "/2024/11/mot-nguoi-hoc-phat-chinh-la-hoc-lam.html"
 ---

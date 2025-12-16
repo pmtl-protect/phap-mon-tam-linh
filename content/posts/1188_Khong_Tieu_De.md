@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.461Z
+title: "“Tứ Đại Pháp Bảo” của pháp môn tương ứng với tinh thần của tứ đại Bồ Tát, pháp rất thâm sâu, chỉ có "
+date: 2025-12-16T01:10:57.569Z
 draft: false
 url: "/2024/12/tu-ai-phap-bao-cua-phap-mon-tuong-ung.html"
 ---

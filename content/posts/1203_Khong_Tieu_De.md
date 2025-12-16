@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.492Z
+title: "Trong tư duy của con người xã hội hiện đại, đã có quá nhiều lòng tham, và sự tham lam đã chi phối và"
+date: 2025-12-16T01:10:57.627Z
 draft: false
 url: "/2025/04/trong-tu-duy-cua-con-nguoi-xa-hoi-hien.html"
 ---

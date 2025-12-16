@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.705Z
+title: "Lư Đài Trưởng Từ \"Nhìn núi là núi\" đến cảnh giới \"Thấy núi vẫn là núi\" sau khi giác ngộ Phật Pháp"
+date: 2025-12-16T01:11:11.060Z
 draft: false
 url: "/2025/10/lu-ai-truong-tu-nhin-nui-la-nui-en-canh.html"
 ---

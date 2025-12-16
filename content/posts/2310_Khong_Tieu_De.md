@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.223Z
+title: "Vợ chồng, con cái cùng sống dưới một mái nhà, nhưng người học Phật phải hiểu được rằng đó chỉ là do "
+date: 2025-12-16T01:11:02.522Z
 draft: false
 url: "/2025/04/vo-chong-con-cai-cung-song-duoi-mot-mai.html"
 ---

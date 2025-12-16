@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.307Z
+title: "Không nên mua xe màu bạc. Bạc là màu của địa phủ và dễ xảy ra tai nạn"
+date: 2025-12-16T01:11:04.771Z
 draft: false
 url: "/2024/12/khong-nen-mua-xe-mau-bac-bac-la-mau-cua.html"
 ---

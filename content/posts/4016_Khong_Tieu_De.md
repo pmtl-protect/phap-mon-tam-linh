@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.833Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.277Z
 draft: false
 url: "/2025/12/phat-nguyen-10000-bien-tam-kinh-sau-o.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Vấn đề Sách Kinh ( Kinh Văn ) của Pháp Môn Tâm Linh ( Dành cho các Phật Hữu tu hành tại Việt Nam )"
-date: 2025-12-15T22:19:51.767Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.804Z
 draft: false
 url: "/2025/12/van-e-sach-kinh-kinh-van-cua-phap-mon.html"
 ---

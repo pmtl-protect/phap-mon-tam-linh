@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.659Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.971Z
 draft: false
 url: "/2025/01/thay-ban-tho-phat-can-chu-y-nhung-gi.html"
 ---

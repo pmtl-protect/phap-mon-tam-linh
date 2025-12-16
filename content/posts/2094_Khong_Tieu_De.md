@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.744Z
+title: "Thông tin Phật pháp cần phải liên tục được truyền bá, để mọi người được nghe đến Phật pháp"
+date: 2025-12-16T01:11:01.633Z
 draft: false
 url: "/2025/02/thong-tin-phat-phap-can-phai-lien-tuc.html"
 ---

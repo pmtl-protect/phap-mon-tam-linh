@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.383Z
+title: "Người tốt thường hay bị bắt nạt; phải theo sát Sư Phụ mà học"
+date: 2025-12-16T01:11:04.848Z
 draft: false
 url: "/2025/08/nguoi-tot-thuong-hay-bi-bat-nat-phai_24.html"
 ---

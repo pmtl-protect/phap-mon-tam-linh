@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.847Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.300Z
 draft: false
 url: "/2025/01/phat-tam-hoang-phap-o-chung-sinh-nghiep.html"
 ---

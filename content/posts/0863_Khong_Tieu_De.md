@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.719Z
+title: "Mơ thấy sư phụ nhắc nhở đừng cống cao ngã mạn"
+date: 2025-12-16T01:10:55.981Z
 draft: false
 url: "/2025/05/mo-thay-su-phu-nhac-nho-ung-cong-cao.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.935Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:56.557Z
 draft: false
 url: "/2025/05/phan-cuoi-en-ia-phu-nghe-tham-phan.html"
 ---

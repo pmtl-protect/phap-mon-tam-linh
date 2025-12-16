@@ -1,6 +1,6 @@
 ---
-title: "Trì niệm Kinh Chú tốt trở thành năng lượng, trì niệm không tốt biến thành tài sản ở cõi âm; Đài Trưởng khai thị về “Bảy Tầng Trời”(Thất Trùng Thiên)"
-date: 2025-12-15T22:19:51.628Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.501Z
 draft: false
 url: "/2025/12/tri-niem-kinh-chu-tot-tro-thanh-nang.html"
 ---

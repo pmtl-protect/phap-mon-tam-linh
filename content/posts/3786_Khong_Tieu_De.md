@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.276Z
+title: "Da dẻ không tốt, phải ăn chay trường, nếu không sẽ gặp đại nạn; làm lãnh đạo phải lấy đức phục người"
+date: 2025-12-16T01:11:10.146Z
 draft: false
 url: "/2025/08/da-de-khong-tot-phai-chay-truong-neu_1.html"
 ---

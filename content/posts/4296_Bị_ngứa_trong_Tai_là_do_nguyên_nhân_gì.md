@@ -1,6 +1,6 @@
 ---
-title: "Bị ngứa trong Tai là do nguyên nhân gì?"
-date: 2025-12-15T22:19:51.630Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.504Z
 draft: false
 url: "/2025/12/bi-ngua-trong-tai-la-do-nguyen-nhan-gi.html"
 ---

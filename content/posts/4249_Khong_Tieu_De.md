@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.504Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.312Z
 draft: false
 url: "/2025/12/khi-nao-thi-thuc-vat-tren-troi-se-au.html"
 ---

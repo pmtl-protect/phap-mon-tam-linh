@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.563Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.401Z
 draft: false
 url: "/2025/12/tim-kiem-su-tu-do-trong-tam.html"
 ---

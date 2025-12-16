@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.072Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.932Z
 draft: false
 url: "/2024/11/van-e-en-benh-vien-e-o-nguoi_16.html"
 ---

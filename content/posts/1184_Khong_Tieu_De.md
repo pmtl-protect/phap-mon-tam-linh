@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.449Z
+title: "Bạch Thoại Phật Pháp Phải nhớ rằng , con người phải có 1 tâm trạng thoải mái thì mới có thể tu tâm đ"
+date: 2025-12-16T01:10:57.553Z
 draft: false
 url: "/2025/04/bach-thoai-phat-phap-phai-nho-rang-con.html"
 ---

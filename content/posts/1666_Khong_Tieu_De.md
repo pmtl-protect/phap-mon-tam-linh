@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.799Z
+title: "Nam Kinh Bồ Tát nói rằng ngày sinh của Quán Thế Âm Bồ Tát chính là ngày sinh của Ngài"
+date: 2025-12-16T01:10:59.724Z
 draft: false
 url: "/2025/03/nam-kinh-bo-tat-noi-rang-ngay-sinh-cua.html"
 ---

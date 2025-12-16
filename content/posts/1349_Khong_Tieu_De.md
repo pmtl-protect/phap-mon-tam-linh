@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.819Z
+title: "Thường xuyên nói xấu người khác có quả báo gì ? chuyện chưa được xác thực thì đừng nói lung tung"
+date: 2025-12-16T01:10:58.228Z
 draft: false
 url: "/2025/04/thuong-xuyen-noi-xau-nguoi-khac-co-qua_8.html"
 ---

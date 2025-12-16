@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.989Z
+title: "Đừng giống như ly nước sôi lúc nấu lúc dừng, phải kiên trì"
+date: 2025-12-16T01:10:56.743Z
 draft: false
 url: "/2024/12/ung-giong-nhu-ly-nuoc-soi-luc-nau-luc.html"
 ---

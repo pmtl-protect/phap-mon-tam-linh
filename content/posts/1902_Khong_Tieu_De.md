@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.364Z
+title: "Mắc bệnh lupus ban đỏ, khi còn trẻ đã làm những điều dại dột"
+date: 2025-12-16T01:11:00.892Z
 draft: false
 url: "/2024/11/mac-benh-lupus-ban-o-khi-con-tre-lam.html"
 ---

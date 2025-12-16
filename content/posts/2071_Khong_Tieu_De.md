@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.700Z
+title: "Tiên gia nói \"Ngôi nhà nhỏ\" là vàng thỏi"
+date: 2025-12-16T01:11:01.555Z
 draft: false
 url: "/2025/02/tien-gia-noi-ngoi-nha-nho-la-vang-thoi.html"
 ---

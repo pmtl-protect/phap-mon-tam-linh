@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.681Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.900Z
 draft: false
 url: "/2025/05/vuot-qua-nhung-tro-ngai-khi-hoang-phap.html"
 ---

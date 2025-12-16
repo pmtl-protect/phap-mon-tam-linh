@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.343Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:00.846Z
 draft: false
 url: "/2024/12/truyen-ngan-truyen-cam-hung-hanh-ong-tu.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.871Z
+title: "Học cách lắng nghe “Bạch Thoại Phật Pháp”, tập trung tư tưởng để nghe, những tạp niệm của con sẽ lập"
+date: 2025-12-16T01:11:01.851Z
 draft: false
 url: "/2025/04/hoc-cach-lang-nghe-bach-thoai-phat-phap.html"
 ---

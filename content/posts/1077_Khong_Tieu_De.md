@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.209Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.133Z
 draft: false
 url: "/2025/05/chuyen-tiep-phap-bo-thi-do-ong-tu-tao.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.554Z
+title: "Dù trong hoàn cảnh nào cũng phải nỗ lực tu tập, phải tranh thủ thời gian để niệm kinh"
+date: 2025-12-16T01:11:10.667Z
 draft: false
 url: "/2025/10/du-trong-hoan-canh-nao-cung-phai-no-luc.html"
 ---

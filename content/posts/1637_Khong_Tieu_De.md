@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.736Z
+title: "Quy y chính là quy y Phật tính mà bạn đã đang tu luyện thông qua bằng cách tu tâm của chính mình"
+date: 2025-12-16T01:10:59.593Z
 draft: false
 url: "/2025/05/quy-y-chinh-la-quy-y-phat-tinh-ma-ban.html"
 ---

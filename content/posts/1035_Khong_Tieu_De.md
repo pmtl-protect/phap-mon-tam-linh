@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.104Z
+title: "Mục đích của Pháp môn tâm linh là giúp chúng sinh tự giải thoát"
+date: 2025-12-16T01:10:56.954Z
 draft: false
 url: "/2024/10/muc-ich-cua-phap-mon-tam-linh-la-giup.html"
 ---

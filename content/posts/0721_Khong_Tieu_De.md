@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.417Z
+title: "Sư Phụ khai thị đôi điều về cõi trời Sắc Giới"
+date: 2025-12-16T01:10:55.298Z
 draft: false
 url: "/2025/05/su-phu-khai-thi-oi-ieu-ve-coi-troi-sac.html"
 ---

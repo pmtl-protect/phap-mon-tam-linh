@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.673Z
+title: "Con người luôn có thói quen. Khi người khác bảo họ, \"Đừng nghịch điện thoại nữa và đi ngủ đi\", họ lu"
+date: 2025-12-16T01:10:58.011Z
 draft: false
 url: "/2025/04/con-nguoi-luon-co-thoi-quen-khi-nguoi.html"
 ---

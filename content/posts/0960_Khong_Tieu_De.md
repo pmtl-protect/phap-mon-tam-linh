@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.913Z
+title: "TỤNG NHIỀU TÂM KINH, ĐỌC NHIỀU “BẠCH THOẠI PHẬT PHÁP” SẼ GIÚP KHAI NGỘ"
+date: 2025-12-16T01:10:56.446Z
 draft: false
 url: "/2025/05/tung-nhieu-tam-kinh-oc-nhieu-bach-thoai.html"
 ---

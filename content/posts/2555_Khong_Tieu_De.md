@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.789Z
+title: "Trich BTPP 5- 15: Điều chỉnh âm dương, tu sửa Phật đạo"
+date: 2025-12-16T01:11:03.751Z
 draft: false
 url: "/2025/08/trich-btpp-5-15-ieu-chinh-am-duong-tu.html"
 ---

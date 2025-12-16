@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.769Z
+title: "Người tu Phật cần hiểu rõ: Khéo nắm bắt tâm thái của mình, làm chủ thời gian, buông bỏ chấp ngã"
+date: 2025-12-16T01:10:56.104Z
 draft: false
 url: "/2025/05/nguoi-tu-phat-can-hieu-ro-kheo-nam-bat.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.246Z
+title: "trích BTPP4-45: Nhất thiết pháp bất khả thủ, vô thủ diệc vô xả"
+date: 2025-12-16T01:11:04.661Z
 draft: false
 url: "/2025/08/trich-btpp4-45-nhat-thiet-phap-bat-kha.html"
 ---

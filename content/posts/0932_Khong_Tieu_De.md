@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.851Z
+title: "CỨU NGƯỜI LÀ CỨU TÂM, SỨ MỆNH CỦA PHẬT PHÁP LÀ GIẢI THOÁT NỖI KHỔ TINH THẦN CỦA CHÚNG SINH"
+date: 2025-12-16T01:10:56.284Z
 draft: false
 url: "/2025/05/cuu-nguoi-la-cuu-tam-su-menh-cua-phat_12.html"
 ---

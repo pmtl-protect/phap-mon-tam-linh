@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.762Z
+title: "Thừa nguyện tái lai , Huyền Trang Pháp sư cùng Tăng Già đại sư và kiếp này là Lư Quân Hoành Đài trưở"
+date: 2025-12-16T01:11:03.648Z
 draft: false
 url: "/2025/04/thua-nguyen-tai-lai-huyen-trang-phap-su.html"
 ---

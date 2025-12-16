@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.356Z
+title: "Phản hồi từ khán giả về việc lãnh đạo tặng nhân viên cuốn \"Bạch Thoại Phật Pháp\" như một món quà năm"
+date: 2025-12-16T01:11:10.252Z
 draft: false
 url: "/2025/01/phan-hoi-tu-khan-gia-ve-viec-lanh-ao.html"
 ---

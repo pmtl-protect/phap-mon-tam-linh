@@ -1,6 +1,6 @@
 ---
-title: "Tại sao Bồ Tát thường xuyên xuống nhân gian, và tại sao không nhất thiết dưới hình tướng pháp sư?"
-date: 2025-12-15T22:19:51.772Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.816Z
 draft: false
 url: "/2025/12/tai-sao-bo-tat-thuong-xuyen-xuong-nhan.html"
 ---

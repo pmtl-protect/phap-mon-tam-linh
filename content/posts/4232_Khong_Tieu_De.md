@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.385Z
+title: "Về vấn đề bị gánh nghiệp sau khi trợ niệm"
+date: 2025-12-16T01:11:12.237Z
 draft: false
 url: "/2025/12/ve-van-e-bi-ganh-nghiep-sau-khi-tro-niem.html"
 ---

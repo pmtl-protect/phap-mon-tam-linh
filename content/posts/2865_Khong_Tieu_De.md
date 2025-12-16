@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.616Z
+title: "Sau 10 giờ tối. Con có thể tụng chú vãng sanh trong kinh văn tự tu được không ạ"
+date: 2025-12-16T01:11:05.182Z
 draft: false
 url: "/2024/11/sau-10-gio-toi-con-co-tung-chu-vang.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.429Z
+title: "\"Độ người\" có thể tiêu trừ quả báo địa ngục"
+date: 2025-12-16T01:11:10.391Z
 draft: false
 url: "/2025/01/o-nguoi-co-tieu-tru-qua-bao-ia-nguc.html"
 ---

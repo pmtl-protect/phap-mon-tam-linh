@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.158Z
+title: "Bài giảng Bạch thoại Phật pháp  | Tập 110: \"Biết vô thường mới không trụ tâm\" ngày 06/01/2021"
+date: 2025-12-16T01:10:54.830Z
 draft: false
 url: "/2025/06/bai-giang-bach-thoai-phat-phap-tap-110.html"
 ---

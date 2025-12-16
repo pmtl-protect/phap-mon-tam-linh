@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.089Z
+title: "Nghiệp chướng nặng thì nên đọc nhiều ngôi nhà nhỏ, mọi việc không thuận lợi thì nên đọc nhiều kinh b"
+date: 2025-12-16T01:11:09.783Z
 draft: false
 url: "/2025/02/nghiep-chuong-nang-thi-nen-oc-nhieu.html"
 ---

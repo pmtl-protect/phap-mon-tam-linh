@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.046Z
+title: "Thầy giáo thấy trước đây con học rất tốt, sẽ không phạt con quá nặng, đồng thời còn giúp đỡ con. Cũn"
+date: 2025-12-16T01:11:04.370Z
 draft: false
 url: "/2024/12/blog-post_91.html"
 ---

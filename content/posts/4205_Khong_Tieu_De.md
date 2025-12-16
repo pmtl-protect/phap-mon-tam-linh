@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.298Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.121Z
 draft: false
 url: "/2024/10/hoi-ap-phat-hoc-cau-hoi-so-65-van-e-quy.html"
 ---

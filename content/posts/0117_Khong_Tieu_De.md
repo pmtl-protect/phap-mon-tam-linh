@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.760Z
+title: "Trợ niệm Chú Đại Bi cho bệnh nhân phẫu thuật cần niệm 21 biến trở lên"
+date: 2025-12-16T01:10:52.431Z
 draft: false
 url: "/2025/07/tro-niem-chu-ai-bi-cho-benh-nhan-phau.html"
 ---

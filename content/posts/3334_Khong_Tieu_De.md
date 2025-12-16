@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.071Z
+title: "Ngày Mùng 1 , 15 Âm lịch phải thành tâm lạy phật, niệm kinh"
+date: 2025-12-16T01:11:07.898Z
 draft: false
 url: "/2025/03/ngay-mung-1-15-am-lich-phai-thanh-tam.html"
 ---

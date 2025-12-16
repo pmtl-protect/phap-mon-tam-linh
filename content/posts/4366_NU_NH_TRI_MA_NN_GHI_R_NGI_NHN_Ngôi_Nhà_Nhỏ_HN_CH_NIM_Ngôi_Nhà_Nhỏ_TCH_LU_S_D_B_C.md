@@ -1,6 +1,6 @@
 ---
-title: "NẾU NHƯ TRỜI MƯA, NÊN GHI RÕ NGƯỜI NHẬN Ngôi Nhà Nhỏ, HẠN CHẾ NIỆM Ngôi Nhà Nhỏ TÍCH LUỸ SẼ DỄ BỊ CƯỚP MẤT NĂNG LƯỢNG KINH VĂN."
-date: 2025-12-15T22:19:51.793Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.855Z
 draft: false
 url: "/2025/12/neu-nhu-troi-mua-nen-ghi-ro-nguoi-nhan.html"
 ---

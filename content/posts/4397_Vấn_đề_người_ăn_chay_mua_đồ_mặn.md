@@ -1,6 +1,6 @@
 ---
-title: "Vấn đề người ăn chay mua đồ mặn"
-date: 2025-12-15T22:19:51.899Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.038Z
 draft: false
 url: "/2025/12/van-e-nguoi-chay-mua-o-man.html"
 ---

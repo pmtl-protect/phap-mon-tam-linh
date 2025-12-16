@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.853Z
+title: "GIẤC MƠ XUỐNG ĐỊA PHỦ, DIÊM VƯƠNG KHAI THỊ NGÔI NHÀ NHỎ PHẢI ĐẶT LÊN VẢI ĐỎ ĐỂ CHẤM CHẤM ĐỎ"
+date: 2025-12-16T01:10:56.292Z
 draft: false
 url: "/2025/05/giac-mo-xuong-ia-phu-diem-vuong-khai_12.html"
 ---

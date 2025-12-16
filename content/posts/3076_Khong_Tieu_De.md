@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.183Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:06.057Z
 draft: false
 url: "/2025/04/hoang-phap-o-nguoi-cong-uc-rat-lon-cong.html"
 ---

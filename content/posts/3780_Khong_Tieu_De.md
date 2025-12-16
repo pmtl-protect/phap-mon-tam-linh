@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.259Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:10.124Z
 draft: false
 url: "/2025/02/cong-uc-la-can-ban-e-thoat-khoi-luan-hoi.html"
 ---

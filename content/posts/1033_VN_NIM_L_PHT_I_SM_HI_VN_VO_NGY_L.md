@@ -1,6 +1,6 @@
 ---
-title: "VẤN ĐỀ NIỆM LỄ PHẬT ĐẠI SÁM HỐI VĂN VÀO NGÀY LỄ"
-date: 2025-12-15T22:19:43.101Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:56.946Z
 draft: false
 url: "/2025/05/ngay-sinh-cua-uc-thich-ca-mau-ni-phat.html"
 ---

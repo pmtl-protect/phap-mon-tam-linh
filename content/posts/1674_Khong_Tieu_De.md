@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.815Z
+title: "Rất nhiều đệ tử sau một thời gian tu hành sẽ dần biết cách quan sát tướng mạo của người khác"
+date: 2025-12-16T01:10:59.765Z
 draft: false
 url: "/2025/03/rat-nhieu-e-tu-sau-mot-thoi-gian-tu.html"
 ---

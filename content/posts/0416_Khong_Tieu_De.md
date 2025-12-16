@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.524Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.004Z
 draft: false
 url: "/2025/06/mot-nguoi-neu-ca-oi-luc-nao-cung-hoi.html"
 ---

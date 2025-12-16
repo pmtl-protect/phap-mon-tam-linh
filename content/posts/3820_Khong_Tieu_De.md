@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.369Z
+title: "VẤN ĐỂ LIÊN QUAN ĐẾN MUA NHÀ"
+date: 2025-12-16T01:11:10.274Z
 draft: false
 url: "/2025/08/van-e-lien-quan-en-mua-nha.html"
 ---

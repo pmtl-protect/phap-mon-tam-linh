@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.788Z
+title: "Khi bạn tụng kinh mỗi ngày, thực ra bạn đang tiêu trừ rất nhiều nghiệp chướng của chính mình"
+date: 2025-12-16T01:10:56.138Z
 draft: false
 url: "/2025/05/khi-ban-tung-kinh-moi-ngay-thuc-ra-ban.html"
 ---

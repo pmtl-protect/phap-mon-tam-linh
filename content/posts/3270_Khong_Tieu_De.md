@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.930Z
+title: "Phổ Hiền Bồ Tát từ bi khai thị rằng: “Nếu các con ước nguyện có một gia đình êm ấm và sự nghiệp tốt "
+date: 2025-12-16T01:11:07.566Z
 draft: false
 url: "/2025/09/pho-hien-bo-tat-tu-bi-khai-thi-rang-neu.html"
 ---

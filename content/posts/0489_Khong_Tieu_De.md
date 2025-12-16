@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.715Z
+title: "Vợ khuyên chồng nên tụng kinh và tu tâm, điều này cũng tốt cho bản thân anh ấy"
+date: 2025-12-16T01:10:54.298Z
 draft: false
 url: "/2025/06/vo-khuyen-chong-nen-tung-kinh-va-tu-tam.html"
 ---

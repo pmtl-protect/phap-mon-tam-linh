@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.660Z
+title: "Trích đoạn : Bạch Thoại Phật Pháp - Quyển 2 (12 ) Tập 10 : Tiêu trừ nghiệp chướng, trở về bản nguyên"
+date: 2025-12-16T01:10:55.857Z
 draft: false
 url: "/2025/05/trich-oan-bach-thoai-phat-phap-quyen-2_18.html"
 ---

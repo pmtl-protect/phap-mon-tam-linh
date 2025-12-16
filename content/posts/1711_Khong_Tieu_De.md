@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.890Z
+title: "Các con phải nhớ kỹ rằng thế giới con người là ngắn ngủi, giống như một giấc mơ"
+date: 2025-12-16T01:10:59.928Z
 draft: false
 url: "/2024/11/cac-con-phai-nho-ky-rang-gioi-con-nguoi.html"
 ---

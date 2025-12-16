@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.552Z
+title: "Người khác không chỉ ra khuyết điểm của quý vị, không có nghĩa là quý vị không có khuyết điểm"
+date: 2025-12-16T01:11:10.664Z
 draft: false
 url: "/2025/04/nguoi-khac-khong-chi-ra-khuyet-iem-cua.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.034Z
+title: "Không yêu sâu sắc, không sinh vào cõi Ta-bà; không yêu đậm đà, không rơi vào luân hồi"
+date: 2025-12-16T01:11:09.733Z
 draft: false
 url: "/2025/02/khong-yeu-sau-sac-khong-sinh-vao-coi-ta.html"
 ---

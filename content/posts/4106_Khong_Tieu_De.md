@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.069Z
+title: "\"Niệm Lễ Phật Đại Sám Hối văn” có thể tiêu nghiệp tương đương với 21 tờ Ngôi Nhà Nhỏ"
+date: 2025-12-16T01:11:11.609Z
 draft: false
 url: "/2024/12/niem-le-phat-ai-sam-hoi-van-co-tieu.html"
 ---

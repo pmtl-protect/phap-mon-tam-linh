@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.363Z
+title: "Khi người khác công kích bạn, hãy mỉm cười và bao dung"
+date: 2025-12-16T01:11:10.262Z
 draft: false
 url: "/2025/02/khi-nguoi-khac-cong-kich-ban-hay-mim.html"
 ---

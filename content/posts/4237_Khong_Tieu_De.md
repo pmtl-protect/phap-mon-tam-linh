@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.396Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.256Z
 draft: false
 url: "/2025/12/long-nhan-ai-va-tu-bi-trong-tam-giup.html"
 ---

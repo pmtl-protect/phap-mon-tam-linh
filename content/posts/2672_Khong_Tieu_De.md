@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.052Z
+title: "Quan tài giờ không phải chỉ dành cho người già nữa, đến lúc là đi thôi. Không thể làm việc xấu, Thầy"
+date: 2025-12-16T01:11:04.379Z
 draft: false
 url: "/2024/12/blog-post_22.html"
 ---

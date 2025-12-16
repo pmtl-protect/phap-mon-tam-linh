@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.392Z
+title: "Cẩn trọng hoằng pháp, hoằng pháp bị sai sót cũng có nghiệp, nghiệp chướng lớn nhỏ tùy thuộc vào hậu "
+date: 2025-12-16T01:10:53.753Z
 draft: false
 url: "/2025/06/can-trong-hoang-phap-hoang-phap-bi-sai.html"
 ---

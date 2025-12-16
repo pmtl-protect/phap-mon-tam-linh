@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.718Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.302Z
 draft: false
 url: "/2025/06/duyen-phan-co-trong-so-menh-moi-uoc-bo.html"
 ---

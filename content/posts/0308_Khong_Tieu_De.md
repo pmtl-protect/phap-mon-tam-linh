@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.269Z
+title: "Bồ Tát ứng hiện \"Nghìn nơi cầu nghìn nơi ứng\" trong nhà có vong linh nhưng thành tâm Bồ Tát vẫn đến"
+date: 2025-12-16T01:10:53.504Z
 draft: false
 url: "/2025/06/bo-tat-ung-hien-nghin-noi-cau-nghin-noi.html"
 ---

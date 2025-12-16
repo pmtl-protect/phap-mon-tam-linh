@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.110Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:00.542Z
 draft: false
 url: "/2025/05/van-e-lam-hu-tuong-quan-am-do-bat-can_3.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.134Z
+title: "Cần chú ý điều gì khi dùng hình ảnh minh họa cho việc Bố thí Pháp"
+date: 2025-12-16T01:11:00.576Z
 draft: false
 url: "/2025/08/can-chu-y-ieu-gi-khi-dung-hinh-anh-minh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.657Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.215Z
 draft: false
 url: "/2025/06/trich-loi-phat-day-moi-ngay-cua-su-phu.html"
 ---

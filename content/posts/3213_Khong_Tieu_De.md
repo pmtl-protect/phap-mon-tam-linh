@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.553Z
+title: "Thời kỳ mạt pháp khẩu nghiệp bị giám sát chặt chẽ, phỉ báng Phật hoặc phỉ báng Pháp dễ bị dẫn đi (mấ"
+date: 2025-12-16T01:11:06.685Z
 draft: false
 url: "/2024/11/thoi-ky-mat-phap-khau-nghiep-bi-giam.html"
 ---

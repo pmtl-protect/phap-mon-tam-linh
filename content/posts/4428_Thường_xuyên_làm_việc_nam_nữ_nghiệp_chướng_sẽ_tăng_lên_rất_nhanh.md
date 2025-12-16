@@ -1,6 +1,6 @@
 ---
-title: "Thường xuyên làm việc nam nữ, nghiệp chướng sẽ tăng lên rất nhanh."
-date: 2025-12-15T22:19:51.981Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.178Z
 draft: false
 url: "/2025/12/thuong-xuyen-lam-viec-nam-nu-nghiep.html"
 ---

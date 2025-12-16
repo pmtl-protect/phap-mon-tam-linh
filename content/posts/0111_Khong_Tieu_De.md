@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.747Z
+title: "Phòng ngủ và phòng khách hoàn toàn thông nhau, không có tường thì kiểu nhà như vậy không tốt, tốt nh"
+date: 2025-12-16T01:10:52.406Z
 draft: false
 url: "/2025/07/phong-ngu-va-phong-khach-hoan-toan.html"
 ---

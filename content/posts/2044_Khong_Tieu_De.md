@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.651Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.459Z
 draft: false
 url: "/2025/02/74ve-van-e-tung-kinh-cho-nguoi-than-sap.html"
 ---

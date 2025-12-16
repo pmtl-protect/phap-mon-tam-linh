@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.882Z
+title: "Công đức là công đức"
+date: 2025-12-16T01:11:03.919Z
 draft: false
 url: "/2024/11/cong-uc-la-cong-uc.html"
 ---

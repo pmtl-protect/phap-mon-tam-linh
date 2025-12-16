@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.265Z
+title: "Việc xin thị thực Singapore do Nam Kinh Bồ Tát và Thái Tuế Bồ Tát quản lý"
+date: 2025-12-16T01:11:04.690Z
 draft: false
 url: "/2025/03/viec-xin-thi-thuc-singapore-do-nam-kinh.html"
 ---

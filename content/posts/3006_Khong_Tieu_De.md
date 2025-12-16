@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.967Z
+title: "Bồ Tát có thể giúp quý vị hóa giải việc lớn thành việc nhỏ, việc nhỏ thành không còn gì"
+date: 2025-12-16T01:11:05.771Z
 draft: false
 url: "/2025/04/bo-tat-co-giup-quy-vi-hoa-giai-viec-lon.html"
 ---

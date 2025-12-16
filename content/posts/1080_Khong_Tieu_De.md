@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.214Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.145Z
 draft: false
 url: "/2024/10/nguoi-co-nhieu-cong-uc-nhung-lai-pham.html"
 ---

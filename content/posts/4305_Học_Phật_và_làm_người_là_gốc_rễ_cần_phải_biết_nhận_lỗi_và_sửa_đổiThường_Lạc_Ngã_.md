@@ -1,6 +1,6 @@
 ---
-title: "Học Phật và làm người là gốc rễ, cần phải biết nhận lỗi và sửa đổi。Thường Lạc Ngã Tịnh chính là buông xuống bản ngã, nghĩ thông sẽ vui vẻ hạnh phúc."
-date: 2025-12-15T22:19:51.649Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.552Z
 draft: false
 url: "/2025/12/hoc-phat-va-lam-nguoi-la-goc-re-can.html"
 ---

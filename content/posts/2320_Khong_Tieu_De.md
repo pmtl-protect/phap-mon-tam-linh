@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.243Z
+title: "Mùng 1 tháng Giêng là ngày đản sanh của Đức Phật Di Lặc"
+date: 2025-12-16T01:11:02.559Z
 draft: false
 url: "/2025/01/mung-1-thang-gieng-la-ngay-sanh-cua-uc.html"
 ---

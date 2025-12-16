@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.430Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:53.842Z
 draft: false
 url: "/2025/06/phat-nguyen-chay-nhung-pham-gioi-dan-en.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.108Z
+title: "Lỗ mũi to dễ bị thất thoát tài sản, cần phải tu tâm hành thiện để bù đắp tướng mạo"
+date: 2025-12-16T01:10:53.183Z
 draft: false
 url: "/2025/07/lo-mui-to-de-bi-that-thoat-tai-san-can.html"
 ---

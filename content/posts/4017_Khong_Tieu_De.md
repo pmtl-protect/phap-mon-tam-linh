@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.835Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.280Z
 draft: false
 url: "/2025/01/ung-mac-quan-ao-mau-en-khi-tung-kinh.html"
 ---

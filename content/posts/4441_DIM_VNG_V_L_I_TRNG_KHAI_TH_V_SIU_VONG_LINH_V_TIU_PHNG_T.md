@@ -1,6 +1,6 @@
 ---
-title: "DIÊM VƯƠNG VÀ LƯ ĐÀI TRƯỞNG KHAI THỊ VỀ SIÊU ĐỘ VONG LINH VÀ TIỂU PHÒNG TỬ"
-date: 2025-12-15T22:19:52.010Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.234Z
 draft: false
 url: "/2025/12/diem-vuong-va-lu-ai-truong-khai-thi-ve_0469886525.html"
 ---

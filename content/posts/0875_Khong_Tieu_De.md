@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.743Z
+title: "Sư phụ Lư Quân Hoành hoằng pháp suốt 20 năm, tham gia các buổi pháp hội/xem đồ đằng/bái sư của Sư ph"
+date: 2025-12-16T01:10:56.032Z
 draft: false
 url: "/2025/05/su-phu-lu-quan-hoanh-hoang-phap-suot-20.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.321Z
+title: "Không được tùy tiện niệm \"Quán Âm Linh Cảm Chân Ngôn\".."
+date: 2025-12-16T01:11:02.675Z
 draft: false
 url: "/2025/01/khong-uoc-tuy-tien-niem-quan-am-linh_26.html"
 ---

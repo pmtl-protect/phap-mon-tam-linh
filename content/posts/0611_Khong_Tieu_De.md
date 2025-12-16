@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.160Z
+title: "Trích đoạn BTPP(12) Quyển 8- tập 8"
+date: 2025-12-16T01:10:54.834Z
 draft: false
 url: "/2025/06/trich-oan-btpp12-quyen-8-tap-8.html"
 ---

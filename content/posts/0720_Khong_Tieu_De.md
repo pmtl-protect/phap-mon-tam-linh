@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.414Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.291Z
 draft: false
 url: "/2025/05/tren-oi-co-bon-kieu-nguoi.html"
 ---

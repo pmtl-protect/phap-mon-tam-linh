@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.759Z
+title: "Trên mặt mọc rất nhiều mụn trứng cá nên ăn nhiều đồ chay"
+date: 2025-12-16T01:10:58.171Z
 draft: false
 url: "/2024/12/tren-mat-moc-rat-nhieu-mun-trung-ca-nen.html"
 ---

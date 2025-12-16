@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.984Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:56.731Z
 draft: false
 url: "/2024/10/ve-van-e-lam-tuong-phat-chuyen-dung-cho.html"
 ---

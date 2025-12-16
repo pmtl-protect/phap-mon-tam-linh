@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.622Z
+title: "Bị dính “ Bùa ngải ” phải nhờ niệm kinh và năng lượng tích cực để giải trừ; nếu phạm tà dâm, “ Bùa n"
+date: 2025-12-16T01:11:10.881Z
 draft: false
 url: "/2025/01/bi-dinh-bua-ngai-phai-nho-niem-kinh-va.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.024Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:05.872Z
 draft: false
 url: "/2025/04/hay-han-che-tiep-xuc-voi-nguoi-khong_25.html"
 ---

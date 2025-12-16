@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.067Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.606Z
 draft: false
 url: "/2024/10/nguoi-vua-tu-tran-trong-49-ngay-can.html"
 ---

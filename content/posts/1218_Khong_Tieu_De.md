@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.523Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.683Z
 draft: false
 url: "/2025/04/niem-kinh-tu-nho-ve-sau-tri-hue-vo-cung.html"
 ---

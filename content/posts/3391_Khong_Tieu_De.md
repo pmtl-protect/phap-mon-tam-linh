@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.206Z
+title: "Một người khi đầu thai xuống nhân gian thường chỉ có hai mục đích: hoặc là để báo ân, hoặc là để báo"
+date: 2025-12-16T01:11:08.178Z
 draft: false
 url: "/2025/09/mot-nguoi-khi-au-thai-xuong-nhan-gian.html"
 ---

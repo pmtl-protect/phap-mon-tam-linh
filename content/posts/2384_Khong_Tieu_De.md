@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.415Z
+title: "Từ xa xưa, con người đã có một thói xấu lớn, đó là tính \"ĐỐ KỴ\""
+date: 2025-12-16T01:11:02.876Z
 draft: false
 url: "/2025/04/tu-xa-xua-con-nguoi-co-mot-thoi-xau-lon.html"
 ---

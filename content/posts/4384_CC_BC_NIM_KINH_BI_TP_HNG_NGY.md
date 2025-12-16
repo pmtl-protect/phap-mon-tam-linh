@@ -1,6 +1,6 @@
 ---
-title: "CÁC BƯỚC NIỆM KINH BÀI TẬP HÀNG NGÀY"
-date: 2025-12-15T22:19:51.850Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.964Z
 draft: false
 url: "/2025/12/cac-buoc-niem-kinh-bai-tap-hang-ngay.html"
 ---

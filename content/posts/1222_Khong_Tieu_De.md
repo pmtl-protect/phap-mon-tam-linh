@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.532Z
+title: "Hòa Thượng Tịnh Không tán thán Pháp Môn Tâm Linh của Đài trưởng Lư"
+date: 2025-12-16T01:10:57.700Z
 draft: false
 url: "/2025/04/hoa-thuong-tinh-khong-tan-than-phap-mon.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.639Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:57.936Z
 draft: false
 url: "/2024/10/quan-am-linh-cam-chan-ngon.html"
 ---

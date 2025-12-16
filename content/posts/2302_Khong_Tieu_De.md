@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.204Z
+title: "Mối quan hệ biện chứng giữa công đức, cảnh giới của bản thân với sắc thân. Đài trưởng khai thị liên "
+date: 2025-12-16T01:11:02.489Z
 draft: false
 url: "/2025/02/moi-quan-he-bien-chung-giua-cong-uc.html"
 ---

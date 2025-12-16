@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.823Z
+title: "Chuyên đề khai thị đặc sắc của Lư Đài Trưởng: Khai thị Phật học liên quan đến Tết Đoan Ngọ"
+date: 2025-12-16T01:10:52.546Z
 draft: false
 url: "/2025/06/chuyen-e-khai-thi-ac-sac-cua-lu-ai.html"
 ---

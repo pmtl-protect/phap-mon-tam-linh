@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.097Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:07.960Z
 draft: false
 url: "/2025/02/bao-dung-nguoi-khac-co-o-luong-moi-goi.html"
 ---

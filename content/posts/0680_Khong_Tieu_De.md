@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.330Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:55.110Z
 draft: false
 url: "/2025/05/nhat-mon-tinh-tan-co-gang-tu-hanh-cho.html"
 ---

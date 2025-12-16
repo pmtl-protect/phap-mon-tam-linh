@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.203Z
+title: "Xử lý thế nào khi gặp phải những việc không đúng pháp trong công việc"
+date: 2025-12-16T01:11:11.913Z
 draft: false
 url: "/2024/11/xu-ly-nao-khi-gap-phai-nhung-viec-khong.html"
 ---

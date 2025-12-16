@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.068Z
+title: "Khi còn trẻ có sát nghiệp, bị ung thư trực tràng, ruột bị cắt đi một nửa, lâu dài táo bón"
+date: 2025-12-16T01:11:05.925Z
 draft: false
 url: "/2025/08/khi-con-tre-co-sat-nghiep-bi-ung-thu.html"
 ---

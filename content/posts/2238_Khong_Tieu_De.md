@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.047Z
+title: "Cầu nguyện với Bồ Tát cần phải có lòng tin, Bồ Tát sẽ giúp đỡ sắp xếp và giải quyết vấn đề"
+date: 2025-12-16T01:11:02.224Z
 draft: false
 url: "/2024/11/cau-nguyen-voi-bo-tat-can-phai-co-long.html"
 ---

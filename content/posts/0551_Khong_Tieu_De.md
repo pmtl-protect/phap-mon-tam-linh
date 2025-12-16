@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.940Z
+title: "NGHIỆP CHƯỚNG CỦA MỘT NGƯỜI CÀNG NẶNG THÌ SẼ CÀNG KHÔNG THUẬN LỢI TRONG CUỘC SỐNG"
+date: 2025-12-16T01:10:54.570Z
 draft: false
 url: "/2025/06/nghiep-chuong-cua-mot-nguoi-cang-nang.html"
 ---

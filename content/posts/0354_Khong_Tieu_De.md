@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.368Z
+title: "Đài Trưởng Lư Quân Hoành ở Kiếp này, là Huyền Trang Pháp Sư và Tăng Già Đại Sư thừa nguyện tái lai"
+date: 2025-12-16T01:10:53.705Z
 draft: false
 url: "/2025/06/ai-truong-lu-quan-hoanh-o-kiep-nay-la.html"
 ---

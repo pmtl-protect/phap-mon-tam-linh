@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.925Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:54.566Z
 draft: false
 url: "/2025/02/nhan-qua-cua-benh-tam-than-phan-liet-la.html"
 ---

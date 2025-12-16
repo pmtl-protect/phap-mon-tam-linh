@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.440Z
+title: "Vấn đề cần lưu ý khi đi hộ niệm cho người sắp qua đời .."
+date: 2025-12-16T01:11:02.934Z
 draft: false
 url: "/2025/01/van-e-can-luu-y-khi-i-ho-niem-cho-nguoi.html"
 ---

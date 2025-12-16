@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.002Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:56.764Z
 draft: false
 url: "/2025/05/su-phu-giang-ve-cuoc-oi-vi-ai-cua-uc.html"
 ---

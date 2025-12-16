@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.059Z
+title: "Kinh văn và Bạch thoại Phật pháp mỗi ngày con đọc đều được ghi lại trên trời"
+date: 2025-12-16T01:11:04.391Z
 draft: false
 url: "/2024/12/kinh-van-va-bach-thoai-phat-phap-moi.html"
 ---

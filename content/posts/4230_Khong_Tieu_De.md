@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.380Z
+title: "Sau khi phát nguyện 100.000 Biến Thất Phật Diệt Tội Chân Ngôn, mơ thấy dẫn người nhà đi tiêu nghiệp,"
+date: 2025-12-16T01:11:12.229Z
 draft: false
 url: "/2025/12/sau-khi-phat-nguyen-100000-bien-that.html"
 ---

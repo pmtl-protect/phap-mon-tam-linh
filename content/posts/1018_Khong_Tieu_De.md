@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.064Z
+title: "Vì sao sự tăng trưởng trí tuệ lại làm cho tướng mạo thay đổi; Đừng quá thần thánh hóa Sư phụ"
+date: 2025-12-16T01:10:56.875Z
 draft: false
 url: "/2024/10/vi-sao-su-tang-truong-tri-tue-lai-lam.html"
 ---

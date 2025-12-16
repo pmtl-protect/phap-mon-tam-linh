@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.960Z
+title: "Trong bối cảnh đặc thù của thời đại này, Pháp môn Tâm Linh đã phát huy mạnh mẽ nền tảng lý luận kiên"
+date: 2025-12-16T01:10:56.675Z
 draft: false
 url: "/2025/05/trong-boi-canh-ac-thu-cua-thoi-ai-nay.html"
 ---

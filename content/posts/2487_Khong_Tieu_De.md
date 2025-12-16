@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:46.644Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:03.348Z
 draft: false
 url: "/2025/01/tai-sao-kiem-tien-tu-nguoi-chet-lai-gap.html"
 ---

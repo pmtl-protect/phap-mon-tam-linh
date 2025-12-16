@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.881Z
+title: "Từng phạm tà dâm, tạo khẩu nghiệp, sát nghiệp, hiện chịu quả báo ngồi xe lăn, không sám hối thì khôn"
+date: 2025-12-16T01:11:01.869Z
 draft: false
 url: "/2024/11/tung-pham-ta-dam-tao-khau-nghiep-sat.html"
 ---

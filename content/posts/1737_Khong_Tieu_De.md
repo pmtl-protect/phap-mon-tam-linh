@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.943Z
+title: "Nhiều người chỉ biết cầu phúc mà không biết cầu công đức"
+date: 2025-12-16T01:11:00.095Z
 draft: false
 url: "/2025/05/nhieu-nguoi-chi-biet-cau-phuc-ma-khong.html"
 ---

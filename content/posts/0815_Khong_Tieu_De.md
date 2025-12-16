@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.623Z
+title: "Con từng phát nguyện đời này không kết hôn nữa, nhưng sau đó lại kết hôn, con biết mình đã sai"
+date: 2025-12-16T01:10:55.771Z
 draft: false
 url: "/2025/05/con-tung-phat-nguyen-oi-nay-khong-ket.html"
 ---

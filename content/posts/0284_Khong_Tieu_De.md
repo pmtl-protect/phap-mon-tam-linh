@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.206Z
+title: "Sức khỏe không tốt, nên ăn chay càng sớm càng tốt. Ngày nào cũng ăn mặn, ác khí rất nặng"
+date: 2025-12-16T01:10:53.393Z
 draft: false
 url: "/2025/04/suc-khoe-khong-tot-nen-chay-cang-som.html"
 ---

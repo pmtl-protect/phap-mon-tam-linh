@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.670Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.100Z
 draft: false
 url: "/2025/11/trong-benh-vien-co-rat-nhieu-vong-linh.html"
 ---

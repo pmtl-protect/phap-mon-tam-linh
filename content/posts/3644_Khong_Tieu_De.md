@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.899Z
+title: "Đệ tử của Sư phụ cơ bản cũng chỉ có một kiếp này thôi"
+date: 2025-12-16T01:11:09.495Z
 draft: false
 url: "/2025/11/e-tu-cua-su-phu-co-ban-cung-chi-co-mot.html"
 ---

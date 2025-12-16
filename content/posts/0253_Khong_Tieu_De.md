@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.113Z
+title: "Niệm kinh nhẹ nhàng vui vẻ, nghiệp chướng của bản thân nhất định đã nhẹ đi"
+date: 2025-12-16T01:10:53.201Z
 draft: false
 url: "/2025/07/niem-kinh-nhe-nhang-vui-ve-nghiep.html"
 ---

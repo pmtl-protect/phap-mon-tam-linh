@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.516Z
+title: "Kỹ năng học Bạch Thoại Phật Pháp: Hiểu được và học cách Suy Ngẫm"
+date: 2025-12-16T01:10:59.170Z
 draft: false
 url: "/2024/12/ky-nang-hoc-bach-thoai-phat-phap-hieu.html"
 ---

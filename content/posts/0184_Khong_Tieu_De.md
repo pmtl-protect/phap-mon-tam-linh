@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.935Z
+title: "Muốn tu tâm nhanh chóng qua ba nghiệp thân – khẩu – ý, trước hết phải hiểu ba nghiệp này là gì"
+date: 2025-12-16T01:10:52.775Z
 draft: false
 url: "/2025/07/muon-tu-tam-nhanh-chong-qua-ba-nghiep.html"
 ---

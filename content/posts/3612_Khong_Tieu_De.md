@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.826Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:09.368Z
 draft: false
 url: "/2025/11/nhe-da-tin-nguoi-muon-phat-phap-e-truc.html"
 ---

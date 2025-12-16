@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.580Z
+title: "Khi một đồng tu đang lau dọn bàn thờ, cảm giác như Bồ Tát quở trách mình. Sau đó, lọ hoa bị rơi xuốn"
+date: 2025-12-16T01:10:57.786Z
 draft: false
 url: "/2025/04/khi-mot-ong-tu-ang-lau-don-ban-tho-cam.html"
 ---

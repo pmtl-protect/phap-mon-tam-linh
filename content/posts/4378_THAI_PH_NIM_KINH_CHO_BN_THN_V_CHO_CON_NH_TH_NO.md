@@ -1,6 +1,6 @@
 ---
-title: "THAI PHỤ NIỆM KINH CHO BẢN THÂN VÀ CHO CON NHƯ THẾ NÀO ?"
-date: 2025-12-15T22:19:51.836Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.940Z
 draft: false
 url: "/2025/12/thai-phu-niem-kinh-cho-ban-than-va-cho.html"
 ---

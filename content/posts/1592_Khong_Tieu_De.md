@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.589Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:59.383Z
 draft: false
 url: "/2024/10/tong-hop-cac-thong-tin-co-ban.html"
 ---

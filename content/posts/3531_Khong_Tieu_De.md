@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.575Z
+title: "Lời khai thị của Đài Trưởng Lư Phóng sinh là thể hiện tâm từ bi và tâm vô uý"
+date: 2025-12-16T01:11:08.899Z
 draft: false
 url: "/2025/11/loi-khai-thi-cua-ai-truong-lu-phong.html"
 ---

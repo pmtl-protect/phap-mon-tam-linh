@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.894Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:07.474Z
 draft: false
 url: "/2024/11/mo-thay-nguoi-khac-chat-au-rua.html"
 ---

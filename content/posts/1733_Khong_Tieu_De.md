@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.935Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:00.039Z
 draft: false
 url: "/2024/11/so-bien-kinh-tung-du-trong-kinh-bai-tap_23.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.542Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:01.237Z
 draft: false
 url: "/2025/02/khi-gap-ai-nan-lon-co-ot-ngoi-nha-nho.html"
 ---

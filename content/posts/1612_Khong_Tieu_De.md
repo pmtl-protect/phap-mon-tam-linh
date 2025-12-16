@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.643Z
+title: "Về vấn đề đèn dầu cháy nhảy nhấp nhô và kết thành hoa sen"
+date: 2025-12-16T01:10:59.462Z
 draft: false
 url: "/2024/11/ve-van-e-en-dau-chay-nhay-nhap-nho-va.html"
 ---

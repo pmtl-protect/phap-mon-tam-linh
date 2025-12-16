@@ -1,6 +1,6 @@
 ---
-title: "Lập Bàn thờ Phật chính là phong thủy tốt nhất, đầy đủ ngũ hành"
-date: 2025-12-15T22:19:51.674Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.604Z
 draft: false
 url: "/2025/12/lap-ban-tho-phat-chinh-la-phong-thuy.html"
 ---

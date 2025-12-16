@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.947Z
+title: "Người hoằng dương Phật pháp, có một cái tâm rất quan trọng, đó chính là thiện tâm"
+date: 2025-12-16T01:11:09.575Z
 draft: false
 url: "/2025/11/nguoi-hoang-duong-phat-phap-co-mot-cai.html"
 ---

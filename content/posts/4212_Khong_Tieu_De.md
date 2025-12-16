@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.313Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.155Z
 draft: false
 url: "/2025/12/nan-quan-369-la-gi-cach-tieu-tru-va-hoa.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.976Z
+title: "Thực ra phải niệm ngôi nhà nhỏ suốt đời. Thật sự là vậy. Nếu con người chúng ta không tạo nghiệp mới"
+date: 2025-12-16T01:11:00.260Z
 draft: false
 url: "/2024/11/thuc-ra-phai-niem-ngoi-nha-nho-suot-oi.html"
 ---

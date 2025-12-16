@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.042Z
+title: "Người học Phật cần thường xuyên nghĩ đến “ba điểm”"
+date: 2025-12-16T01:11:04.363Z
 draft: false
 url: "/2025/02/nguoi-hoc-phat-can-thuong-xuyen-nghi-en.html"
 ---

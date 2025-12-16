@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.749Z
+title: "Người bình thường phải mất ba đến năm năm mới có thể chuyển vận, còn người tu hành chuyển vận nhanh "
+date: 2025-12-16T01:11:05.443Z
 draft: false
 url: "/2025/02/nguoi-binh-thuong-phai-mat-ba-en-nam.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.480Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:53.926Z
 draft: false
 url: "/2025/06/cho-co-kha-nang-cam-ung-linh-gioi-sat.html"
 ---

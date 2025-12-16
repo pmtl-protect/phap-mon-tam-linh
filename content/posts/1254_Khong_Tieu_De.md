@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.605Z
+title: "Khi tỉnh giấc mà trong ý niệm vẫn đang niệm kinh là việc tốt"
+date: 2025-12-16T01:10:57.864Z
 draft: false
 url: "/2025/08/khi-tinh-giac-ma-trong-y-niem-van-ang.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:42.803Z
+title: "Hỏi Đáp 32. Tốt nhất nên niệm kinh bài tập hàng ngày trước khi đốt Ngôi nhà nhỏ"
+date: 2025-12-16T01:10:56.165Z
 draft: false
 url: "/2025/05/hoi-ap-32-tot-nhat-nen-niem-kinh-bai.html"
 ---

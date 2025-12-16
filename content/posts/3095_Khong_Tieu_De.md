@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.248Z
+title: "Hôm nay Sư phụ giảng cho quý vị về “buông xả bản ngã”, chính là phải dần dần quên đi cái “tự ngã” củ"
+date: 2025-12-16T01:11:06.136Z
 draft: false
 url: "/2025/08/hom-nay-su-phu-giang-cho-quy-vi-ve.html"
 ---

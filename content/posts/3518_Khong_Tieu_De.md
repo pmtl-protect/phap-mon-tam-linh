@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:49.539Z
+title: "Thầy đã từng nói với quý vị, quý vị ở nhân gian làm tốt thêm nữa, nhưng là ảo, là giả, thì cũng khôn"
+date: 2025-12-16T01:11:08.774Z
 draft: false
 url: "/2025/04/thay-tung-noi-voi-quy-vi-quy-vi-o-nhan_2.html"
 ---

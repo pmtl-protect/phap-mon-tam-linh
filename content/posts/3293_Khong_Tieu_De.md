@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.982Z
+title: "Kinh bài tập hàng ngày sẽ xác định công đức theo số lần đã định, nếu không định số lần thì công đức "
+date: 2025-12-16T01:11:07.686Z
 draft: false
 url: "/2024/11/kinh-bai-tap-hang-ngay-se-xac-inh-cong.html"
 ---

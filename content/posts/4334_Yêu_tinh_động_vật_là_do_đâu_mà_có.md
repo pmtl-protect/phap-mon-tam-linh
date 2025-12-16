@@ -1,6 +1,6 @@
 ---
-title: "Yêu tinh động vật là do đâu mà có?"
-date: 2025-12-15T22:19:51.713Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.689Z
 draft: false
 url: "/2025/12/yeu-tinh-ong-vat-la-do-au-ma-co_01963899732.html"
 ---

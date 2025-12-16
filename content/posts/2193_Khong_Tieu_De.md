@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.958Z
+title: "Học Phật càng ngày càng phải tinh tấn"
+date: 2025-12-16T01:11:02.037Z
 draft: false
 url: "/2024/11/hoc-phat-cang-ngay-cang-phai-tinh-tan.html"
 ---

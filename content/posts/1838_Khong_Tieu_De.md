@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.174Z
+title: "Trích BTPP 4-42: Phân giải bản chất của sinh mệnh, hóa giải dục vọng nhân gian"
+date: 2025-12-16T01:11:00.624Z
 draft: false
 url: "/2025/08/trich-btpp-4-42-phan-giai-ban-chat-cua.html"
 ---

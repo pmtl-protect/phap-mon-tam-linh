@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:44.600Z
+title: "Đặc điểm của tà kiến và tà pháp trong Thời Mạt Pháp - Người phàm thuyết pháp dễ tu hành sai lệch"
+date: 2025-12-16T01:10:59.406Z
 draft: false
 url: "/2025/03/ac-iem-cua-ta-kien-va-ta-phap-trong.html"
 ---

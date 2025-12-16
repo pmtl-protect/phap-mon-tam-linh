@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.433Z
+title: "Bạch thoại Phật pháp (quyển 11), bài 12: Mười đại nguyện hạnh của Phổ Hiền Bồ Tát"
+date: 2025-12-16T01:10:51.800Z
 draft: false
 url: "/2025/07/trich-bach-thoai-phat-phap-quyen-11-bai.html"
 ---

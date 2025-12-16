@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:45.163Z
+title: "Đệ tử của Pháp Môn Tâm Linh phải đoàn kết, bất kể ai đi trước đến sau, chỉ cần phát tâm đúng đắn thì"
+date: 2025-12-16T01:11:00.605Z
 draft: false
 url: "/2024/10/e-tu-cua-phap-mon-tam-linh-phai-oan-ket.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.874Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.346Z
 draft: false
 url: "/2025/01/ve-viec-ghi-ngay-tren-ngoi-nha-nho.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.585Z
+title: "Hôn nhân không tốt, tính khí của hai bên đều rất tệ, phải niệm Giải kết chú và Tâm Kinh, hạn chế ăn "
+date: 2025-12-16T01:11:05.121Z
 draft: false
 url: "/2024/11/hon-nhan-khong-tot-tinh-khi-cua-hai-ben.html"
 ---

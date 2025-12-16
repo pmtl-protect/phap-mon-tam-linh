@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:50.611Z
+title: "trích BTPP Bài giảng phát thanh 1-1: Phật pháp trí tuệ, Phật tâm từ bi"
+date: 2025-12-16T01:11:10.855Z
 draft: false
 url: "/2025/10/trich-btpp-bai-giang-phat-thanh-1-1.html"
 ---

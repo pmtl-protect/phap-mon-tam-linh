@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:47.836Z
+title: "Văn Thù Bồ Tát: \"Ác đạo luân hồi khổ, lục thân quyến thuộc trong nồi nấu, chúng sinh lại ăn thịt chú"
+date: 2025-12-16T01:11:05.597Z
 draft: false
 url: "/2025/05/van-thu-bo-tat-ac-ao-luan-hoi-kho-luc.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.162Z
+title: "Nếu không niệm kinh trả nợ chỉ có thể dùng thân xác trả nợ, thời mạt pháp phải tinh tấn"
+date: 2025-12-16T01:11:06.050Z
 draft: false
 url: "/2025/04/neu-khong-niem-kinh-tra-no-chi-co-dung.html"
 ---

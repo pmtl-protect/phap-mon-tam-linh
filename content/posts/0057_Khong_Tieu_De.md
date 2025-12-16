@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:40.620Z
+title: "Hoa sen vẫn còn, Hãy rửa mặt trước khi cầu Bồ Tát"
+date: 2025-12-16T01:10:52.151Z
 draft: false
 url: "/2025/07/hoa-sen-van-con-hay-rua-mat-truoc-khi.html"
 ---

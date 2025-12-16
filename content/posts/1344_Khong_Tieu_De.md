@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:43.779Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:10:58.209Z
 draft: false
 url: "/2025/08/chon-ong-y-hay-tay-y-can-co-tri-tue-tuy.html"
 ---

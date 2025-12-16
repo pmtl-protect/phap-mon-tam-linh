@@ -1,6 +1,6 @@
 ---
-title: "Chánh Tín Chánh Niệm"
-date: 2025-12-15T22:19:51.858Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:12.988Z
 draft: false
 url: "/2025/12/chanh-tin-chanh-niem.html"
 ---

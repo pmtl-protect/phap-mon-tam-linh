@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.891Z
+title: "Hình Bồ Tát trên bàn thờ Phật nhỏ có kích thước nhỏ hơn khổ A4"
+date: 2025-12-16T01:10:54.504Z
 draft: false
 url: "/2025/06/hinh-bo-tat-tren-ban-tho-phat-nho-co.html"
 ---

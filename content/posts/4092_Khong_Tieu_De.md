@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.039Z
+title: "Làm thế nào để lập tức thoát khỏi trường khí xấu"
+date: 2025-12-16T01:11:11.559Z
 draft: false
 url: "/2024/11/lam-nao-e-lap-tuc-thoat-khoi-truong-khi.html"
 ---

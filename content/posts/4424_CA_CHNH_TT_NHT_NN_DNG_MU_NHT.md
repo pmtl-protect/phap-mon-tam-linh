@@ -1,6 +1,6 @@
 ---
-title: "CỬA CHÍNH TỐT NHẤT NÊN DÙNG MÀU NHẠT"
-date: 2025-12-15T22:19:51.972Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:13.162Z
 draft: false
 url: "/2025/12/cua-chinh-tot-nhat-nen-dung-mau-nhat.html"
 ---

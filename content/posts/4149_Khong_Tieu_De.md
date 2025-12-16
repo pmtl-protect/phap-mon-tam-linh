@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:51.166Z
+title: "Khong Tieu De - Can Sua"
+date: 2025-12-16T01:11:11.773Z
 draft: false
 url: "/2025/03/tai-phu-chinh-la-phuc-bao-cua-1-nguoi-1.html"
 ---

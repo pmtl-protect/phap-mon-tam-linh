@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:48.977Z
+title: "Sinh tiền cần niệm kinh, đột nhiên qua đời, đã tu thành Bồ Tát ở Thanh Văn Đạo"
+date: 2025-12-16T01:11:07.673Z
 draft: false
 url: "/2025/09/sinh-tien-can-niem-kinh-ot-nhien-qua-oi.html"
 ---

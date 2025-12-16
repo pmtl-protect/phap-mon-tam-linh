@@ -1,6 +1,6 @@
 ---
-title: "Khong_Tieu_De"
-date: 2025-12-15T22:19:41.474Z
+title: "Phải luôn nhớ rằng, nhất định phải mở rộng tấm lòng mình.Từ bây giờ, hãy bắt đầu rèn luyện bản thân:"
+date: 2025-12-16T01:10:53.903Z
 draft: false
 url: "/2025/06/phai-luon-nho-rang-nhat-inh-phai-mo.html"
 ---
