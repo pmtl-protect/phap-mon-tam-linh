@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.928Z
+draft: false
+url: "/2025/05/khi-gap-nghiep-chuong-nang-hoac-kho-nan.html"
+---
+
+Tiêu đề bài viết: Khi gặp nghiệp chướng nặng hoặc khổ nạn lớn, nên phát nguyện số lượng lớn Ngôi Nhà Nhỏ. Nội dung chi tiết: Nam thính giả: Trong "Phật Tử Thiên Địa Du Ký" mới nhất, Quán Thế Âm Bồ Tát khai thị: “Đồng nhi, hôm nay sư phụ bảo con: Khi gặp nghiệp chướng hoặc khổ nạn lớn, nên phát nguyện một số lượng Ngôi Nhà Nhỏ lớn hơn trong khoảng thời gian có thể hoàn thành. Sau đó chia thành từng đợt (mỗi đợt 21 tờ) để tụng niệm và đốt. Cách này hiệu quả hơn so với việc chỉ phát nguyện từng đợt 21 tờ mà không có tổng số lượng cụ thể." Xin hỏi số lượng "lớn" mà Bồ Tát đề cập thường là bao nhiêu tờ? Sư Phụ trả lời: Từ 108 tờ trở lên. (Về phần Bồ Tát Quán Thế Âm dạy “tụng và đốt từng đợt 21 tờ”, thì một đợt 21 tờ đó là tụng và đốt một lần 21 tờ, hay là chia làm ba lần, mỗi lần 7 tờ – tổng cộng 21 tờ được tính là một đợt?) Cách nào cũng được. Wenda 20200918 23:16 \*\*\*\*\*\*\*\*\*\* Wenda20200918 23:16 【遇到大的苦難和業障，許一個大數目的小房子更好】 男聽眾：最新的《佛子天地遊記》中觀世音菩薩開示：「童兒，為師今天告訴你，遇到比較大的苦難和業障可許一個比較大數目的小房子，在某個你們做得到的期限完成。 然後再一撥一撥21張地念誦、燒送。這樣子的效果比你們許一撥21張21張卻沒有給一個明確的數目來得好。」佛友想問，這個大數目的小房子一般是多少張？ 台長答：108張以上（這裡觀世音菩薩講「一撥一撥21張地念誦、燒送」，這一撥21張是指的一次性21張，還是7張、7張分三個「7」叫21張一撥？）都可以。 .

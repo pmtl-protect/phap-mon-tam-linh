@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.028Z
+draft: false
+url: "/2025/08/nguoi-hoc-phat-che-cho-cho-nguoi-nha.html"
+---
+
+Tiêu đề bài viết: Người học Phật che chở cho người nhà như thế nào ? Nội dung chi tiết: Nam Thính Giả: Chúng con học Phật có thể che chở cho người trong nhà, việc che chở cho người nhà này là ở mức độ nào ạ? Được đo lường bằng việc tiêu trừ được bao nhiêu nghiệp chướng? Hay là có tiêu chuẩn gì không ạ? Đài Trưởng đáp: “Việc 'che chở cho người nhà' là như thế này, : ví dụ như con là người tu hành rất tốt, học Phật rất sâu, che chở ở dương gian chính là nói anh ấy thấy con học Phật rồi, tu tâm rồi, anh ấy cũng sẽ trở nên ngày càng nhã nhặn hơn, cũng sẽ không cãi vã nữa, bản thân điều này chính là đang che chở cho anh ấy; Còn có một khía cạnh khác nữa, vốn dĩ anh ấy có nghiệp chướng, bởi vì sau khi con học Phật thì anh ấy cũng theo con học Phật, nghiệp chướng của anh ấy cũng tiêu trừ nhanh hơn, chịu ảnh hưởng từ trường khí của con. 'Che chở' không hoàn toàn có nghĩa là con có thể dùng trường khí của mình để che chở cho anh ấy, mà là trường khí của con ảnh hưởng đến anh ấy, thiện đức, thiện ý và thiện hạnh của con đã ảnh hưởng đến việc anh ấy muốn tu tâm học Phật. Shuohua20150306 02:20 学佛人如何庇荫家人 男听众：我们学佛人可以庇佑到家里的人，这个庇佑到家里人是什么程度？以业障消除多少衡量？还是有什么标准？ 台长答：“庇荫家里”是这样的，比方说你这个人修得很好，学佛学得很深，在阳间庇荫，就是说他看你成佛了，修心了，他也会变得越来越文雅，也会变得不吵，这本身就是在庇荫他；还有一种，他本来有业障的，因为你学佛之后他跟着你学佛了，他的业障也消得快了，受你的气场影响。“庇荫”并不是完全说你能够用你的气场来庇荫他，而是你的气场来影响他，你的善德、善意和善行已经影响到他要修心学佛了。 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

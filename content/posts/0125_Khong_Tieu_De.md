@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.778Z
+draft: false
+url: "/2025/03/nguoi-sinh-vao-mung-1-va-15-co-moi-lien_3.html"
+---
+
+Tiêu đề bài viết: NGƯỜI SINH VÀO MÙNG 1 VÀ 15 CÓ MỐI LIÊN HỆ SÂU SẮC VỚI ÂM LUẬT VÀ THIÊN LUẬT Nội dung chi tiết: NGƯỜI SINH VÀO MÙNG 1 VÀ 15 CÓ MỐI LIÊN HỆ SÂU SẮC VỚI ÂM LUẬT VÀ THIÊN LUẬT Shuohua20141010 16:01 Nữ thính giả : Những đứa trẻ sinh vào ngày mùng 1 và 15 có gì khác so với những đứa trẻ sinh vào ngày thường không? Đài Trưởng đáp: Có khác biệt. Những đứa trẻ sinh vào mùng 1 và 15 có cảnh giới và mối quan hệ đặc biệt sâu sắc với cõi âm, với địa phủ. (Ồ, con của con sinh vào mùng 1.) Những đứa trẻ sinh vào mùng 1 có thể sẽ trở thành người rất tốt hoặc rất xấu; hoặc là đại Bồ Tát, hoặc là tiểu quỷ, hay những người bên cạnh Diêm Vương ở địa phủ, thậm chí có thể là những vong linh đến để đòi nợ. Bất cứ ai có mối quan hệ sâu sắc với Âm Luật hoặc Thiên Luật đều có khả năng được sinh ra vào mùng 1 và 15. (Có người từng tính toán và nói rằng con của con là tiểu đồng tử từ trên trời giáng xuống.) Vậy thì để thầy nói cho con biết, dù sao đi nữa, người sinh vào mùng 1 và 15 luôn có điểm khác biệt với người khác. Nếu họ không nỗ lực tu dưỡng, thì thật là đáng tiếc, vì họ có thể đánh mất tuệ mạng của mình. (Ồ, con nghĩ đa phần những người này là từ thiên giới xuống đúng không?) Ừm, con hiểu chưa? Shuohua20141010 16:01 初一十五出生的人与阴律天律关系深 女听众：初一十五出生的孩子和平时出生的孩子有没有什么不同啊？�台长答：有不同。初一十五出生的孩子境界各方面，跟冥界、跟地府都关系特别深（哦，我们家孩子是初一出生的）初一出生的孩子要么就是很坏的人，要么就是很好的人；要么就是大菩萨，要么就是小鬼、地府阎王边上的人，或者来要债的。凡是跟阴律关系特别深的、跟天律关系特别深的都有可能初一十五生出来（有人给算过是天上的小童子下来的）那我就跟你说了，反正初一十五就是与人家不一样的。所以初一十五出生的人不好好努力很可惜的，他会断了他的慧命（哦，我觉得一般都是天上下来的多吧）嗯，明白了吗！

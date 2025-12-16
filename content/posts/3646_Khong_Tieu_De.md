@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.903Z
+draft: false
+url: "/2025/11/vo-chong-nao-se-nuoi-day-ra-ua-con-ay.html"
+---
+
+Tiêu đề bài viết: Vợ chồng thế nào sẽ nuôi dạy ra đứa con thế ấy. Nội dung chi tiết: Mối quan hệ giữa hai vợ chồng tốt hay xấu, hoàn toàn ảnh hưởng đến sự trưởng thành lành mạnh và tính cách của con trẻ. \* Nếu một cặp vợ chồng, cha mẹ yêu thương nhau, tính cách của con sẽ khỏe mạnh và hoạt bát. \* Nếu tình cảm của cha mẹ lạnh nhạt, con cái sẽ rất bướng bỉnh và ích kỷ. \* Nếu mẹ lấn lướt, cha nhu nhược, thì bé trai thường sẽ khá nhát gan, hơn nữa còn có chút tự ti. \* Nếu cha mẹ ly hôn quá sớm, con cái sẽ trở nên ngày càng lãnh đạm, thiếu cảm giác an toàn. \* Nếu cha mẹ mỗi ngày đều sống trong sự chỉ trích lẫn nhau, con cái sẽ rất nhạy cảm, thích tìm cớ (viện lý do), hơn nữa còn rất cố chấp và không nghe lời. \* Nếu cha mẹ hay đánh nhau, con cái sẽ thích bạo lực, tính khí nóng nảy, cọc cằn. Gia đình hòa thuận thì mọi việc đều hưng thịnh, đất bùn cũng hóa thành vàng. Chuyện gia đình không có đúng sai, chỉ có gieo Nhân Quả. —— Sydney, ngày 11 tháng 2 năm 2018 什么样的夫妻就会培养出什么样的孩子。夫妻两个人关系好坏，完全影响着孩子的健康成长和他们的性格。 如果一对夫妻，爸爸妈妈恩爱，孩子的性格健康开朗； 如果爸爸妈妈的感情淡薄，孩子就非常任性和自私； 如果妈妈强势、爸爸懦弱，这个男孩子一般是胆子比较小，而且有点自卑； 如果爸妈过早地离婚了，孩子就会变得越来越冷漠，没有安全感； 如果爸爸妈妈每天活在相互指责当中，孩子就会非常敏感，爱找借口，而且非常地执着，不听话； 爸爸妈妈如果爱打架，孩子就喜欢暴力，脾气大、暴躁。 家和万事兴，黄土变成金，家事无对错，只有种因果。 —— 180211 悉尼 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

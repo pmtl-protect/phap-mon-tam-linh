@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.114Z
+draft: false
+url: "/2024/11/y-nghia-cua-khau-nghiep-trong-chu-tinh.html"
+---
+
+Tiêu đề bài viết: Ý nghĩa của “khẩu nghiệp” trong Chú Tịnh Khẩu Nghiệp Chơn Ngôn Nội dung chi tiết: Thính giả: Con muốn hỏi một vấn đề, ví dụ như sau khi ăn mặn thì cần niệm Chú Tịnh Khẩu Nghiệp Chơn Ngôn Vậy “khẩu nghiệp” trong bài chú này có cùng ý nghĩa với “khẩu nghiệp” trong tam nghiệp “thân, khẩu, ý” mà chúng ta thường nhắc đến không? Sư phụ: Không giống nhau. Nếu con ăn các món có tính cay nóng, có thể niệm Chú Tịnh Khẩu Nghiệp Chơn Ngôn; nhưng nếu là những lời con nói ra, thì Tịnh Khẩu Nghiệp Chơn Ngôn không thể thanh lọc được. Khi đó, con phải niệm Chú Thất Phật Diệt Tội Chơn Ngôn và Lễ Phật Đại Sám Hối Văn. Bởi vì lời nói của con người có sức mạnh xuyên thấu vô lượng vô biên, chỉ một câu nói cũng có thể làm người khác tức giận đến mức đau lòng. Nếu ai đó nói những lời độc ác, người nghe có thể buồn phiền suốt đêm, một tuần, một năm, thậm chí cả đời. Con nghĩ rằng chỉ niệm Chú Tịnh Khẩu Nghiệp Chơn Ngôn có thể tiêu trừ được những tác động này sao? �9、净口业真言中“口业”的含义 听众：请教一个问题，比方说吃荤的之后要念净口业真言，这里面的口业和平时讲的“身口意”三业里的口业是不是一个概念？ 台长：不一样。如果你吃了辛辣的食物，可以念净口业真言；但你说的话，净口业真言就清除不了，要念七佛灭罪真言和礼佛大忏悔文。因为人说出来的话，有无量无边的穿透力，一句话可以把人家气死，穿透人家心脏。如果一个人说话很恶毒的话，会让人家气一个晚上、一个星期、一年，甚至一辈子。你说念净口业能够消除吗？ Đề tài giảng dạy tuyệt vời của Thầy Lư: Chăm sóc khẩu miệng thật tốt - 2014-02-08 https://lujunhong2or.com/卢台长精彩开示专题：善护口业

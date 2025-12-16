@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.146Z
+draft: false
+url: "/2025/09/ve-vi-tri-cu-khi-chap-tay-cham-tran-anh.html"
+---
+
+Tiêu đề bài viết: Về vị trí cụ thể khi chắp tay chạm trán đảnh lễ Nội dung chi tiết: Nữ thính giả: Con xin cảm ơn Bồ Tát, cảm ơn sư phụ. Chúc mừng pháp hội New Zealand của sư phụ viên mãn thành công, sư phụ đã vất vả nhiều rồi! (Cảm ơn) Có đồng tu khi đảnh lễ sẽ chắp tay rồi đưa lên đỉnh đầu một cái. Xin hỏi sư phụ, vị trí đảnh lễ đó nên đặt ở đâu ạ? Đài Trưởng đáp: Vị trí đảnh lễ chính là ở ngay giữa trán, tức là phía trên lông mày. Tốt nhất là để trên lông mày, không nên để ngay chính giữa lông mày, vì nếu đặt ngay giữa lông mày thì lúc đó bất kỳ ý nghĩ nào của con cũng rất dễ để chư thiên biết được. Điều đó giống như một sự cảnh báo, nghĩa là con đang trực tiếp bày tỏ với chư Phật Bồ Tát trên trời. Còn nếu đặt cao hơn một chút thì đó là một hình thức cầu nguyện hoặc thể hiện sự cung kính với Bồ Tát. (Nếu chắp tay đảnh lễ trên đỉnh đầu như vậy, có thể giúp chúng con trừ bỏ tạp niệm, khai mở trí tuệ không ạ?) Đúng vậy. Bởi khi hai tay con chạm vào trán, tư tưởng và ý niệm của con sẽ tập trung ngay tại trán, lúc đó những tạp niệm sẽ hoàn toàn biến mất. Vì con người có cảm giác tiếp xúc, hễ tay chạm vào da thì những tạp niệm khác sẽ tạm thời tan biến. (Con cảm ơn sư phụ). Wenda20191115 00:37 \*\*\*\*\*\*\*\*\*\* 【关于在额头合十顶礼的具体位置】 女听众：感恩菩萨，感恩师父。恭贺师父新西兰法会圆满成功，师父辛苦了！（谢谢）有同修会合十在头顶顶礼一下，请问师父，这个顶礼的位置应该是在哪里？ 台长答：顶礼的位置就在额头的当中，就是眉毛的上面，最好是顶在眉毛的上面，不要顶在眉毛当中，因为顶在眉毛当中，当时任何的想法很容易会被天上知道，这个等于是告诫，就是告诉天上的菩萨。顶在上面一点就是一种祈祷或者就是一种给菩萨的敬礼，恭敬（如果在头顶这样顶礼一下，是不是能够帮助我们去除杂念、开启智慧？）对，因为当你两个手碰到了你的额头，你的思维、意念会集中到额头上，你当时的杂念就会全部都没了，因为人有触感嘛，一接触到皮肤的话，其他的一些杂念就会暂时漏空的（感恩师父） Wenda20191115 00:37

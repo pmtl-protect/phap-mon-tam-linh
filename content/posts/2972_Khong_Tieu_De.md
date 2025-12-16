@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.867Z
+draft: false
+url: "/2025/08/vo-chong-co-moi-quan-he-khong-tot-ac.html"
+---
+
+Tiêu đề bài viết: Vợ chồng có mối quan hệ không tốt ác duyên quá nặng, có thể một lần phát nguyện niệm 10.000 biến Giải Kết Chú Nội dung chi tiết: Lư Đài Trưởng Giải Đáp Thắc Mắc Qua Thư (637) (Khai thị ngày 21 tháng 4 năm 2015) Hỏi: Sư Phụ có khai thị trong một dịp lễ gần đây, nếu như vợ chồng có mối quan hệ không tốt ác duyên quá nặng, có thể một lần phát nguyện niệm 10.000 biến Giải Kết Chú , thì mọi việc sẽ tốt đẹp trở lại. 1Đồng tu muốn hỏi, xung quanh anh ấy có một đôi vợ chồng đồng tu ác duyên rất nặng, đã niệm hơn 100 tấm Ngôi nhà nhỏ để hóa giải ác oán kết nhưng đều vô ích. 2Với trường hợp này, có thể làm theo khai thị của Sư Phụ mà phát nguyện niệm 10.000 biến Giải Kết Chú không? 3 Đáp: Được. 4 Hỏi: Cũng có thể áp dụng để giải quyết mâu thuẫn,oán kết giữa mẹ con, giữa những người thân trong gia đình, đều có thể niệm như thế phải không? Đáp: Được. 5 Hỏi: Sau khi phát nguyện niệm 10.000 biến, Kinh bài tập hàng ngày vẫn niệm 49 hoặc 108 biến vẫn được phải không? Đáp: Được. 6 \[Lưu ý: Sau khi phát nguyện với số lượng lớn, mỗi ngày có thể niệm không giới hạn số biến \] 卢台长开示解答来信疑惑（六百三十七）（开示于2015年4月21日） 问：师父最近在节目里开示，如果夫妻关系不好，恶缘很深的话，可以一次许愿念1万遍解结咒，就会好起来。同修想问，他周围有一对同修夫妻恶缘特别深，念了100多张化解冤结的小房子都不管用，像这种情况可不可以按照师父开示的许愿1万遍解结咒？ 答：可以。 问：母子之间、亲戚之间的冤结，是不是也可以这样念？ 答：可以。 问：是不是许愿1万遍之后，每天就按照49遍、108遍这样做功课就可以了。 答：是。【注：许愿大数字以后，也可以每天不限遍数念诵。】

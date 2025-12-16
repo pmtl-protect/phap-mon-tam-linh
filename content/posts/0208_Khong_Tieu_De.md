@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.988Z
+draft: false
+url: "/2025/07/neu-that-su-co-mot-chut-than-thong-thi.html"
+---
+
+Tiêu đề bài viết: Nếu thật sự có một chút thần thông, thì không được tham danh lợi Nội dung chi tiết: Phải có tấm lòng rộng lớn. Khi năng lực của một người càng lớn, thì lòng dạ càng rộng, hai thứ này tỉ lệ thuận với nhau. Nếu đã có năng lực, thì nhất định phải có tấm lòng rộng rãi. Nếu trong việc làm người, tu hành mà không có lòng dạ rộng lớn, thì cũng như không có năng lực. Vậy lòng dạ rộng lớn dựa trên nền tảng gì? Là dựa trên việc có thể nhìn rõ tốt xấu, thiện ác, oán hận, nghiệp chướng — tất cả phải phân biệt cho rõ ràng, thì mới thấy được sự thật. Lúc đó, tấm lòng của bạn tự nhiên sẽ rộng mở. Nếu có một chút thần thông mà đi vào đường tà, thì sẽ rơi vào cảnh vạn kiếp không thể quay lại. Dùng một chút thần thông mà chư Phật Bồ Tát ban cho, rồi đi vào tà đạo, thì dù đã trải qua mười ngàn kiếp cũng không thể được đầu thai làm người nữa. Nếu lợi dụng một chút hiểu biết, một chút năng lực, một chút thần thông, một chút linh cảm trên thân mình để lừa gạt tiền bạc, làm chuyện xấu, thì người này sau này sẽ rơi vào cảnh vạn kiếp không thể quay đầu. 如果真的有点神通力，要不贪图名利，要有宽阔的胸怀。当一个人的能力越大，心胸就越开阔，是成正比的，如果有能力，必须要有宽阔心胸，如果在做人修行中没有宽阔的心胸，就等于没有能力。这个心胸是建立在什么基础上的？是建立在能看清楚好和坏、善与恶，冤家、孽债都要分得清清楚楚时，才能看清事实真相，这时你的心胸自然会宽阔。 如果有点神通力而走入邪道，将落入万劫不复之境。利用佛菩萨给的一点神功，走入邪门歪道，就是已受过一万个劫都不能再投人，如果利用自己身上懂得的一点东西或一点点功能，一点点神通，一点点灵感来骗人钱财，做坏事，这个人以后就会落入万劫不复之境。 Học Phật chính là học làm người, đèn sáng phải thắp trong tâm 学佛就是在学做人，光明灯要点在心中 (BHFF 2 - 5)

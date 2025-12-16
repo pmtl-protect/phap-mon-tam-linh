@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.670Z
+draft: false
+url: "/2025/01/vi-sao-phu-nu-mang-thai-nen-thap-huong.html"
+---
+
+Tiêu đề bài viết: Vì sao phụ nữ mang thai nên thắp hương ở nhà vào mùng 1 Tết Nội dung chi tiết: Ngời nghe nam: Vì sao phụ nữ mang thai nên thắp hương ở nhà vào ngày mùng 1 Tết? Lư Đài Trưởng: Có hai lý do. Thứ nhất, ở dương gian, người ta nói rằng thai nhi dễ bị động thai. Con nghĩ mà xem, chùa chiền vào dịp Tết đông đúc chen lấn thế nào, đặc biệt khi đốt hương đầu năm. Thứ hai, phụ nữ mang thai mang theo "họa huyết quang" và hồn phách của đứa trẻ vẫn chưa hoàn chỉnh. Con thử nghĩ xem, lúc đốt hương đầu năm ở chùa, không chỉ có Bồ Tát mà còn có rất nhiều vong linh. Nếu con không gặp được Bồ Tát mà chẳng may gặp phải vong linh thì sẽ ra sao? Đã có rất nhiều trường hợp thai nhi bị ảnh hưởng dẫn đến sẩy thai. \*\*\* 为何孕妇年初一在家上香较好 Wenda20140202B 50:13 男听众：孕妇为什么大年初一在家上香比较好？ “卢台长”答：两个问题，在阳间讲起来小孩子被挤掉，烧头香你说说看那庙里多挤啊，这是第一个。第二个，因为孕妇本身是带着一种血光的，她孩子魂魄还不齐。你看看庙上头香的时候，菩萨多鬼也多啊。你碰不到菩萨，碰见鬼怎么办啊？那小孩子跑了 流产的太多了

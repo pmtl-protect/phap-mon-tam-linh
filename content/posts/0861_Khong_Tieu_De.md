@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.715Z
+draft: false
+url: "/2025/05/ien-thoai-co-hinh-bo-tat-loi-phat-day.html"
+---
+
+Tiêu đề bài viết: Điện thoại có hình Bồ Tát, lời Phật dạy có mang vào nhà vệ sinh được không? Nội dung chi tiết: Huyền Nghệ Vấn Đáp Nữ thính giả: Trong buổi xem đồ đằng ngày 25/6, Sư phụ có nói một vị sư huynh trên tay có khí đen, có nghiệp chướng do xem nội dung Phật giáo trong nhà vệ sinh, vị sư huynh đó cũng thừa nhận. Xin hỏi Sư phụ, nếu hình nền điện thoại hoặc màn hình khóa là lời Phật dạy, mang điện thoại vào nhà vệ sinh có được không? Sư phụ Lư: Được, cái này không sao. Chỉ cần không xem, không xem nội dung Phật pháp trong đó là được (Vâng ạ) Đây là điều mà Hộ Pháp rất kiêng kỵ. Bạn đang làm những việc ô uế, đây rõ ràng là việc không sạch sẽ, sao có thể bất kính với Bồ Tát được! (Dạ vâng. Nếu trong điện thoại có hình Bồ Tát, mang vào được không?) Không mở lên thì không sao, nhưng nếu hiện ra hình ảnh thì không được (Dạ hiểu. Nhà vệ sinh và phòng tắm chung, khi không đi vệ sinh hay tắm mà chỉ giặt đồ, rửa đồ, lúc đó nghe ghi âm giảng của Sư phụ được không?) Được, cái này không sao. Tùy xem bạn đang làm việc gì. Wenda20200626 39:28 \*\*\*\*\*\*\*\*\* 【手机有佛言佛语、菩萨像，能否带进卫生间【玄艺问答】】 🔸女听众：在6月25日的图腾中，师父说到有位师兄胳膊上有黑气、有业障，因为他在厕所看佛教内容，师兄承认了。请问师父，如果手机屏保或手机桌面是佛言佛语，手机拿进厕所可以吗？ 🔹台长答：可以，这个不会的。就是不要看，不要在里边看佛法的东西（好的）这是犯护法神忌讳的。你在做那些肮脏的事情，这个毕竟是脏的事情，你怎么可以……对菩萨不尊重啊！（是的。如果手机里有菩萨像能带进去吗？）不开有什么关系？开了等于显化出来，就不行了（好的。厕所和卫生间一起的，在不上厕所或者洗澡的时候，而是洗衣服、洗东西，那个时候可以听师父录音吗？）可以，这没关系。要看你做什么事情。 ——Wenda20200626 39:28

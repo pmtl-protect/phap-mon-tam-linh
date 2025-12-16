@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.382Z
+draft: false
+url: "/2025/01/tien-cua-nguoi-khac-chuyen-vao-tai.html"
+---
+
+Tiêu đề bài viết: Tiền của người khác chuyển vào tài khoản của mình sẽ tiêu tán phước báo của chính mình. Nội dung chi tiết: Đệ Tử Hỏi: Sư phụ trước đây đã chỉ dạy, việc để tiền của người khác vào tài khoản của mình có thể khiến mình chịu nghiệp, và đồng thời tiêu tán phước báo của bản thân. Trước đây, có người đã chuyển tiền vào tài khoản cá nhân của con, sau đó con lại thống nhất thanh toán các khoản phí , như vậy cũng sẽ tiêu tán phước báo của con sao ạ ? Đáp: Trước hết, Thầy sẽ kể cho con một câu chuyện. Có một người, khi còn nhỏ, thầy bói nói rằng tiền bạc của anh ta sẽ nhiều đến mức không thể đếm hết. Sau đó, anh ta làm việc tại ngân hàng. Anh ta có phước không? Có, nhưng là tiền của người khác, dùng hết rồi. Vì thế, đừng tùy tiện nhận tiền của người khác, không phải của con , khi con nhận nó tức là con đang gánh nghiệp cho người ta. Tiền của người khác chuyển vào tài khoản của con , ngay cả khi con giúp họ chi tiêu, phước báo của con cũng sẽ theo đó mà đi mất. — Giải đáp những thắc mắc qua Thư (Số 269) Blog của Lư Đài Trưởng : https://lujunhong2or.com/ 1. 菩萨慈悲加持，肝病入院3天，各项指标正常，身体完全康复 2. 学佛六个月，治愈身上多种顽固疾病 3. 观世音菩萨慈悲保佑儿子脱离险境，成功要回拖欠的工资 4. 菩萨保佑妈妈过79岁关劫 http://qiangzer00tu7ipol9.jtjszd9.buzz/fofa/xrpt1/forum.php?mod=viewthread&tid=65930 网友反馈 别人的钱转到自己账户 会用掉自己的福报 问:师父之前有开示,将别人的钱放在 自己户头上,就可能背业,并且用掉自 己的福报。之前别人把钱 打到我的个人账户,然后 我再统一支付费用,这样 也会用掉我的福报吗? 答:先讲个故事给你们听,有一个人, 小时候,算命的说他钱会多得数都数不过 来,后来他在银行工作。他有福吗?有, 点别人的钱,用完了。所以,不要随随便 便拿别人的钱,不是你的,你拿了就帮人 背了。别人的钱转到你账户上,就算你帮 他用出去,你的福报也跟着他一起跑。 【解答来信 —————解答来信疑惑(二百六十九) 卢台长博客: https://lujunhong2or.com/

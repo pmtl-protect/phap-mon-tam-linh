@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.591Z
+draft: false
+url: "/2024/11/thinh-gia-hoi-ve-viec-kinh-doanh-xuong.html"
+---
+
+Tiêu đề bài viết: Thính giả hỏi về việc kinh doanh xưởng rượu; không nên kiếm tiền từ những việc không nên Nội dung chi tiết: wenda20140629A 14:42 ❓Nữ thính giả: Anh trai con muốn đến đây để mở một xưởng rượu, anh ấy muốn chồng con giúp quản lý công việc kinh doanh. Thầy thấy anh ấy có nên giúp không ạ? 🪷Đài Trưởng đáp: Quản lý thì cứ quản lý thôi, có cách nào khác đâu. Nhưng vấn đề là đừng để chồng con đầu tư vào, vì khi hợp tác hay đầu tư với người khác, sau này dễ nảy sinh mâu thuẫn. Thực ra, người tu học Phật mà mở xưởng rượu cũng gián tiếp tạo nghiệp. Hãy suy nghĩ kỹ, đừng tham chút lợi ích ở thế gian. Việc nào nên làm thì làm, việc nào không nên làm thì đừng làm; tiền nên kiếm thì có thể kiếm, còn tiền không nên kiếm thì không được kiếm. Thầy chỉ nhắc con vậy thôi. Rất nhiều người gặp rắc rối, tham ô, tham nhũng, tại sao lại bị bắt? Chẳng phải là do họ đã kiếm những đồng tiền không nên kiếm sao? Tiền nên kiếm thì làm sao mà có chuyện gì được! -------------- Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 -------------- wenda20140629A 14:42 听众咨询关于酒庄的问题；不该赚的钱不能赚 女听众：我的哥哥要来这里开酒庄，他要我先生帮他管理生意，您觉得他应该帮吗？ 台长答：打理就打理了，有什么办法了，问题就是叫你先生不要投资不就好了，因为跟人家合作、投资的话，这种事情以后矛盾都出来了啊。实际上学佛的人开酒庄也是间接地有业障的。好好动动脑筋，不要贪人间的一点东西，该做的做，不该做的不做；该赚的钱可以赚，不该赚的钱不能赚。台长就告诉你这点话。很多人现在出事，贪污腐败，为什么被抓起来啊？不就是因为自己赚了不该赚的钱吗？该赚 的钱怎么会出事呢？！

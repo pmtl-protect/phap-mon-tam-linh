@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.517Z
+draft: false
+url: "/2025/03/van-menh-tai-loc-uoc-tich-luy-hay-tieu.html"
+---
+
+Tiêu đề bài viết: VẬN MỆNH TÀI LỘC ĐƯỢC TÍCH LŨY HAY TIÊU HAO PHỤ THUỘC VÀO NHÂN ĐÃ GIEO. Nội dung chi tiết: wenda20160415\_2646 Nam thính giả: Thưa Sư phụ, nếu trong mệnh có tài lộc nhưng bản thân không đi làm hoặc không làm ở nơi có thu nhập cao, thì phúc báo này sẽ được tích lũy để hưởng sau này hay qua vài năm là mất đi? Sư phụ trả lời: Sẽ không mất đâu. Cậu làm việc xấu có bị mất báo ứng không? Báo ứng có hết không? (Không, vẫn còn). Vậy làm việc tốt có thể không có báo ứng sao? Chỉ trừ khi cậu làm việc xấu che lấp dần những việc tốt, lúc đó mới thực sự mất. Nếu một người không làm việc xấu, thì tài vận và mọi vận may khác sẽ vẫn còn. Ta kể cho cậu một câu chuyện: Có một người phụ nữ, người ta nói rằng thời trẻ cô ấy có tài vận, nhưng suốt thời gian dài vẫn chẳng thấy đâu. Cô ấy chưa từng làm việc xấu, chỉ làm người giúp việc, khổ cực vô cùng, đi làm thuê cho người ta. Cuối cùng, khi chủ nhà qua đời, không ngờ toàn bộ tài sản đều được để lại cho cô ấy. Lúc đó cô mới hiểu rằng, hóa ra người ta nói cô có tài vận, nhưng mãi về sau nó mới đến! Bởi vì tài vận đó càng ngày càng tích lũy, thậm chí còn có cả "lãi suất" nữa. 命中财运积攒还是消耗取决于种的因 ———wenda20160415\_2646 男听众：師 父，如果命里有财运，但是自己没有上班或者去高收入的地方上班，那么这些福报是攒到以后报，还是过了这几年财运就没有了呢？ 臺長答：不会没有的。你做坏事会没有吗？报应没了？（有）做好事会没有报应的？除非你做了坏事把你的好事慢慢地遮掉了，那就真的没了。如果你这个人不做坏事，所有的财运什么运都会有。我告诉你一个故事：有一个女的，人家说过她年轻的时候有财运，但是她一直没有。她从来不做坏事，就一直做佣人，苦得不得了，在人家家里帮佣，到最后这个主人死了，没想到把所有的财产全部给她。这个时候她才知道，原来人家说我有财运，是这么晚才有啊！那是因为它越聚越多了，还有利息呢。

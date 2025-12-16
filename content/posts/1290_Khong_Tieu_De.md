@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.673Z
+draft: false
+url: "/2025/04/con-nguoi-luon-co-thoi-quen-khi-nguoi.html"
+---
+
+Tiêu đề bài viết: Con người luôn có thói quen. Khi người khác bảo họ, "Đừng nghịch điện thoại nữa và đi ngủ đi", họ luôn nói, "Tôi sẽ chơi thêm vài phút nữa rồi đi ngủ". Kết quả là, họ chơi trong nhiều giờ. Nội dung chi tiết: Trong tiệc, nhiều người nói: "Tôi chỉ uống một ly thôi". Nhưng cuối cùng họ vẫn uống đến ly thứ hai, thứ ba, thứ tư... và trở về nhà trong tình trạng say xỉn. Mua sắm. ban đầu không có ý định mua, nhưng có người giới thiệu và cuối cùng mua về nhà cả mấy thùng mỹ phẩm. Đối với nhiều thứ, một khi đã bắt đầu thì sẽ có sự đột phá, và cuối cùng chắc chắn sẽ có hậu quả. Bồ Tát dạy chúng ta, giữ giới thì không thể cho mình bất kỳ điểm đột phá nào. Tết Nguyên Đán, ánh sáng Phật giáo chiếu rọi Sydney - Tu hành cả đời nhờ Bồ Tát – Lư Đài Trưởng, tóm tắt giảng pháp tại “Hội nghị Phật hữu thế giới” ở Sydney ngày 26 tháng 1 năm 2019 (phần 1) 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp, Con có gì sai sót, không đúng Lý, đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. 【人总是有一个习惯...】 人总是有一个习惯，别人跟他说：“你不要玩手机了，马上睡觉吧。”他总是说：“我再玩几分钟，马上睡觉。”结果一玩就是几个小时。酒席上，很多人说：“我就喝一杯。”结果第二杯，第三杯，第四杯……大醉而归。买东西，本来不想买的，被人推荐了，最后买了整整的几大箱化妆品回家。很多事情一旦有个开始，就是有一个突破口了，最后就一定会有果报。菩萨教育我们，守戒就不能给自己有任何的突破口。 新年悉尼佛光照 一生修行菩萨靠——卢台长2019年1月26日悉尼“世界佛友见面会”开示摘要（上）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.325Z
+draft: false
+url: "/2025/08/truong-ky-mat-ngu-nen-niem-kinh-nao.html"
+---
+
+Tiêu đề bài viết: Trường kỳ mất ngủ nên niệm kinh nào? Nội dung chi tiết: wenda20131208B 26:41 🟡🟡Trường kỳ mất ngủ nên niệm kinh nào? 🌸Nữ Thính Giả: Thưa Sư Phụ, Trường kỳ mất ngủ nên niệm kinh nào? 🪷🪷Đài Trưởng: Một người nếu mất ngủ trường kỳ giới y học nói là nội tiết tố mất cân bằng nghiêm trọng. Người nội tiết tố mất điều hòa nghiêm trọng có liên quan trực tiếp đến tâm lý của họ, sự sợ hãi, lo lắng, ưu sầu kéo dài sẽ gây ra mất ngủ (🌸Nữ Thính Giả: phải làm sao mới có thể hóa giải?). 🪷🪷Đài Trưởng : Cần niệm nhiều Tâm Kinh, để tâm hồn mình trở nên rộng mở; cần niệm nhiều Đại Bi Chú, tăng cường năng lượng của mình; cần biết sám hối, quên đi những ưu tư và buồn phiền trong quá khứ, như vậy mới có thể từ từ điều chỉnh tốt nội tiết tố. 🌸Nữ Thính Giả: (Tâm Kinh một ngày niệm bao nhiêu biến?). 🪷🪷Đài Trưởng : Nên niệm 27 biến 🌸Nữ Thính Giả: có cần khẩn cầu Bồ Tát không? 🪷🪷Đài Trưởng : Cần khẩn cầu. Đại Bi Chú mỗi ngày niệm 9 biến, Lễ Phật Đại Sám Hối Văn niệm 3 biến (cái này là ngoài Bài Tập hàng ngày phải không?). 🪷🪷Đài Trưởng : Con có thể đưa vào công khóa, không sao cả (một ngày Lễ Phật Đại Sám Hối Văn niệm đến 5 biến được không?). Được. Trong quá trình con dịch và chia sẻ nếu có gì chưa đúng lý, đúng pháp xin chư Phật, Bồ Tát,Long thiên hộ pháp , Sư phụ từ bi tha thứ cho con 🙏🙏🙏 wenda20131208B 26:41 长期失眠如何念经 女听众：长期失眠要念什么经？ 台长答：一个人如果长期失眠，医学界讲内分泌严重失调。内分泌严重失调的人和他的心理有着直接的关系，长期的恐惧、担忧、忧愁会造成他失眠（要怎样才可以化解呢？）要多念心经，让自己的心胸开阔；要多念大悲咒，增加自己的能量；要懂得忏悔，把自己过去的忧愁和忧伤要忘记，这样的话才会慢慢地调节好内分泌（心经一天要念多少遍？）要念27遍（要跟菩萨求吗？）要求的。大悲咒每天念9遍，礼佛大忏悔文念3遍（这个是功课以外的是吗？）你可以把功课放进去，都没关系的（一天礼佛大忏悔文念到5遍可以吗？）可以。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.956Z
+draft: false
+url: "/2024/11/cach-niem-nnn-cho-nguoi-bi-benh-nang-va_2.html"
+---
+
+Tiêu đề bài viết: Cách niệm NNN cho người bị bệnh nặng và việc niệm kinh khi tổ tiên có nghiệp sát sinh gây ra bệnh nặng Nội dung chi tiết: Wenda20141005A 48:33 📞 Nam thính giả (cùng một cuộc gọi): Thưa Sư phụ, thường thì những người mắc bệnh nặng phải Phát nguyện niệm 800 NNN, vậy thì 1 đợt nên chia ra bao nhiêu NNN là tốt nhất? 🪷Sư phụ đáp: Đối với bệnh nặng thì cứ niệm liên tục thôi, có thể là 7, 21, hoặc 17 cũng được. Có thể niệm 13, 7, 9, 13, 17, hoặc 21 NNN đều được. (Nếu tổ tiên có nghiệp sát sinh thì phải niệm Vãng Sinh Chú phải không? Nếu bệnh nặng thì sao?) Nếu nghiệp sát sinh của tổ tiên ảnh hưởng đến con cháu, nhất định phải niệm, không niệm thì không được đâu. (Có nhất định phải niệm Vãng Sinh Chú không?) Phải niệm Vãng Sinh Chú và NNN. Nghiệp chướng này đã trở thành nghiệp nặng, là khối nghiệp lớn rồi, không còn là một nghiệp sát nhỏ nữa. (Vậy trong bài tập hằng ngày nhất định phải có Vãng Sinh Chú?) Đúng, trong Kinh bài tập phải có Vãng Sinh Chú. Hơn nữa, phải niệm NNN riêng biệt dành cho nghiệp sát sinh của tổ tiên. (Đúng đúng.) Và cả bài Kinh Đại Sám Hối nữa. (Gần đây có một đồng tu mới vào cũng gặp trường hợp như vậy.) wenda20141005A 48:33 有重病的人小房子怎么念；祖上有杀业重病怎么念经 男听众（同一电话的另一位听众）：师父，通常有重病的都许800张小房子，那最好是分大概一拨要念多少张比较好呢？ 台长答：生重病的话一直念啊，7张21张都可以，17张都可以，13张、7张、9张、13张、17张、21张都可以（祖上有杀业一定要念往生咒是吗？如果生重病的话）祖上有杀业如果影响到孩子的一定要念经，不念经不行的（一定要念往生咒吗？）往生咒和小房子，已经变成大业障了，业障块了，已经不是一种小的杀业了（所以功课里面一定要有往生咒）功课要有往生咒，而且针对自己祖上的杀业要专门念小房子（对对对）还有礼佛大忏悔文（最近有个刚进来的同修就是这个样子）

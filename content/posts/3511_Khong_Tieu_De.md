@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.522Z
+draft: false
+url: "/2025/02/a-tung-phat-nguyen-moi-nam-bai-ia-tang.html"
+---
+
+Tiêu đề bài viết: Đã từng phát nguyện mỗi năm bái Địa Tạng Vương Bồ Tát, nhưng không thể về được, phải làm sao để hoàn nguyện? Nội dung chi tiết: Wenda20200510 17:26 Đã từng phát nguyện mỗi năm bái Địa Tạng Vương Bồ Tát, nhưng không thể về được, phải làm sao để hoàn nguyện? Nữ thính giả: Một đồng tu trước khi học Phật đã từng phát nguyện mỗi năm vào ngày sinh nhật của Bồ Tát Địa Tạng sẽ đến bái Bồ Tát. Bây giờ, đồng tu này đã tu hành Pháp môn Tâm Linh và năm nay không có thời gian để trở về bái Địa Tạng Vương Bồ Tát. Liệu có thể trước mặt Quan Thế Âm Bồ Tát, theo cách mà Sư phụ đã dạy chúng ta, để khấn xin: "Con là ..., hôm nay quỳ trước Quan Thế Âm Bồ Tát, tưởng nhớ công ơn của Bồ Tát Địa Tạng, xin Quan Thế Âm Bồ Tát thay mặt con để cảm tạ Bồ Tát Địa Tạng." Làm như vậy có thể coi là hoàn nguyện không? Đài Trưởng đáp: Có thể được. ------------------------------------------ Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. ------------------------------------------ Wenda20200510   17:26 曾许愿每年拜地藏王菩萨，去不了该如何还愿 女听众 ：同修在未学佛之前，曾经许愿每年在地藏王菩萨圣诞日拜地藏王菩萨，现在他已经修心灵法门了，并且今年没有时间回去拜地藏王菩萨了。能否在观世音菩萨面前，按照师父以前教我们那样来祈求，“我某某某今天跪在观世音菩萨面前，缅怀地藏王菩萨的恩德，请观世音菩萨代表我来感恩地藏王菩萨”。这样做，是否可以算还愿？ 台长答 ：可以的。

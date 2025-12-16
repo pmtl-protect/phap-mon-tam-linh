@@ -1,0 +1,8 @@
+---
+title: "Nốt ruồi ở lòng bàn chân tốt hay xấu."
+date: 2025-12-15T22:19:51.667Z
+draft: false
+url: "/2025/12/not-ruoi-o-long-ban-chan-tot-hay-xau.html"
+---
+
+Nốt ruồi ở lòng bàn chân tốt hay xấu. Nữ thính giả: Lòng bàn chân của Con có một nốt ruồi, có phải là không tốt không? Đài trưởng đáp: Lòng bàn chân có nốt ruồi chứng tỏ con người này của con sẽ đi bốn phương, không lúc nào có thể ngồi yên một chỗ, luôn bận rộn,phải vận động không ngừng nghỉ mới có tiền. Nếu lòng bàn chân của con có nốt ruồi, Con sẽ phải đi rất xa, xưa gọi là “thông thiên lộ”. Các đường vân trên lòng bàn chân của người này không phải tròn đều chúng đều hướng lên trên gọi là “thông thiên lộ”. Người có “thông thiên lộ” rất có phúc khí, có thể đi nước ngoài, sẽ đi rất xa. Nữ thính giả: (Vâng, Con đã đi nước ngoài, Con từ Hồng Kông sang) Đài trưởng đáp: Con đến Úc rồi à? Nữ thính giả: (Vâng, từ Hồng Kông đến Úc. Con đang gọi đến từ Melbourne) Đài trưởng đáp: Ở Melbourne Con nghe được chương trình radio của chúng ta à? Nữ thính giả: (Vâng, Con nghe được. Khi thấy chương trình bắt đầu, Con liền gọi ngay) Đài trưởng đáp: Trước đây, Các Con gọi từ Melbourne về sau khi bắt máy không thể nghe thấy gì, bây giờ có thể nghe được liên tục, thật tốt quá! Nữ thính giả: (Vâng ạ) wenda20131129 05:38 脚底有痣好不好 女听众：脚底板在脚心上有一个痣，是不是不好？ 台长答：脚底板有一个痣说明你这个人走四方，什么时候都坐不住、稳不住，不停地要靠运动才能有钱。如果你的脚底有痣，你这个人会走得很远的，过去叫“通天路”。这个人脚掌的每一根线都不是圆的，全部都往上跑的就叫“通天路”。有“通天路”的人很有福气，而且可以出国，会跑很远的（是的，是出国了，我从香港过来了）你到澳洲了？（对，从香港到澳洲。我现在从墨尔本打来的）你在墨尔本听得到我们收音机的（听得到。所以我看着开始了，就马上打进来了）过去你们墨尔本打完电话就听不见了，现在可以继续听，多好啊（是的）

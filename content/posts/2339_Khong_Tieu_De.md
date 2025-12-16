@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.308Z
+draft: false
+url: "/2024/11/giac-mo-thay-ay-ca-sau-hon-ech-va-cac.html"
+---
+
+Tiêu đề bài viết: Giấc mơ thấy đẩy cá sấu, hôn ếch, và các hiện tượng khác Nội dung chi tiết: wenda20120203 05:50 Nữ thính giả: Một đồng tu nhiều năm trước có một giấc mơ, anh ấy mơ thấy ba con cá sấu, và anh ấy đã đẩy chúng xuống dưới. Sau đó, anh ấy mơ thấy mình ở bên hồ và hôn một con ếch, rồi con ếch biến thành một con cừu non. Cuối cùng, trên hồ xuất hiện một con bướm rất lớn, và trời trở nên tối đen. Đây là giấc mơ từ hơn mười năm trước, nhưng anh ấy vẫn nhớ rất rõ. Thầy đáp: Đồng tu này cần phải tu hành thật tốt. Có khả năng kiếp trước anh ấy từ cõi súc sinh mà đầu thai làm người, vì thế phước báu của anh ấy không được tốt lắm, và thường gặp nhiều tai họa. wenda20120203 05:50 梦见推鳄鱼、吻青蛙等 女听众:有一位同修很多年前做的梦，梦见三条鳄鱼，他把那个鳄鱼推下去了。然后梦见在湖边吻了一只青蛙，后来青蛙又变了绵羊。最后是湖上来了一只很大的蝴蝶，天就变黑了。这是他十多年前的梦，一直记得很清楚。 台长答:你这个同修叫他好好修啦，他有可能是畜生道投人的。所以他的福气不是太好，就是灾难比较 多。

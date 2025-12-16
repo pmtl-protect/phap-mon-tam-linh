@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.205Z
+draft: false
+url: "/2025/01/oan-ket-bung-phat-dinh-vao-kien-tung.html"
+---
+
+Tiêu đề bài viết: Óan kết bùng phát, dính vào kiện tụng phải làm sao Nội dung chi tiết: Thính giả nam: Người nữ sinh năm 1963, tuổi Mão. Trước đây cô ấy xây dựng một nhà máy, nhưng nhà máy này liên tục dính vào kiện tụng. Con muốn hỏi xem vụ kiện này cô ấy có thể thắng được không? Vì nó đã kéo dài nhiều năm rồi. Lư Đài Trưởng trả lời: Cô ấy có niệm kinh không? Thính giả: Có niệm kinh. Cô ấy là đệ tử của Thầy, tu học Phật pháp rất tinh tấn, và không ngừng độ người. Lư Đài Trưởng: Người đang kiện cô ấy trước đây từng có mối quan hệ rất tốt với cô, nhưng bây giờ óan kết của cô đã bùng phát. Đó là một người đàn ông, hiện tại rất lợi hại, và không muốn buông tha cho cô ấy. Hãy niệm Chú Giải Kết, từ từ mà niệm, niệm đủ 100.000 biến thì vấn đề mới có thể được hóa giải. Thính giả: (Ồ.) Lư Đài Trưởng: Sau khi niệm đủ 100.000 biến, có thể hai bên sẽ tìm được cách giải quyết riêng. Nếu có một người đứng ra làm trung gian hòa giải, có thể sự việc sẽ được giải quyết nhanh chóng hơn. Thính giả: Vậy cần phải niệm bao nhiêu Ngôi nhà nhỏ và phóng sinh bao nhiêu cá? Lư Đài Trưởng: Vẫn cần niệm 108 tấm Ngôi nhà nhỏ. Chú Giải Kết thì nhất định phải niệm, khi niệm kinh này phải nói rõ tên của đối phương. Thính giả: (Đã rõ, cảm ơn Sư phụ.) \*\*\* 冤结爆发官司缠身怎么办 Zongshu20200528 24:05 男听众：1963年属兔的女的，她之前建了一个工厂，工厂一直在打官司。我想问一下她的官司能否打赢？因为已经拖了很多年了。 “卢台长”答：她念不念经？（念经。她是您的弟子，学佛非常精进，不断地在度人）跟她打官司这个人过去跟她关系很好的，就是她自己冤结爆发了。是个男的，这个男的现在很厉害，不放过她。念解结咒，慢慢念吧，念10万遍之后才会好的（哦）10万遍念掉之后可能两个人才能私下……如果有一个人出来做和事佬，就是来双方打打招呼，这个事情说不定很快就解决了（那需要念多少张小房子或放多少生？）小房子还是要念108张，解结咒一定要念的，念解结咒报名字（好的，感恩师父）

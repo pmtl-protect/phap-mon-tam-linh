@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.840Z
+draft: false
+url: "/2025/01/quen-viet-ten-nguoi-kinh-tang-tren-ngoi.html"
+---
+
+Tiêu đề bài viết: Quên viết tên người kính tặng trên ngôi nhà nhỏ phải niệm Lễ Phật đại sám hối văn Nội dung chi tiết: Shuohua20190208 07:28 Nữ thính giả: Sư phụ trước đây khai thị nếu như quên viết tên phần kính tặng có thể niệm 21 hoặc 27 biến Lễ Phật đại sám hối văn để bù lại. Xin hỏi điều này có thời gian quy định không? Ví dụ có đồng tu mới, vào ngày 13 tháng trước đốt nnn nhưng hôm qua mới nhớ ra có mấy tấm nnn quên ghi tên cho người kính tặng. Xin hỏi trường hợp này có thể niệm lại hay thông qua niệm Lễ Phật đại sám hối văn để bù đắp. Lư đài trưởng đáp: Niệm Lễ Phật đại sám hối văn để bù lại tốt hơn. Bởi vì nếu ngày nào con cũng niệm Lễ Phật đại sám hối văn Bồ Tát sẽ gia trì cho con tiêu trừ rất nhiều nghiệp chướng ( Vậy trước đây nói đến niệm 21 hoặc 27 biến Lễ Phật đại sám hối văn để bù đắp có yêu cầu thời gian không?) Thông thường chỉ cần nguyện lực của con không có thay đổi gì thì Bồ Tát sẽ công nhận cho nguyện lực của con. Ta hỏi con 1 câu, Địa Tạng Vương Bồ Tát đã nói “ Địa ngục không trống không, nguyện không thành Phật”. Con nói xem có thời gian hiệu quả không? ( không có) Quán Thế Âm Bồ Tát “ hữu cầu tất ứng”, vậy có quy định thời gian hiệu quả không? Vậy nên đài trưởng giải thích liên tục cho con thì con hiểu được rồi ( Dạ vâng. Con hiểu) \*\*\* 忘记写小房子的敬赠人，要念礼佛大忏悔文 Shuohua20190208 07:28 女听众：师父之前开示过，如果忘记写小房子的敬赠人，可以念21遍或者27遍礼佛大忏悔文弥补。请问这有时效性吗？例如有位新同修上个月13日化掉的，但是昨天刚刚想起来有几张未写敬赠人。请问，这种情况可以重念还是通过念礼佛大忏悔文来弥补呢？ “卢台长”答：念礼佛大忏悔文弥补比较好一点。因为天天念礼佛大忏悔文的话，菩萨会给你消除很多业障的（那之前说过念21遍、27遍礼佛大忏悔文来弥补，有没有时效性？）一般只要你这个愿力没有改变的话，菩萨都是承认你过去的愿力的。我就问你一句话，地藏王菩萨说了“地狱不空，誓不成佛”，你说有时效性吗？（没有）观世音菩萨“有求必应”，有时效性吗？所以我一解释你就明白了（对，明白）

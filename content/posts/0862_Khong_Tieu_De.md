@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.717Z
+draft: false
+url: "/2025/05/tai-sao-noi-cong-cao-nga-man-la-thien.html"
+---
+
+Tiêu đề bài viết: Tại sao nói “cống cao ngã mạn là thiện nghiệp quấn thân”? Nội dung chi tiết: Wenda20180513B 01:04:31 Tại sao nói “cống cao ngã mạn là thiện nghiệp quấn thân”? Thính giả nam: Sư phụ, trong tập 8 của “Phật pháp Bạch thoại”, thầy có nói: “Tuyệt đối đừng để nghiệp lực quấn lấy mình, sư phụ nói với con mức độ cao hơn, nghiệp lực này không chỉ là ác nghiệp, mà cả thiện nghiệp cũng quấn lấy thân mình, cống cao ngã mạn chính là thiện nghiệp quấn thân.” Xin sư phụ chỉ dạy, tại sao nói cống cao ngã mạn là thiện nghiệp quấn thân? Đài Trưởng đáp: Người cống cao ngã mạn có phải là người đã tu rồi không? (Đúng ạ) Người không tu thì lấy đâu ra cống, lấy đâu ra ngã mạn? (Đúng) Khi con tu rồi, thành công rồi, con hiểu rồi, con giác ngộ rồi, con có cống rồi, nghĩ mình cống cao rồi, rồi trở nên “ngã mạn” — kiêu ngạo, tự mãn. Tại sao cống cao ngã mạn gọi là thiện nghiệp quấn thân? Bởi vì con cũng đang làm điều tốt, con vốn làm việc lành, nhưng khi làm việc lành mà lại sinh ra việc xấu, nên gọi là “thiện trung hữu nghiệp (trong thiện có nghiệp)” (con hiểu rồi). Wenda20180513B   01:04:31 为何说“贡高我慢是善业缠身” 男听众：师父，您在《白话佛法》第八册说：“千万不要让自己的业力缠身，师父给你讲的境界高一点，这个业力不单单指的是恶业，连善业都会缠绕你的身啊，贡高我慢就是善业缠身啊。”请师父开示，为什么说贡高我慢是善业缠身呢？ 台长答：贡高我慢的人是不是有修了？（是的）不修的人哪来的贡、哪来的慢？（对）你修了之后成功了，你懂了，你开悟了，你有贡了，觉得自己贡高了，然后就“慢”——骄傲起来了，骄傲自满了。为什么贡高我慢叫善业缠身？因为你也是善的，你本身做的是好事，但是做了好事你又做坏事了，所以叫“善中有业”（明白了）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.265Z
+draft: false
+url: "/2025/06/vi-pham-loi-nguyen-va-pham-khau-nghiep.html"
+---
+
+Tiêu đề bài viết: Vi phạm lời nguyện và phạm khẩu nghiệp sẽ bị phạt dựa trên nghiệp lực Nội dung chi tiết: Nữ thính giả: Có một đồng tu nói rằng cô ấy từng phát nguyện với Bồ Tát rằng sẽ không phạm khẩu nghiệp. Nhưng cô ấy cảm thấy mình không làm tốt, trong thời kỳ mãn kinh thường hay nổi giận, phạm khẩu nghiệp. Trường hợp như vậy thì nên làm sao? Sẽ có hậu quả gì? Đài Trưởng: Thực ra, điều này tùy theo nghiệp lực nặng nhẹ mà định. Nếu cô ấy chỉ phạm khẩu nghiệp một chút, thì niệm vài biến Lễ Phật Đại Sám Hối Văn cũng có thể hóa giải được, về sau đừng phạm nữa là được. Nhưng nếu cô ấy phạm khẩu nghiệp nghiêm trọng, tạo thành oán kết lớn, thì cần phải thật sự sám hối, không phải chỉ niệm một chút là có thể giải quyết được. Rất có thể điều đó sẽ trở thành một nghiệp chướng, nếu quá nặng còn có thể trở thành một vong linh. (Vậy cô ấy nên niệm kinh gì nhiều hơn?) Những trường hợp như vậy nên niệm nhiều Giải Kết Chú, và nhiều Lễ Phật Đại Sám Hối Văn, thì đều có thể tiêu trừ được. (Dạ, cảm ơn sư phụ.) Wenda20130802 39:29 违愿犯口业会很据业力来判 女听众：有个同修说她曾经跟菩萨许过愿：她不犯口业。但是她觉得自己没做好，更年期的时候老是发脾气、犯口业。像这样，她该怎么办，会有什么后果？�台长答：实际上这个是根据她的业力大小来判的。如果她稍稍地犯口业，念点礼佛也能过得去，以后不要再犯。如果她犯了大口业，成了大的冤结，那就要好好地忏悔了，不是一点点就能解决问题的。有可能会成为一个业障，太厉害还会成为一个灵性（那她要多念什么经文？）像这种多念念解结咒、多念念礼佛大忏悔文，应该都消得掉的（好的，谢谢师父） Wenda20130802 39:29

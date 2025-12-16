@@ -1,0 +1,8 @@
+---
+title: "Nhìn thấy động vật chết trên đường, khi niệm Vãng Sanh Chú có cần cầu nguyện cụ thể không?"
+date: 2025-12-15T22:19:51.992Z
+draft: false
+url: "/2025/12/nhin-thay-ong-vat-chet-tren-uong-khi_01307919643.html"
+---
+
+Nữ Thính Giả: Trong cuộc sống thường ngày, đôi khi đi trên đường chúng con nhìn thấy chuột chết hay các loài vật khác, vậy nếu trong tâm muốn niệm Chú Vãng Sanh thì có cần thưa trình cụ thể với Bồ Tát không ạ? Ví dụ như nói: “Con bây giờ xin niệm 21 biến Chú Vãng Sanh cho con chuột chết mà con vừa nhìn thấy”, hay là cứ thuận duyên mà niệm ngay, không cần dùng ý niệm dẫn dắt ạ? Đài Trưởng đáp: Đài Trưởng thường là thuận duyên liền niệm ngay thôi. Ý niệm của con vừa khởi thì tâm niệm cũng đã đến rồi, tâm niệm đến nơi thì Bồ Tát sẽ biết ngay. (Ồ, vậy không cần cố ý nói là cầu cho con vật mà con vừa nhìn thấy...) Vấn đề là sau khi con nói rõ ra như vậy, nếu Vong linh đó cứ đeo bám lấy con thì phải làm sao? Việc này cũng giống như một đằng là con xác nhận: “Tôi chịu trách nhiệm với nó”; còn một đằng là không xác nhận, chỉ là: “Tôi đang giúp đỡ nó mà thôi”. (Đã hiểu ạ, cảm ơn Sư Phụ). Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót, không Đúng Lý Đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. Shuohua20141128 18:24 路上看到死动物念往生咒要针对祈求吗 女听众: 我们日常生活中有时候路上看到死老鼠什么的，那心里念往生咒的话要不要跟菩萨针对性地说一下，比如说“我现在念21遍往生咒给刚才看到的那个死老鼠”，还是随手就可以拿来念，不要用意念？ 台长答: 台长是随手就念的，你意念一到心念就到了，心念到了菩萨就知道了（哦，不用刻意说给我刚才看到的……）问题是你讲了之后这个灵性就盯住你怎么办？就等于一个是申明我对它负责的；一个是不申明的，我在帮助它的（明白了，谢谢师父）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.284Z
+draft: false
+url: "/2024/11/cach-ghi-phan-kinh-tang-tren-nnn-cho.html"
+---
+
+Tiêu đề bài viết: Cách ghi phần kính tặng trên NNN cho quầy hàng ở chợ rau Nội dung chi tiết: ⭐ Cách ghi phần kính tặng trên NNN cho quầy hàng ở chợ rau 🌻 Khán giả nữ: Có một đồng tu có một quầy hàng ở chợ rau muốn hỏi Sư phụ, anh ấy nên ghi phần kính tặng trên NNN cho quầy hàng như thế nào? Chợ có tên và có cần ghi số quầy hàng không? Con nên ghi như thế nào nếu không có số quầy hàng? ☀️ Sư phụ trả lời: Anh ấy không thể ghi hết quầy hàng. Anh ấy không biết hết quầy hàng. Anh ấy chỉ có thể ghi tên mình vào quầy thôi. Ví dụ, anh ấy tên là Zhang XX, và anh ấy ghi"người cần kinh ở quầy hàng của Zhang XX" 🌻 Nữ thính giả: Con có nên viết tên chợ rau không ạ? ☀️ Sư phụ trả lời: Không, không cần thiết 🌻Nữ thính giả: Chỉ cần ghi người cần kinh của quầy hàng, phải không ạ? ☀️ Sư phụ trả lời: Không cần, chỉ cần "người cần kinh ở quầy " là được. 🔴 ( Để ghi loại NNN này với Phật Hữu tại VN , chúng ta chỉ cần ghi theo cách ghi NNN dành cho NCK của mình . Tuy nhiên khi Phát Nguyện , đọc lời thỉnh cầu trước khi niệm NNN , chấm NNN và đốt NNN này . Chúng ta cần Thỉnh cầu Bồ Tát , nói rõ NNN này gửi đến cho NCK trong quầy hàng của mình . Để cầu xin Bồ Tát sắp xếp ạ 🙏 ✨) ✨✨✨Wenda20180902A 17:21 给菜市场摊位的小房子该怎么写敬赠 女听众：有一个同修在菜市场是有摊位的，他想问师父，给摊位念小房子的敬赠处应该怎么写？菜场的名字是有的，摊位号码要写吗？如果没有摊位号码要怎么写？ 台长答：他不能写整个摊位，整个摊位他还不清的，他只能写自己名字的柜台，就可以了。比方说他叫张某某，敬赠“张某某柜台的要经者”（那要写菜市场的名字吗？）不要，用不着的（就写柜台房子的要经者，对不对？）用不着，“柜台的要经者”就行了。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.475Z
+draft: false
+url: "/2025/03/giac-mo-nhac-nho-ve-viec-oc-rong-rai.html"
+---
+
+Tiêu đề bài viết: Giấc mơ nhắc nhở về việc đọc rộng rãi "Bạch Thoại Phật Pháp", tiến bộ sẽ rất lớn Nội dung chi tiết: wenda20160108 01:33:12 Hỏi: Có một đồng tu sáng nay trong giấc mơ tỉnh lại và có một nhận thức: Áp dụng phương pháp đọc rộng rãi "Bạch Thoại Phật Pháp" sẽ mang lại tiến bộ lớn. Xin thầy giải thích ý nghĩa của điều này? Đáp: Điều đó rất rõ ràng rồi! Rất đơn giản, là bảo các con phải nhanh chóng học "Bạch Thoại Phật Pháp", hãy xem đi, nhanh chóng xem, đây là pháp nhân gian, dạy các con làm người! Nếu các con xem "Bạch Thoại Phật Pháp" tốt, các con sẽ là người rất thành công trong việc làm người, vì dùng Phật pháp và lời dạy của Bồ Tát để hướng dẫn chúng ta về cuộc sống và cuộc đời nhân gian. Rất nhiều người muốn tự tử, cảm thấy không thể hiểu được, nhưng khi xem "Bạch Thoại Phật Pháp" thì họ sẽ hiểu ra, sẽ có được sự sáng suốt. Các con phải đọc (dạ ,con hiểu rõ rồi ạ). Đừng nói về những điều khác, chỉ cần nói về những đứa trẻ trong đài phát thanh của chúng ta, mỗi đêm rất khuya, ba người họ tụ lại với nhau để đọc "Bạch Thoại Phật Pháp". Tiểu Vũ mỗi đêm cũng đọc "Bạch Thoại Phật Pháp", bây giờ đã trở nên giống như Bồ Tát, càng ngày càng tiến bộ hơn, ha ha… (Xin hoan hỷ với họ, cảm ơn thầy đã từ bi chỉ dạy). 梦中提示大面积阅读 《白话佛法》进步会很大 wenda20160108 01:33:12 问:有个同修早上梦里 醒来有个意识:采取大 面积阅读《白话佛法》 的方式,进步很大。 请师父开示一下, 什么意义吗? 答:那当然了!很简单了,叫你们赶紧学 《白话佛法》,看啊,赶快看,这是人 间之法,教你们做人啊!《白话佛法》 看得好的话,你这个人就是做人做得非 常成功的,因为用菩萨的佛法、法语来 指导我们人间的生命和生活。很多人要 自杀,想不通,一看《白话佛法》就想 通了,要看的(明白了)你不要说其他 了,就说我们电台里有几个小朋友,每 天晚上很晚了,他们三个人聚在那里读 《白话佛法》。小于每天晚上还读《白 话佛法》,现在变得咧像菩萨了,越 越厉害了,呵呵……(随喜他们,谢谢 师父慈悲开示)

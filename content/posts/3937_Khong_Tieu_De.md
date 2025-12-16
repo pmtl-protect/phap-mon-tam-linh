@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.648Z
+draft: false
+url: "/2025/01/vi-sao-tam-kinh-trong-ngoi-nha-nho.html"
+---
+
+Tiêu đề bài viết: Vì sao Tâm Kinh trong Ngôi Nhà Nhỏ nhiều hơn Chú Đại Bi Nội dung chi tiết: Người nghe nữ: Trong Ngôi Nhà Nhỏ, số lượng kinh Tâm Kinh nhiều hơn kinh Đại Bi, có phải bất kể là ở cõi người hay cõi q.uỷ, việc khai mở trí tuệ là vô cùng quan trọng đúng không? Lư Đài Trưởng đáp: Đúng vậy! Tâm Kinh có thể khai mở trí tuệ của chính mình, nâng cao cảnh giới của bản thân, hơn nữa còn có thể chuyển hóa thành một loại năng lượng. Nếu con niệm Tâm Kinh cho người ở cõi dưới, họ cũng rất hoan hỷ nhận, vì Tâm Kinh có thể chuyển hóa thành nhiều thứ hữu ích đối với họ. Người nghe nữ: Con hiểu rồi. wenda20130621 06:38 为何小房子上心经比大悲咒多 女听众：小房子里心经比大悲咒多，是不是不管在人道还是在鬼道，开智慧是非常重要的，是吗？ 台长答：那当然！心经能开自己的智慧，能够提升自己的境界，而且会变成一种能量。如果你念给下面，他们得到也是非常欢喜的，因为心经能够转换成很多对他们有用的东西 （懂了）

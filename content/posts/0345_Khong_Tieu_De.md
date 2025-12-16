@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.349Z
+draft: false
+url: "/2025/05/lam-nao-e-tranh-uoc-tham-hoa-thien.html"
+---
+
+Tiêu đề bài viết: 🍀Làm thế nào để tránh được thảm họa thiên nhiên trong thời Mạt pháp🪷 Nội dung chi tiết: Wenda20200816 17:55 Làm thế nào để tránh được thảm họa thiên nhiên trong thời Mạt pháp Thính giả nữ: Gần đây trong chương trình, Sư phụ thường xuyên nhắc tới việc khai thị Giải Kết Chú vượt qua kiếp nạn. Xin hỏi Sư phụ, có phải thiên thời hiện tại đang trong giai đoạn bùng nổ oán kết hay không ạ? Đài trưởng: Thiên thời hiện tại trong thời Mạt pháp giới Phật pháp gọi là thời kỳ Mạt pháp, thời kỳ Mạt pháp trên cơ bản chính là rất nhiều thiên tai đều sẽ đến, cho nên con người trải qua tương đối vất vả một chút. Vì vậy, mọi người càng phải thỉnh cầu Bồ Tát phù hộ, thỉnh cầu Bồ Tát phù hộ nhiều hơn, sau đó chính mình phải vượt qua khảo nghiệm, phải chịu khổ, con mới có thể tránh được rất nhiều thiên tai. Thính giả nữ: Con hiểu rồi ạ.

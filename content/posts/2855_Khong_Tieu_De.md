@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.597Z
+draft: false
+url: "/2025/04/nhiem-phai-ac-khi-cua-nguoi-khac-thi.html"
+---
+
+Tiêu đề bài viết: Nhiễm phải ác khí của người khác thì phải làm sao? Nội dung chi tiết: 🌻 Nam thính giả : Trong quá trình nhẫn nhục, nếu nhiễm phải ác khí của đối phương thì nên tụng kinh nào để hóa giải ạ? ☀️ Đài Trưởng đáp: Trong quá trình chịu đựng và nhẫn nhục, nếu con nhiễm ác khí của đối phương, chứng tỏ người này còn có duyên , con không nên nhiễm phải những thứ này từ họ. Con hôm nay nhiễm phải ,chứng tỏ thiện duyên của con không đủ. Vậy hôm nay con đã nhiễm phải rồi, phải làm sao? Điều đó rất đơn giản, nhiễm phải rồi thì hãy nghĩ thoáng ra, lấy quyển 《Bạch Thoại Phật Pháp》 của Sư phụ ra đọc, đi ra ngoài dạo một vòng, ngắm nhìn bầu trời, nghĩ về Bồ tát, nghĩ về nhân gian tất cả đều là hư không, nhân gian thật là nhỏ bé… Khi con nhìn lên bầu trời, con sẽ thấy vũ trụ, nhân gian, trái đất này nhỏ bé như vậy, con có là gì? Con còn giận dữ cái gì nữa chứ? 🌻(Cảm ân Sư Phụ từ bi khai thị!) ✨✨✨ wenda20150717 01:04:29 ☀️ 吃了人家的恶气怎么办 🌻 男听众：在忍辱过程中吃了对方恶气，该怎样念经化解？ ☀️ 台长答：忍辱负重过程中，如果对方恶气被你吃了，说明你这个人还有吃恶气的缘分，你就不应该去吃人家这些东西。你今天吃了，就说明你善缘不足。那么你今天吃了，怎么办呢？那很简单，吃了之后想开啊，拿本师父的《白话佛法》翻翻，出去走一圈，看看天空，想想菩萨，想想这个人间一切都空，人间是多么的渺小……当你眼睛看着天空的时候，你会觉得这个宇宙、这个人间、这个地球会如此的渺小，你算什么？你还生什么气啊？ 🌻（谢谢师父慈悲开示！） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

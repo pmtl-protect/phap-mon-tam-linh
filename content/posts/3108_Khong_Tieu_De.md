@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.280Z
+draft: false
+url: "/2025/07/nho-cung-mot-nguoi-phong-sanh-lieu-co.html"
+---
+
+Tiêu đề bài viết: Nhờ Cùng Một Người Phóng Sanh, Liệu Có Ảnh Hưởng Lẫn Nhau? Nội dung chi tiết: Nhờ Cùng Một Người Phóng Sanh, Liệu Có Ảnh Hưởng Lẫn Nhau? 🔷Nữ thính giả: Thưa Sư phụ, một đồng tu A đã giúp phóng sanh cho một bệnh nhân nặng và một phụ nữ mang thai. Cô ấy muốn hỏi liệu nghiệp chướng của bệnh nhân nặng có ảnh hưởng đến người phụ nữ mang thai kia không? 🟡 Đài Trưởng: Sẽ có một chút ảnh hưởng, nhưng sẽ không phải là gánh nghiệp quá nặng. Ví dụ, nếu là 100% thì cô ấy nhiều nhất cũng chỉ gánh khoảng 5% mà thôi. Wenda20200703  02:52 请同一人代放生，会否相互影响 女听众：同修 A 帮一个重症病人和一个孕妇代放生，他请问，重症病人的业障会不会影响到那个孕妇？ 台长答：会有一点的，但是不会背业背得很厉害，比方说 100% 的，她最多背个 5% 左右。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.254Z
+draft: false
+url: "/2025/03/cach-khac-phuc-khi-niem-sai-kinh-van.html"
+---
+
+Tiêu đề bài viết: Cách khắc phục khi niệm sai kinh văn trong Ngôi Nhà Nhỏ Nội dung chi tiết: Wenda20170903A 56:11 Nữ thính giả: Thưa Sư phụ, chào Sư phụ. Trong chương trình Đồ đằng hôm qua, Sư phụ khai thị rằng 30% Ngôi Nhà Nhỏ của một đồng tu niệm không có hiệu quả do niệm sai Tâm Kinh. Hiện cô ấy có mấy trăm tờ Ngôi Nhà Nhỏ tích lũy, xin hỏi phải bổ sung như thế nào? Mấy trăm tờ Ngôi Nhà Nhỏ này còn hiệu nghiệm không? Đài Trưởng: Bảo cô ấy mỗi tờ Ngôi Nhà Nhỏ bổ sung niệm 3 biến là được. (Dạ vâng.) Hãy thưa với Bồ Tát: “Con là người phàm nhục thai, xin Bồ Tát tha thứ. Nếu con có niệm Tâm Kinh trong Ngôi Nhà Nhỏ không như lý như pháp, nay con bổ sung mỗi tờ 3 biến, mong Đại Từ Đại Bi Quán Thế Âm Bồ Tát thương xót, đừng để con gánh hậu quả do lỗi lầm này. Con không muốn nhận quả báo, xin Bồ Tát từ bi cho con được sửa sai. Nếu tờ Ngôi Nhà Nhỏ nào thật sự có vấn đề, con xin Bồ Tát tha thứ và đừng trách phạt con." Cần nói rõ như vậy, sau đó tính lại số biến đã niệm trong mỗi tờ là được. \*\*\*\*\*\*\*\*\*\* Wenda20170903A 56:11 小房子中的经文有念错的补救 女听众：师父您好。在昨天的图腾节目中，师父开示同修所念的小房子30%没用，是心经念错了。现在她有几百张自存小房子，请问该如何补缺，这几百张小房子还有效吗？ 台长答：叫她每一张小房子补念3遍就好了（好）跟菩萨讲一讲：“我某某某凡人肉胎，菩萨原谅，如果我有小房子心经念得不如理不如法的时候，现在我每一张补3遍，请观世音菩萨能够原谅，能够不要对我做错造成后果，我不想有这种果报，请菩萨慈悲，我现在在弥补。如果实在这张小房子有问题，请菩萨能够原谅，不要再惩罚我。”该讲的就要讲，然后就说里边有多少遍就算多少遍。

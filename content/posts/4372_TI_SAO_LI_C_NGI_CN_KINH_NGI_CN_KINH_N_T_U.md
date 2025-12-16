@@ -1,0 +1,8 @@
+---
+title: "TẠI SAO LẠI CÓ NGƯỜI CẦN KINH ? NGƯỜI CẦN KINH ĐẾN TỪ ĐÂU ?"
+date: 2025-12-15T22:19:51.807Z
+draft: false
+url: "/2025/12/tai-sao-lai-co-nguoi-can-kinh-nguoi-can.html"
+---
+
+Tại sao lại có vong linh "người cần kinh", vong linh đến từ đâu? Vong linh thường đến từ 4 nguồn: 1. Có liên quan đến tổ tiên; 2. Bản thân tạo nghiệp; 3. Bản thân bị vong nhập; 4. Vong linh trong ngôi nhà. Mối quan hệ giữa mẹ và con không tốt, đều là kẻ đòi nợ, kiếp trước nhiều người mẹ và con trai là vợ chồng, và còn rất nhiều người kiếp trước vợ chồng kiếp này thành mẹ chồng nàng dâu, đây chính là duyên phận. Khi cảm thấy mối quan hệ rất tồi tệ, hãy nhanh chóng trì tụng Giải Kết Chú. Ví dụ, nếu ông chủ đối xử với mình không tốt, nên nhanh chóng trì tụng Giải Kết Chú, nếu cảm thấy mọi việc không suôn sẻ, nên nhanh chóng trì tụng Tiêu Tai Cát Tường Thần Chú. Những bài này đều là kinh văn chính quy của Bồ Tát, niệm tụng về sau sẽ ngày càng tốt hơn. Nhiều người không biết bản thân có vong linh hay không, có thể tự mình cảm nhận được điều đó. Trong 4 trường hợp sau đây, nên bắt đầu trì tụng Ngôi Nhà Nhỏ càng sớm càng tốt: 1. Lòng bàn chân thường rất lạnh, thường cảm thấy âm lạnh(âm u lạnh lẽo), sau lưng ớn lạnh; 2. Gặp ác mộng, bị truy đuổi không thoát được; 3. Không kiềm chế được cảm xúc, luôn muốn phát cáu; 4. Khuôn mặt ngày càng trở nên hung dữ, khi cãi vã khuôn mặt biến dạng. Vậy thì nhất định có linh tính(vong linh) --2/12/2012 Pháp Hội New Zealand - Chương Trình vấn đáp

@@ -1,0 +1,8 @@
+---
+title: "VONG LINH KHÔNG CẦN NGÔI NHÀ NHỎ, CHỈ CẦN LẤY MẠNG?"
+date: 2025-12-15T22:19:51.797Z
+draft: false
+url: "/2025/12/vong-linh-khong-can-ngoi-nha-nho-chi.html"
+---
+
+Wenda20160612A 05:04 Thính giả: Thưa Sư Phụ, hiện nay có tình trạng vong linh không muốn Ngôi Nhà Nhỏ mà nhất quyết đòi lấy mạng người nợ nghiệp, chúng con phải làm sao ạ? Sư Phụ khai thị: Trong những tình huống như thế này, giải pháp duy nhất là tiếp tục đốt Ngôi Nhà Nhỏ cho chủ nợ nghiệp chướng. Hãy để ta khai thị cho các con để các con có thể hiểu rõ hơn. Nếu như con vô tình cán chết con cái của một ai đó, gia đình người quá cố sẽ đến tìm con và yêu cầu: “Anh đã giết con tôi và tôi cũng muốn giết con anh”. Lúc đó bạn trả lời: “Tôi sẽ đền bù cho anh bằng tiền”. Người đó trả lời: “Tôi không cần tiền; Tôi muốn mạng sống của con bạn”. Con lại van xin thêm: “Xin đừng lấy mạng con tôi, tôi sẽ cho anh thêm tiền”. “Tôi không muốn. Tôi muốn mạng sống của anh ấy”. Sau đó, con lại tiếp tục thêm nhiều hơn nữa… đến mức người đó cảm thấy hài lòng với số tiền được bồi thường: “Chà, nhiều tiền quá, đáng để không lấy đi mạng sống của con anh ta”. Thính giả: Ồ, bây giờ con đã hiểu. Cách giải quyết cuối cùng vẫn là Những Ngôi Nhà Nhỏ. Chúng ta chỉ cần tiếp tục cung cấp và tăng số lượng Ngôi Nhà Nhỏ thôi ạ. Sư Phụ: Chính xác. Không có cách nào khác. Xin hỏi quý vị, ở cõi người này, ngoài việc đưa tiền ra để giải quyết duyên xấu, có cách nào khác không? Không đời nào. Con nhìn xung quanh xem như thế nào , đặc biệt là những người có địa vị, giàu có đang muốn ly hôn. Họ đều nói: “Tôi muốn công bằng!” Công bằng là gì? Cuối cùng, tòa án quyết định bồi thường tài chính nhiều hơn, căn nhà, v.v… cuối cùng; Chẳng phải tiền đã giải quyết được vụ việc sao?

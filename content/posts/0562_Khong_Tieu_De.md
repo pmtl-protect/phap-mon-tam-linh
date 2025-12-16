@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.976Z
+draft: false
+url: "/2025/06/lai-xe-cho-ong-tu-i-phong-sinh-lam-sao.html"
+---
+
+Tiêu đề bài viết: Lái xe chở đồng tu đi phóng sinh làm sao tránh bị gánh nghiệp? Nội dung chi tiết: wenda20150522 – 31:20 🔹 Nam thính giả hỏi: Có một vị đồng tu rất phát tâm, mỗi lần đi phóng sinh đều dùng xe của mình chở các đồng tu khác. Nhưng mấy lần gần đây, khi đi phóng sinh thì xe của vị ấy đều bị va quẹt, trầy xước. Kính hỏi Sư phụ, xe bị va quẹt như vậy là do Bồ Tát giúp chủ xe tiêu nghiệp, hay là đang giúp một trong những người ngồi trên xe tiêu nghiệp ạ? 🔸 Sư phụ trả lời: Nếu có va quẹt trầy xước, thì nhất định là đang gánh nghiệp thay người khác. Giúp người khác đi phóng sinh, kiểu gì cũng dễ bị va quẹt. Nhưng chỉ cần nói với Bồ Tát rằng: “Kính bạch Quán Thế Âm Bồ Tát từ bi gia hộ, hôm nay con chở mọi người đi phóng sinh, con làm một chút công đức. Nếu họ có oan thân trái chủ, kính xin Quán Thế Âm Bồ Tát từ bi, mong cho họ được gia hộ và hóa giải. Nếu con có vấn đề gì, kính mong Quán Thế Âm Bồ Tát từ bi cho con được nhanh chóng giải quyết.” Như vậy là đã tách riêng ra rồi đó. (Dạ, con hiểu rồi, cảm ơn Sư phụ đã khai thị.) 🙏wenda20150522 31:20 ⚠️开车带同修放生如何避免背业 🔹男听众：有一个同修很发心，每次放生都用自己的车子拉同修，但是他这几次放生的时候，他的车子都磕磕碰碰。请问师父，他的车子磕磕碰碰是菩萨为车主消业了，还是给坐车里的某一位同修消业呢？ 🔸台长答：如果磕磕碰碰，他一定帮人家背业。帮人家去放生，总归会磕磕碰碰的。但是他只要跟菩萨讲：“观世音菩萨慈悲我，我今天带大家去放生，我做点功德。如果他们有冤亲债主，请观世音菩萨慈悲，希望他们得到护佑和解决。我如果有什么问题，请观世音菩萨慈悲，让我能够尽快解决。”这分开了嘛（明白了，谢谢师父开示） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

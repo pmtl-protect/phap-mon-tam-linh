@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.864Z
+draft: false
+url: "/2025/01/van-e-cung-te-nguoi-khuat-vao-em-giao.html"
+---
+
+Tiêu đề bài viết: Vấn đề cúng tế người đã khuất vào đêm Giao Thừa Nội dung chi tiết: Nữ thính giả:Thưa thầy, sắp đến đêm Giao Thừa rồi. Ở chỗ chúng con có phong tục mời ông bà đã khuất về vào đêm Giao Thừa và tiễn đi vào sáng mùng 2. Con nghe trong chương trình của thầy nói rằng điều này có vẻ không tốt, đúng không ạ? Đài Trưởng đáp: Haha... Chắc chắn là không tốt. Nữ thính giả: Nếu không mời về, chúng con nên làm thế nào ạ? Vì có người thân đã siêu thoát lên trời rồi. Đài Trưởng đáp: Thực ra, ngày Đông Chí chính là Tết của họ. Bản thân ngày Đông Chí đã là dịp cúng tế cho người đã khuất. Nữ thính giả: Vậy vào Tết Nguyên Đán, chúng con có cần làm thêm gì nữa không ạ? Đài Trưởng đáp: Tết Nguyên Đán là dịp cho người sống đón năm mới, không nên để người âm và người dương đón Tết chung. Người âm có "âm Tết", người sống có "dương Tết". Nữ thính giả: Vậy có cần cúng tế không ạ? Đài Trưởng đáp: Có thể cúng vào buổi trưa ngày 30 Tết. Nếu có điều kiện, có thể thắp hương, cúng bái một chút. Nhưng đến tối thì tuyệt đối không nên mời họ ra cúng nữa! —----------- Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 —----------- wenda20120113 46:31 年三十祭拜亡人的问题 女听众：马上大年三十了，我们这边有个风俗就是年三十晚上把过世的爷爷奶奶请回来，然后年初二早上再送走，听台长节目说这样好像不大好，是吧？ 台长答：呵呵……肯定不好（如果不请的话，我们应该怎么办呢？已经超到天上的也有）实际上冬至就是他们的过年，冬至本身已经请了（过年还需要再做什么吗？）过年就是活人过年，跟阴人不要一起过年，阴人过阴年，我们活人过阳年（也不用祭奠了是吧？）应该可以在年三十中午的时候祭奠一下，如果有条件的话，拜一拜，烧烧香 都没问题，但是到了晚上就千万不要再供出来了！

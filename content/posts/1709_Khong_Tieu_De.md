@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.886Z
+draft: false
+url: "/2025/02/neu-cac-con-khong-nhan-nhin-nguoi-khac.html"
+---
+
+Tiêu đề bài viết: Nếu các con không thể nhẫn nhịn người khác, Nội dung chi tiết: ☀️ Nếu các con không thể nhẫn nhịn người khác, sẽ tự mang đến bất hạnh cho chính mình. Chúng ta thấy người khác không vừa mắt, so sánh với người khác, sẽ gia tăng Tâm Sân Hận. ☀️ Có người vì chút danh lợi nhân gian, bị Tiền Tài khống chế, bị Danh Tiếng ràng buộc. Giống như nhiều người vì vay tiền mua một căn nhà, cả đời trở thành nô lệ cho nhà cửa, cả đời sống trong cảnh nợ nần . ☀️ Thực ra chúng ta rất ngu si, mỗi ngày đều tìm kiếm sự đối lập trong Tâm mình, trong cuộc sống tự tìm cho mình một kẻ thù tưởng tượng. “Hôm nay, người này ta ghét nhất, người này công việc tốt hơn ta, vì vậy ta hận hắn, ta ghen tị hắn.” Thường xuyên so sánh với hắn, muốn vượt qua hắn, muốn đánh bại hắn, như vậy, trong lòng các con đã có một kẻ thù tưởng tượng. Nhưng các con không nghĩ đến, chính kẻ thù tưởng tượng này, trong lòng các con đã có vướng mắc và Nghiệp Chướng. ✨✨✨Khai Thị Tại Pháp Hội · Jakarta - Indonesia -10.03.2018 ☀️ 如果你不能够忍耐别人，就会给自己带来不幸。我们看人不顺眼，跟别人比较，会增加瞋恨心。有些人为了一些人间的名利，受钱财控制，受名誉牵挂。犹如很多人为了贷款买一幢房子，终生成为房奴，终生在还债之中。 ☀️ 其实我们人很傻，每一天都在寻找自己心中的对立面，在生活当中为自己找一个假想的敌人。 “今天，这个人我最讨厌，这个人工作上比我好，所以我恨他，我嫉妒他。”经常拿他做比较，想超越他，想击败他，这样，在你的心中就有了一个假想的敌人。然而你没有想到，就是这么一个假想的敌人，在你的心中就有了罣碍和业障。 ✨✨✨ 20180310 印尼•雅加达法会开示 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

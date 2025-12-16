@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.516Z
+draft: false
+url: "/2025/10/sau-khi-vang-sinh-neu-khong-muon-au.html"
+---
+
+Tiêu đề bài viết: Sau khi vãng sinh, nếu không muốn đầu thai có thể tiếp tục tu hành không Nội dung chi tiết: Nam thính giả hỏi: Thưa Sư phụ, lần trước Thầy xem đồ đằng cho con, Thầy nói nếu bây giờ con mất thì đời sau có thể được đầu thai làm người. Vậy nghĩa là đời sau con không phải làm ngạ quỷ nữa, mà được trực tiếp đầu thai làm người, đúng không ạ? Đài Trưởng đáp: Nếu bây giờ con vẫn giữ tâm không xấu, tiếp tục như hiện tại, thì đúng con sẽ được đầu thai làm người. Nhưng nếu con lại làm việc xấu, thì có thể lại đọa xuống dưới đó. (Nếu hiện giờ con có thể tụng thuộc kinh, giả sử sau này con xuống dưới, mà họ sắp xếp cho con đầu thai làm người, con nói không muốn đầu thai mà muốn tiếp tục tu hành, như vậy có được không ạ?) Hoàn toàn có thể. Nhưng nếu khi con xuống dưới mà nghiệp lực của con vẫn còn quá nặng, thì khi họ phán xét tội, họ sẽ căn cứ vào đó mà xử, nếu định là phải đầu thai làm người, thì con không thể từ chối được. (Dù bây giờ con đã thuộc hết các kinh, nhưng khi xuống dưới thì cũng vô ích sao ạ?) Nếu con có thể tiêu trừ nghiệp chướng của mình, thì dù có đầu thai làm người, con vẫn có thể tiếp tục tu hành. Còn nếu không tiêu được nhiều nghiệp chướng, thì sau khi xuống dưới, khi họ bắt con phải đầu thai, con vẫn phải đi thôi. (Ồ…) \*\*\*\*\*\*\*\*\*\*\* Wenda20141024 01:07:16 #往生後不想投胎可以繼續修行嗎 男聽眾：台長，您上次看了我圖騰，說假如我現在走的話可以下輩子投人。那是不是我下世就直接不用做鬼了，直接投人了是吧？ 台長答：你如果現在不壞不好繼續這樣，那你就投人；如果你現在再做壞事的話，你說不定又下去了呢？（我現在是可以背經文的，假如我下去的話了他們安排我投人我不投，我說繼續修行，可不可以啊？） 完全可以。但是下去之後如果你的業力太重，他就根據你……判你罪的話你就只能投人了（就算我現在把經文都背出來，下去也沒用是吧？）你要消除你的業障，就算投人你都可以再修；你消除不了你很多的業障，你下去之後，他逼著你投人你就得走（哦……）

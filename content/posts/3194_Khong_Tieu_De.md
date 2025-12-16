@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.513Z
+draft: false
+url: "/2025/09/ung-tuy-tien-cho-nguoi-khac-cong-uc.html"
+---
+
+Tiêu đề bài viết: Đừng tùy tiện cho người khác công đức, bằng không có thể bị bệnh hoặc gặp xui xẻo Nội dung chi tiết: Wenda20190728 07:53 Đừng tùy tiện cho người khác công đức, bằng không có thể bị bệnh hoặc gặp xui xẻo Khán giả nữ: Nếu là đứa con đòi nợ, nếu không cho nó Ngôi Nhà Nhỏ mà chỉ chuyển công đức cho nó thì con có thể trả hết nợ cho nó không? Đài trưởng đáp: Công đức nhiều thì cô có thể trả hết (dù con không niệm Ngôi Nhà Nhỏ cũng được à, chỉ cần chuyển công đức nhiều hơn cho nó là được à ?) Với cô chuyển như vậy thì không đáng lắm, công đức cô tạo ra bao nhiêu mới có thể ... mà cô chuyển cho nó, bù trừ biết bao nhiêu tấm Ngôi Nhà Nhỏ. Nhưng cô phải biết rằng nếu công đức của cô ít đi thì cô sẽ gặp xui xẻo, bệnh tật, công việc không thuận lợi, gia đình cãi vã... tất cả đều sẽ đến và khi gặp phải “369” có muốn tránh cũng tránh không được, cho nên công đức không phải là tùy tiện cho người khác được. Đọc Ngôi Nhà Nhỏ cho nó thì không sao, nhưng nếu chuyển công đức đi rồi thì cô sẽ bị bệnh (Con minh bạch, điều đó có nghĩa là không thể chuyển công đức của mình một cách tùy tiện?) Đúng, công đức rất lợi hại! Cô nên biết công đức như tấm bảng tích trữ năng lượng, một miếng công đức bên trong có cả mấy trăm tấm Ngôi Nhà Nhỏ và còn hơn thế nữa

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.595Z
+draft: false
+url: "/2025/08/ieu-kien-gi-e-co-eo-chuoi-phat-chau-108.html"
+---
+
+Tiêu đề bài viết: Điều kiện gì để có thể đeo chuỗi Phật châu 108 hạt? Nội dung chi tiết: wenda20151030 31:45 Điều kiện gì để có thể đeo chuỗi Phật châu 108 hạt? Nam thính giả: Thưa sư phụ, ngài đã nói rằng không nên đeo chuỗi 108 hạt Phật châu, loại treo trên cổ, nhưng có một số người trẻ không hiểu điều này và vẫn đeo. Có phải nếu không đủ 108 hạt, thì ngay cả chuỗi 90 hạt cũng không được đeo phải không ạ? Đài Trưởng Đáp: Đúng vậy, chuỗi hạt Phật này có quy định trong chùa, chỉ có những người tu hành hơn 10 năm mới có thể đeo chuỗi hạt đó ở cổ. Bởi vì chuỗi hạt càng nặng, càng nhiều thì chứng tỏ công lực tu hành của người đó càng lớn. Ví dụ đơn giản là, trong giới võ lâm, nếu con khoe mình là cao thủ võ lâm, nhưng gặp phải một cao thủ thực sự, người đó chỉ cần ra tay một cái là con có thể bị đánh ngã, thậm chí có thể bị đánh chết. Ma quái biết con có pháp lực mạnh, chúng sẽ tìm cách đến để đối phó với con, vì vậy mới có chuyện đó. (Con hiểu rồi, cảm ơn Sư Phụ đã từ bi khai thị!) —----------------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. —----------------------------------- wenda20151030 31:45 关于戴佛珠 男听众：师父，您说过不要戴108颗的那种佛珠，就是脖子上挂的，但是有些年轻人不懂，他就戴，是不是只要不是108颗，就是这种佛珠90颗也不能戴？ 台长答：对啊，这种佛珠在庙里面有规定的，就是修心程度在10年以上才能在脖子上挂那种串珠的，因为佛珠越重、越多的话，说明你修行的功力越大。举个简单例子，你在武林上面，你吹好了，你说你武林高手，来个真的武林高手一拳把你打得趴下来，说不定把你打死了。魔知道你法力高，就会来跟你斗，所以就是这样（明白，谢谢师父慈悲开示！）

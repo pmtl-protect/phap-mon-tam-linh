@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.065Z
+draft: false
+url: "/2025/08/thay-lu-huong-dan-tri-chu-hoa-giai-nang.html"
+---
+
+Tiêu đề bài viết: Thầy Lư hướng dẫn trì chú hóa giải năng lượng xấu trên người Nội dung chi tiết: 🪷Có nhiều cách trì kết hợp, mình thường dùng hai cách này, nay xin chia sẻ cùng mọi người, vì bản thân mình trì rất linh nghiệm mỗi khi gặp phải năng lượng xấu khiến bản thân khó chịu u uất tâm trạng xuống dốc. Cách 1 là 777. 7 biến chú Đại Bi 7 biến Tâm Kinh 7 biến Tiêu Tai Cát Tường Thần Chú. Cách 2 cho trường hợp nặng: 7771. 7 biến chú Đại Bi. 7 biến Tâm Kinh. 7 biến Tiêu Tai Cát Tường thần chú. 1 biến Lễ Phật Đại Sám Hối Văn. Cách khấn Xin cầu nguyện: Thỉnh cầu Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát ban phước cho con tên... Hóa giải năng lượng xấu trên người... Khấn xong vào trì niệm Kinh, khi kết thúc khấn tạ ơn: Nam Mô Đại Từ Đại bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát đã ban phước cho con tên... Hóa giải năng lượng xấu trên người... Trong quá trình chia sẻ có chỗ nào chưa đúng lý đúng pháp, con xin Chư Vị Phật Bồ Tát và các Ngài Hộ Pháp từ bi tha thứ cho con 🙏

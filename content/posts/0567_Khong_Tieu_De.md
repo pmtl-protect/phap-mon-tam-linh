@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.992Z
+draft: false
+url: "/2025/06/tai-sao-mac-benh-phu-khoa-nang-phai.html"
+---
+
+Tiêu đề bài viết: Tại sao mắc bệnh phụ khoa nặng phải phát nguyện thanh tu? Nội dung chi tiết: Wenda20180330  03:01 Nam thính giả: Hôm qua, Sư phụ lại khai thị một điều quan trọng: Những người mắc bệnh như ung thư vú hoặc các bệnh phụ khoa khác cần phát nguyện thanh tu. Đây là một đại nguyện. Có đúng vậy không? Kính mong Sư phụ khai thị thêm. Sư phụ: Đúng vậy. Phải nhớ rằng, bất kỳ bệnh phụ khoa nào cũng đều có vấn đề. Rất nhiều bệnh phụ khoa là do đời trước tà dâm, hành vi phóng túng, nên mới chiêu cảm bệnh ở bộ phận này... Anh thử nghĩ xem, nếu nam giới có vấn đề về cơ quan sinh dục, chắc chắn bản thân họ đã có nghiệp liên quan đến tà dâm. (Vâng ạ) Tà dâm đều liên quan đến nửa thân dưới, nên người xưa nói rằng: “Thượng thân sạch sẽ, hạ thân không sạch sẽ”. Khi lên cõi trời rồi, rất nhiều thiên nhân cơ bản là không còn phần thân dưới nữa. Chúng ta từng xem phim, thấy các tiên nữ, Bồ Tát bay lượn, không thấy chân, chỉ thấy phần thân trên, phần dưới bị mây che phủ, chân thì mờ mờ ảo ảo, như có như không. \*\*\*\*\*\*\*\*\*\*\* Wenda20180330   03:01 #為何患嚴重婦科病要許願清修❓ 男聽眾：您昨天又說了一個重要的開示：患乳腺癌等婦科病的，要許願清修，許這個大願。是這樣嗎？師父，您進一步開示一下吧。 台長答：對。要記住，凡是婦科病都有問題，很多的婦科病就是因為前世好淫、淫蕩，所以才會在這個方面……你想想看，男性生殖器上有問題的話，自己一定有問題，跟自己的好淫一定有關係（是的） 淫蕩都是屬於下半身的，所以過去指上半身乾淨，下半身不乾淨。到了天上之後，很多天人基本上下半身就沒有了。我們過去看電影，裡面仙女、菩薩飄啊，看不到腳的，就看見上半身，都是被雲遮住了，腳是似有似無的。 .

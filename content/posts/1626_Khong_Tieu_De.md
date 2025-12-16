@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.708Z
+draft: false
+url: "/2025/07/khai-thi-ve-ai-thua-phat-phap-va-tieu.html"
+---
+
+Tiêu đề bài viết: Khai Thị Về Đại Thừa Phật Pháp và Tiểu Thừa Phật Pháp Nội dung chi tiết: wenda20160729 30:52 Khai Thị Về Đại Thừa Phật Pháp và Tiểu Thừa Phật Pháp. Nam thính giả: Kính bạch Sư phụ, trong quyển "Bạch Thoại Phật Pháp" tập 1, bài 14, Sư phụ có đề cập rằng "Đại thừa Phật pháp là tâm Bồ Tát độ tâm trí". Phật pháp Sư phụ giáo hóa chúng con chính là Đại thừa Phật pháp, là Phật pháp nhân gian. Kính xin Sư phụ từ bi khai thị, chúng con nên lý giải câu "Đại thừa Phật pháp là tâm Bồ Tát độ tâm trí" này như thế nào? Đài Trưởng: Đại thừa chính là cứu độ chúng sinh, còn Tiểu thừa là tự độ bản thân. Nói một cách đơn giản, muốn cứu độ người khác thì trước tiên phải tự cứu lấy mình. Nếu không có nền tảng của  Phật pháp Tiểu thừa, con sẽ không thể thành tựu Phật pháp Đại thừa . Nam thính giả: Thưa Sư phụ, vậy  Phật pháp Tiểu thừa có phải là điều Sư phụ thường giảng "nhân thành tức Phật thành", tức là những giá trị trung, tín, lễ, nghĩa, hiếu của Nho giáo ở nhân gian chúng con không ạ? Đài Trưởng: Đúng vậy, chính là những điều đó. Trong quá trình con dịch và chia sẻ pháp nếu có gì chưa đúng lý, đúng pháp xin chư Phật, Bồ Tát,Long thiên hộ pháp , Sư phụ từ bi tha thứ cho con wenda20160729 30:52 关于大乘佛法与小乘佛法的开示 男听众：师父，您在《白话佛法》第一册第十四篇提到过“大乘佛法是菩萨的心度心智”，师父给我们教授的佛法就是大乘佛法、人间佛法。请师父慈悲开示一下，我们如何理解“大乘佛法是菩萨的心度心智”这句话？ 台长答：大乘就是救人，小乘就是救己。讲得简单一点，救人先要救己，你没有小乘佛法的基础，学不成大乘佛法的（师父，那种小乘佛法是不是您讲的“人成即佛成”，就是说我们人间的这种儒家的忠信礼义孝？）对啊，就是这种。

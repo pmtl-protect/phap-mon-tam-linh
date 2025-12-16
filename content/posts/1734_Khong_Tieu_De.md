@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.937Z
+draft: false
+url: "/2025/03/ve-van-e-mua-xe.html"
+---
+
+Tiêu đề bài viết: Về vấn đề mua xe? Nội dung chi tiết: 135. Phật học vấn đáp 165 câu hỏi (135). Hỏi 135: Xin hỏi Đài Trưởng, mua xe phải chú ý cái gì? Câu trả lời 135: • Màu sắc của xe kiến nghị tránh dùng màu bạc, bởi vì đây là màu gần địa phủ nhất, dễ va phải vong linh, tỷ lệ xảy ra chuyện tương đối lớn. • Màu đỏ cũng không tốt lắm, nếu như không có Bồ Tát phù hộ, đôi khi màu đỏ có thể gây rắc rối và trở ngại, ví dụ như đèn đỏ chính là báo động. • Đối với người học Phật tu tâm, màu sắc chỉ là tham khảo, chủ yếu là nỗ lực niệm kinh. • Sau khi mua xe, trong xe phát "Đại bi chú" nhẹ nhàng là rất tốt. • Cũng có thể để bùa hộ mệnh hoặc móc khóa của Đài Trưởng khai quang đặt trong xe, nhưng nếu đặt móc khóa cũng phải cố định, không nên treo; Nếu như là bùa hộ mệnh, phải dán Bồ Tát hướng vào trong xe, tức là người ở trong xe nhìn thấy tượng Bồ Tát. •trong xe không nên treo chuông gió, tiếng chuông rất dễ thu hút vong linh. •Nếu xe có người cần kinh, cũng có thể niệm Ngôi NHà NHỏ, kính tặng cho "Người cần kinh xe của XXX", XXX là tên của người lái xe, bình thường có thể niệm 4 tấm. 135、关于买车的问题？ 佛学问答165问（135）.jpg 问135：请教台长，买车要注意什么？ 答135： • 车的颜色建议避免银色，因为这是接地府的颜色，容易惹到灵性，出事的几率相对较大。 • 红色也不是特别好，如果没有菩萨保佑的话，有时候红色反而会惹麻烦有阻碍，比如红灯就是一种警戒。 • 对于学佛修心的人，颜色只是一种参考，主要是好好念经。 • 买了车之后，在车里轻轻播放《大悲咒》是很好的。 • 也可以把台长开光的护身符或者车挂放在车里，但是车挂的话也要固定起来，不宜悬挂；如果是护身符，要把菩萨朝向车内贴，就是人在车内看见的是菩萨像。 • 车里不要挂铃铛，铃铛的声音容易惹灵性。 如果车子有要经者， 也可以念小房子， 敬赠“xxx车子的要经者”， xxx为开车人的名字， 一般可以念4张

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.882Z
+draft: false
+url: "/2024/11/ve-chu-vang-sanh.html"
+---
+
+Tiêu đề bài viết: Về chú Vãng Sanh Nội dung chi tiết: wenda20121228 27:18 📞: Thưa ngài, ngài nói rằng nếu niệm chú Vãng Sanh quá nhiều cũng không tốt, vậy nên kiểm soát như thế nào? 🪷Sư phụ: Niệm chú Vãng Sanh nhiều k phải là k tốt. Khi niệm nhiều chú Vãng Sanh, người ta gọi đó là các mảnh vụn xuất hiện. Điều này có nghĩa là sẽ đưa lên những gì mà con đã trải qua trong các kiếp trước và trong cuộc sống này, mặc dù những vong linh mà con đã từng ăn, một số đã được giải thoát và không còn tìm con nữa, nhưng những nghiệp lực từ những thứ con đã ăn và giết hại vẫn tồn tại trong ý thức của con. Bây giờ con đã hoàn thành việc niệm cho những linh hồn sống đang tìm con trong thực tại, nhưng nếu con vẫn cố gắng niệm chú Vãng Sanh thì những linh hồn đã được lưu trữ trong ý thức của con sẽ được kích hoạt và sẽ tiếp tục yêu cầu trả nợ. 📞: Điều đó có tốt không? Sư phụ: Có tốt, nhưng vấn đề là rất khó để giải quyết hết. Ví dụ, nếu con luôn hồi tưởng về quá khứ, con sẽ cảm thấy buồn bã và đau khổ. Dù con liên tục sám hối về quá khứ của mình, nhưng đó vẫn là quá khứ. Nếu con đào bới lại nó, sẽ ảnh hưởng đến việc tu hành hiện tại của con. 📞: Vậy con chỉ cần niệm từ 27 đến 49 biến là được đúng không? Sư phụ: Đúng vậy.

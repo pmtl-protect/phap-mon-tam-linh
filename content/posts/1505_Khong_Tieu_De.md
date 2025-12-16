@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.324Z
+draft: false
+url: "/2025/01/ve-viec-sinh-vao-ngay-sinh-cua-bo-tat.html"
+---
+
+Tiêu đề bài viết: Về việc sinh vào ngày sinh của Bồ Tát có mối nhân duyên với Bồ Tát hay không Nội dung chi tiết: Thính giả nữ: Có một truyền thuyết dân gian nói rằng, những đứa trẻ sinh vào ngày sinh của Quán Thế Âm Bồ Tát hoặc các Bồ Tát khác, vào ngày xuất gia hay thành đạo, thì sinh bé trai sẽ tốt còn bé gái sẽ khó nuôi. Có phải đúng như vậy không? Sư phụ: Thực tế sinh con trai hay con gái đều giống nhau. Mỗi người đến thế gian này đều có nghiệp báo, cả nam lẫn nữ đều phải chịu nghiệp báo của mình. Dĩ nhiên, đàn ông có thể ít nghiệp hơn phụ nữ, vì vậy phụ nữ thường chịu khổ nhiều hơn, còn đàn ông ít phải chịu khổ hơn, đó cũng là một hình thức báo ứng. Thính giả nữ: Còn về những đứa trẻ sinh vào ngày sinh của Bồ Tát thì sao ạ? Sư phụ: Điều này tùy thuộc vào số mệnh của họ. Mặc dù ngày sinh của Bồ Tát hằng năm đều giống nhau, nhưng vẫn có những thay đổi nhỏ về thời gian, vì vậy không phải tất cả những người sinh vào ngày 19 tháng 2, 19 tháng 6, 19 tháng 9, dù không phải là Bồ Tát hóa sinh, nhưng có thể khẳng định một điều rằng những người này chắc chắn có mối nhân duyên với Quán Thế Âm Bồ Tát. ✨《菩薩生日出生的人是否和菩薩有一定緣分》wenda20121125A 43:10 女聽眾：民間傳說在觀世音菩薩的生日、各位大菩薩的生日、出家日、成道日生的男孩子比較好，生的女孩子比較難養。有沒有這個說法？ 台長答：實際上生活在這個世界當中，生男生女應該都一樣，因為每個人到人間來會受報，女身報、男身報都是一樣的。當然男的業障可能會比女的業障少很多，所以女人吃苦比較多，男人吃苦就少一點，這也是一種受報 （菩薩生日那天生的男孩子和女孩子呢？）這個根據他們的緣分。雖然講起來菩薩的生日每年節氣是一樣的，但細小的時間還是有變化，所以並不是2月19、6月19、9月19生的就是觀世音菩薩，但有一點可以肯定，這些人跟觀世音菩薩一定有緣分。 心灵法门一切书籍皆免费结缘，详情欢迎您联系我们

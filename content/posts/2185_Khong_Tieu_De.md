@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.940Z
+draft: false
+url: "/2025/02/nguoi-mang-virus-viem-gan-b-xin-hoi-con.html"
+---
+
+Tiêu đề bài viết: Người mang virus viêm gan B, xin hỏi con nên niệm kinh như thế nào? Nội dung chi tiết: Trích từ: “Hỏi đáp Phật học” số 147 Hỏi 147: Chào Thầy Lư! Con là người mang virus viêm gan B, xin hỏi con nên niệm kinh như thế nào? Đáp 147: • Theo góc độ y học, bệnh này là do cơ thể mất cân bằng, thực tế là do nghiệp chướng. Dù là do di truyền từ lúc sinh ra hay bị lây nhiễm sau này, đều là bệnh do nghiệp chướng. • Công phu hàng ngày: Tụng 21 lần “Đại Bi Chú,” 7 lần “Kinh Tâm Kinh,” và 3 lần “Lễ Phật Đại Sám Hối Văn,” đây là tối thiểu. • Tụng “Thánh Vô Lượng Thọ Quyết Định Quang Minh Vương Đà La Ni” 21 lần trở lên mỗi ngày, vì căn bệnh này ảnh hưởng không tốt đến tuổi thọ và sức khỏe về già. Trước khi tụng, hãy cầu nguyện: “Xin Đức Quán Thế Âm Bồ Tát từ bi gia hộ cho con, tiêu trừ virus viêm gan B của con.” • Kết hợp tụng “Ngôi Nhà Nhỏ” ít nhất 3 tờ mỗi tuần, và kiên trì không dừng lại cho đến khi khỏi bệnh; thông thường nên tụng 21 tờ cho lần đầu, và 49 tờ cho lần thứ hai. • Phóng sinh và phát nguyện: Cần phóng sinh số lượng lớn và phát nguyện. （1）佛学问答开示 关于乙肝念经的问题 ——《佛学问答 一百四十七》 问 147：卢台长您好！我是乙肝携带者，请问该如何 念经？ 答 147：  从医学角度来说，这种病是因为身体缺少平衡，实际 上就是孽障，不管是先天遗传的还是后天被传染的， 都是孽障病。  每天的功课：《大悲咒》21 遍以上，《心经》7 遍，《礼 佛大忏悔文》3 遍，这是最基本的。  还要念《圣无量寿决定光明王陀罗尼》每天 21 遍以 上，因为生这种病，对他的晚年很不好，而且对他的 寿限很不好，念之前祈求“请大慈大悲观世音菩萨保 佑消除我 XXX 的乙肝病毒”。  结合小房子每周至少 3 张，坚持不要停，一直到好为 止；一般可以第一拨 21 张，第二拨 49 张。  还需要大量的放生、许愿。

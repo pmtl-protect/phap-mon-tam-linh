@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.214Z
+draft: false
+url: "/2024/12/trong-nha-co-ban-tho-phat-nhung-van-sat.html"
+---
+
+Tiêu đề bài viết: Trong nhà đã có bàn thờ Phật nhưng vẫn sát sinh, liệu có bị tổn thọ nghiêm trọng hơn không Nội dung chi tiết: Wenda20190222 56:47 Thính giả nam: Nếu chủ nhà đã lập bàn thờ Phật nhưng vẫn sát sinh và ăn mặn, liệu có bị tổn thọ nghiêm trọng hơn không? Lư Đài Trưởng đáp: Có. Điều này giống như mời quan tòa về nhà, họ sẽ trực tiếp đưa ra phán quyết. Quan tòa đến để bảo vệ con, nhưng nếu con làm việc xấu ngay trong nhà, họ chẳng phải sẽ trực tiếp trừng phạt con sao? (Bàn thờ Phật giống như một thông đạo giữa trời và người; nếu con làm việc tốt, trời sẽ ngay lập tức biết và bảo hộ, nhưng nếu làm điều không đúng pháp, con sẽ bị trừng phạt ngay lập tức.) Đúng vậy, giống như việc con tham gia một tổ chức. Tổ chức bảo vệ con, nhưng nếu con làm sai, tổ chức sẽ xử lý con nhanh hơn cả người ngoài. ( Trong trường hợp này, thông thường sẽ bị tổn thọ bao nhiêu năm?) Không thể nói chính xác, điều này phụ thuộc vào tình huống cụ thể của họ. (Nếu họ không sát sinh nữa nhưng vẫn chưa ăn chay hoàn toàn, điều đó có làm họ tổn thọ không?) Không, dù bản thân họ vẫn chưa ăn chay trường. (Vậy nếu họ không sát sinh, dù chưa ăn chay trường mà vẫn ăn "tam tịnh nhục", thì không bị tổn thọ?) Đúng vậy, không bị tổn thọ. \*\*\* 家里设佛台后还在杀生，会折寿得更厉害吗 Wenda20190222 56:47 男听众：如果佛台主人虽然设了佛台，但是还在杀生吃荤，会不会折寿得更厉害？ “卢台长”答：会。你等于把法官请到家里来了，他直接判。法官是保护你的，但是你要在家里做坏事，法官不是直接惩罚你啊？（佛台其实就像天上和人间的一个通道，有什么好的事情，天上马上知道，会马上保佑，有不如理不如法的也会马上惩罚）对啊，就等于你加入组织一样的。你做党员，组织上保护你；你要是做错事情，组织上惩罚比群众快（像这种情况，一般会折寿多少年啊？）不知道，要根据他具体情况的（那如果他自己已经不吃活杀的，但是没有吃全素，会不会折寿呢？）他自己没有吃全素的话，不会的（就是只要不杀生，但是还没吃全素，像吃三净肉那种，就不会折寿？）不会

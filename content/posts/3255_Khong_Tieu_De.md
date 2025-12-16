@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.880Z
+draft: false
+url: "/2025/02/co-phat-ai-nguyen-va-goi-hon-o-ban-tho.html"
+---
+
+Tiêu đề bài viết: Có thể Phát Đại Nguyện và gọi hồn ở bàn thờ nhỏ không? Nội dung chi tiết: Nữ thính giả: Dạ thưa Thầy, Bàn Thờ Nhỏ có thể Phát Đại Nguyện không ạ? Ví dụ như: Hiện thân nói pháp, ăn chay trường, tôn sư trọng đạo. ☀️ Đài trưởng: Được 🌻 (Bàn Thờ Nhỏ có thể gọi hồn không ạ?) ☀️ Đều được. Chỉ là có Bàn Thờ Lớn thì tốt nhất vẫn nên dùng bàn thờ lớn, không có bàn thờ lớn thì dùng bàn thờ nhỏ 🌻 (Bởi vì nhiều sư huynh sư tỷ đều thuê nhà ở cùng người khác) ☀️ không sao cả. Nếu có bàn thờ lớn thì tốt nhất nên dùng bàn thờ lớn 🌻 (Có phải cũng cần niệm một biến Chú Đại Bi , một biến Tâm Kinh rồi mới có thể Phát Đại Nguyện này không ạ?) ☀️ Cách thức đều giống như Bàn Thờ Lớn. Con không có Bàn Thờ Lớn thì có thể Phát Nguyện ở Bàn Thờ Nhỏ, vẫn tốt hơn là không có Bàn Thờ 🌻 (Dạ con hiểu rồi ạ) ✨✨✨ Wenda20200529 02:25 ☀️ 可否在小佛台许大愿、叫魂 🌻 女听众：请问师父，小佛台可以许大愿吗？比如：现身说法、吃全素、尊师重道。 ☀️ 台长答：可以（小佛台可以叫魂吗？）都可以。只是说有大佛台最好用大佛台，没有大佛台用小佛台（因为很多师兄都和人家租房子）没关系的。如果有大佛台最好用大佛台（是不是也要同时念一遍大悲咒、一遍心经之后才能许这些大愿？）形式都是跟大佛台一样。你没有大佛台，只能在小佛台上许，总比没佛台好（明白） ☀️ THAM KHẢO THÊM KHAI THỊ CỦA ĐÀI TRƯỞNG VỀ VẤN ĐỀ GỌI HỒN PHÁCH : https://timkhaithi.pmtl.site/2025/02/van-e-ve-goi-hon-hon-phach-quy-than.html ☀️ THAM KHẢO THÊM VẤN ĐỀ PHÁT NGUYỆN : https://www.pmtl.site/ph%C3%A1t-nguy%E1%BB%87n 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

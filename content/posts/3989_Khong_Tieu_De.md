@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.770Z
+draft: false
+url: "/2025/10/thua-su-phu-trong-bach-thoai-phat-phap.html"
+---
+
+Tiêu đề bài viết: Thưa Sư Phụ ! Trong "Bạch Thoại Phật Pháp", Sư Phụ từng khai thị: "Bất thị nhàn nhân nhàn bất đắc, thị nhàn nhân phi đẳng nhàn nhân". Có thể thỉnh Sư Phụ khai thị thêm về câu này được không ạ? Nội dung chi tiết: Thưa Sư Phụ ! Trong "Bạch Thoại Phật Pháp", Sư Phụ từng khai thị: "Bất thị nhàn nhân nhàn bất đắc, thị nhàn nhân phi đẳng nhàn nhân". Có thể thỉnh Sư Phụ khai thị thêm về câu này được không ạ? "Bất thị nhàn nhân nhàn bất đắc", con không phải là hạng người tầm thường, người ta nói con là người không bao giờ nhàn rỗi được. "Thị nhàn nhân", bề ngoài trông có vẻ là người nhàn rỗi, thực ra loại người này, chúng ta nói "vịt đạp nước, ngầm nỗ lực", loại người này không phải là hạng tầm thường. Cho nên, Sư Phụ dạy các con học Phật đừng quá phô trương, làm người phải học cách khiêm tốn. Làm việc thì quyết liệt, làm người thì khiêm tốn. Học cách vịt đạp nước, con xem con vịt ở trên mặt sông, bề ngoài thấy nó không động đậy, thực ra hai cái chân của nó ở dưới đạp rất nhanh. 问：《白话佛法》中师父开示过：不是闲人闲不得，是闲人非等闲人。能够请师父对这句话做进一步开示吗？ 答： “不是闲人闲不得”，你不是等闲之辈，人家说你这个人永远不会闲下来的。“是闲人”，表面上看上去是闲人，实际这种人，我们说“鸭子划水暗中努力”，这种人非等闲之辈。所以，我叫你们学佛不要太高调，做人要学会低调。高调做事，低调做人。学鸭子划水，你看鸭子在河面，表面上看见它没动，其实它两个脚在下面走得可快了。 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

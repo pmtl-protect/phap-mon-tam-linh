@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.175Z
+draft: false
+url: "/2025/08/ong-tu-chia-se-hoa-giai-uoc-bua-ngai.html"
+---
+
+Tiêu đề bài viết: Đồng Tu Chia Sẻ# đã hoá giải được bùa ngải khi tu tập theo Pháp Môn Tâm Linh Nội dung chi tiết: hôm nay con xin viết một bài viết: Cảm Tạ Pháp Môn Tâm Linh . Cảm Tạ Lư Quân Hoành Đài Trưởng. Các sư huynh hướng dẫn em nhiệt tình . Em năm nay 33t ở Bình Thuận, Phan Thiết năm 25t em quen bồ em nhưng nhà nó chơi bùa cổ của thái hại e ủ bệnh 3 năm e tròn 29 tuổi e phát hiện và e chia tay nó e đi khắp nơi trị bệnh không hết tiền mất tật mang , cho đến khi 1 ngày đẹp trời e vô tình lướt tiktok của Lư Đài Trưởng em xem em biết mình đã gieo phải trả nghiệp e lúc đó tự tu tập theo thôi nhờ vậy e được bề trên cứu chỉ thầy giỏi trị bệnh và lúc đó e đã ăn chay , phóng sinh ,niệm kinh tới giờ bệnh tuy giảm nhưng tiền thì bay hết , cả nữa cơ ngơi em gầy dựng bay hết giờ chỉ còn mạng . Xong e vô tình xin được vô nhóm lại lần nữa em được tu theo đúng nghĩa sư huynh chỉ . phép màu xảy ra ,em được người khác giúp em và căn bệnh em bị yểm bùa ăn loang khắp người giờ đây trị theo pháp bảo Pháp Môn Tâm Linh đã hết bệnh . thực sự tà không thắng chánh được e bị người nhà yêu cũ yểm bùa tà đạo e theo học Pháp Môn Mẹ Quán Thế Âm . Em được trọn vẹn ngày hôm nay e rất vui và cảm thấy rất ý nghĩa hơn sức tưởng tượng . Em nghĩ em viết lên đây mong mọi người hãy tu Pháp Môn Tâm Linh rất diệu kỳ và linh ứng ngoài sức tưởng tượng nếu mình tin và thực hành theo.

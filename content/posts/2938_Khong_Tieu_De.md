@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.786Z
+draft: false
+url: "/2025/08/cau-hoi-14-su-phu-noi-khi-tung-kinh.html"
+---
+
+Tiêu đề bài viết: Câu hỏi 14: Sư phụ nói khi tụng kinh bình thường, trong tâm phải có chư Phật và Bồ Tát. Xin hỏi đây có phải là một loại ý niệm không? Nội dung chi tiết: 🌺Câu hỏi 14: Sư phụ nói khi tụng kinh bình thường, trong tâm phải có chư Phật và Bồ Tát. Xin hỏi đây có phải là một loại ý niệm không? 🟡Trả lời 14: Tất cả đều là ý niệm. Học Phật chính là dựa vào ý niệm, ý niệm là điều quan trọng nhất. Bởi vì ý niệm ảnh hưởng đến hành vi và lời nói của bạn. Nếu bạn không suy nghĩ trước thì làm sao có hành động? Bạn phải suy nghĩ trước rằng mình phải đối xử tốt với người đó, bạn mới giúp đỡ họ. Bạn phải suy nghĩ trước rằng người đó thật đáng thương, bạn nên nói nhiều lời tốt với họ, bạn mới đi nói nhiều lời tốt với họ. Không có ý niệm thì làm sao có hành vi? Vì vậy, ý niệm trên thực tế chính là hành vi trong tâm. Còn hành vi bề mặt là hành động thể chất. 🙏Trích Bài giảng của Sư phụ Lư Đài Trưởng gửi các đệ tử trên toàn thế giới - Lần thứ 8 (Phần 4) 2012-12-03 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con . 弟子提问 师父开示 – 卢台长给全世界弟子第八次的开示（四） 2012-12-03 问14：师父说平常念经时，心中要有佛菩萨。请问这是一种意念吗？ 答14：都是意念。学佛就是靠意念，意念最要紧。因为意念影响着你的行为，还有言语。你没有先去想怎么会做出动作呢？你脑子先想了你要对他好一点，你才会帮他的忙。你脑子先想了他很可怜，你要跟他多讲好话，你才会去跟他多讲好话的。没有意念怎么会有行为呢？所以意念实际上就是心里行为。表面的行为是动作上的。

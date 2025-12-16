@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.134Z
+draft: false
+url: "/2025/02/tai-sao-nhung-nganh-kinh-doanh-sat-sinh.html"
+---
+
+Tiêu đề bài viết: Tại sao những ngành kinh doanh sát sinh có thể tồn tại hàng trăm năm? Nội dung chi tiết: Hỏi: sát nghiệp sẽ tạo ra nghiệp chướng rất lớn, sẽ tiêu hao rất nhiều phúc báo. Nhưng tại sao làm những ngành kinh doanh sát sinh có thể tồn tại hàng trăm năm? Ví dụ như thương hiệu vịt quay nổi tiếng nào đó duy trì rất lâu, có phải là do tổ tiên của chủ quán đó đã tích lũy đủ phúc đức không? Đáp: hoàn toàn chính xác, có những người bản thân đã có phúc đức rồi, nhưng kiếp này người này bắt đầu tạo nghiệp sẽ ảnh hưởng đến con cháu sau này, mặc dù ban đầu họ có thể kiếm được nhiều tiền, nhưng hậu duệ của người này đã bắt đầu mặc bệnh tật, thậm chí là bệnh lạ, nếu hiểu luận nhân quả sẽ biết ngành nghề này không nên làm, gieo nhân nào sẽ gặt quả ấy, nhân loại không ngừng tạo nghiệp sát sinh. Các con hiện nay tu tập rất chăm chỉ, tích lũy nhiều phúc đức, nếu sau này lại đầu thai làm người, dù có phạm sát nghiệp, thì trong vài chục năm đầu vẫn rất thuận lợi, thực ra cũng là dùng phúc báo để tạo nghiệp, làm tiêu hao dần phúc báo của mình. Lư đài trưởng khai thị giải đáp thư thắc mắc 116 杀生生意的为何能持续百年呢？ 问：杀业会产生很大的业障，会消掉很多的福报。但一些做杀生生意的为何能持续百年呢？比如某烤鸭品牌，持续了这么久，是不是店主的祖先积累了足够的福德呢？ 答：讲得完全正确，有的就是自己有这个福德，但是他这一辈就开始造业会影响到后代，虽然他们开始的时候能够赚钱，但是后代很多已经开始生病、有怪病，懂因果的话就知道了这种行业不能做，种什么事因一定会得到什么果报，人类就是不断在犯杀业。你们现在修得这么努力，积累很多福德，如果以后再投人，就算是犯杀业，也还是有几十年会很顺利，其实就是利用自己的福报在造业，会消损福报。 ——台长开示解答来信疑惑（一百十六)

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.854Z
+draft: false
+url: "/2025/06/cau-17-van-e-ve-luong-khi-trong-mieng.html"
+---
+
+Tiêu đề bài viết: Câu 17: Vấn đề về luồng khí trong miệng khi đốt Ngôi Nhà Nhỏ - Hỏi Đáp Phật Học Pháp Môn Tâm Linh Nội dung chi tiết: Ngày 24 tháng 1 năm 2010 Hỏi 17: Kính thưa Lư Đài Trưởng, khi đốt Ngôi Nhà Nhỏ, trong miệng đột nhiên có một luồng khí, không biết có ý nghĩa gì không? Nên nhả luồng khí đó như thế nào? Đáp 17: Nếu khi đốt Ngôi Nhà Nhỏ mà có một luồng khí thoát ra từ miệng, thông thường rất có thể đó là vong linh. Luồng khí này cần được nhả ra, đồng thời trong lòng nên nghĩ “Cảm tạ Quán Thế Âm Bồ Tát, cảm tạ Quán Thế Âm Bồ Tát”. Thông thường, vong linh ra vào cơ thể chúng ta đều có vị trí nhất định, bao gồm cổ, gáy, sau đầu, mắt, miệng và trán. Khi nhả luồng khí ra, cần nhả từ từ, nhẹ nhàng, miệng không nên mở quá to, có thể nhả luồng khí qua kẽ răng. 17、烧小房子时口中有气的问题——《心灵法门佛学问答 十七》 2010-01-24 问17：请教卢台长，烧小房子的时候口中突然有一口气，不知有没有含义？应该怎么吐呢？ 答17： 如果烧小房子的时候有一口气，一般很有可能是灵性。这口气要吐出来，同时心中要想“谢谢观世音菩萨，谢谢观世音菩萨”。 一般灵性进出我们人体都是有方位的，包括颈椎、后脑勺、眼睛、嘴巴、额头。 吐气出来时要慢慢地、轻轻地吐，嘴巴不要张得很大，可以顺着牙缝把气吐出。

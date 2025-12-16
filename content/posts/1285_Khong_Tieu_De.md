@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.663Z
+draft: false
+url: "/2024/12/trong-ten-cua-con-cai-co-ten-tieng-anh.html"
+---
+
+Tiêu đề bài viết: Trong tên của con cái có tên tiếng Anh và tiếng Trung, làm sao viết tên lên ngôi nhà nhỏ Nội dung chi tiết: Trong tên của con cái có tên tiếng Anh và tiếng Trung, làm sao viết tên lên ngôi nhà nhỏ Nam thính giả: Xin chào đài trưởng. Con muốn xin thầy dạy bảo 2 điều. Khi niệm ngôi nhà nhỏ cho con của mình, nó có 2 tên tiếng Anh và tiếng Trung thì con nên viết tên nào ạ? Lư đài trưởng đáp: Viết tên tiếng Anh và tiếng Trung ( Nó rất ít dùng tên tiếng Trung, ban đầu con viết cả tên tiếng Anh và Trung rồi, chắc đã nhận được phải không?) Viết cả 2 tên Anh-Trung không sao, có thể nhận được. Chỉ viết mỗi tên tiếng Anh không tốt lắm ( Vậy viết tên tiếng Anh ở trên, dòng dưới viết tên tiếng Trung?) Đúng. Bởi vì con là người Trung Quốc ( Con trai con sinh ra ở đây, nên chúng con đặt tên cho con trai tên tiếng Anh) Không cần biết. Họ của con vẫn dùng trong tên tiếng Anh đúng không? ( Đúng. Vậy thì phải ghi cả 2 tên rồi?) Viết 2 tên an toàn hơn. Trước đây đã có trường hợp giống vậy. Ví dụ tên là MIKE Li, vậy con ghi là Li xxx là được \*\*\*\* 孩子有中、英文两个名字如何写在小房子上 Shuohua20120217 01:14 男听众：台长您好，我跟您请教两个问题，给小孩子念小房子，他既有英文名字又有中文名字，您说写哪个好呢？ “卢台长”答：中文名字、英文名字一起写（他很少用中文名字，我原先写的都是英文名字，应该能收到吧？）英文名字、中文名字一起写没关系，能收到。单单写英文名字不太好（那就写上英文名字，底下再写中文排成一溜？）对，因为你毕竟是中国人（他在这出生，我们给他起的就是英文名字）不管的，英文名字你的姓总是在吧？（对，那就并列写在一起？）写在一起比较保险，过去有过这种情况，比方说叫MIKE Li，那你叫李什么就可以了。

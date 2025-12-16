@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.035Z
+draft: false
+url: "/2025/03/uc-hanh-cang-cao-tri-tue-cang-vien-man.html"
+---
+
+Tiêu đề bài viết: Đức hạnh càng cao, trí tuệ càng viên mãn Nội dung chi tiết: Wenda20161030B 33:03 Nam thính giả: Đức hạnh của một người có liên quan gì đến trí tuệ không? Người có đạo đức cao thì trí tuệ cũng nhiều hơn sao? Sư phụ: Đương nhiên rồi! Người có đạo đức, nghĩa là trí tuệ của họ viên mãn. Một người có đạo đức, biết đối xử tốt với người khác, làm việc thiện, giúp đỡ người khác, luôn coi trọng đạo đức trong cuộc sống—người như vậy chắc chắn có trí tuệ. Con thử nghĩ xem, bất kỳ ai có trình độ học vấn cao, thì tiêu chuẩn đạo đức của họ cũng cao hơn, đồng thời trí tuệ của họ cũng theo đó mà phát triển. Thầy hỏi con nhé, một giáo sư có trí tuệ cao hơn hay một người bình thường có trí tuệ cao hơn? (Nam thính giả: Giáo sư có trí tuệ cao hơn.) Đúng rồi! Người có học thức thì trí tuệ cũng phát triển hơn. (Nam thính giả: Thưa sư phụ, như vậy có phải khi trình độ kinh tế và văn hóa của một khu vực càng cao, thì đời sống tinh thần của họ cũng sẽ phát triển theo, và số lượng người tin Phật cũng ngày càng nhiều hơn không?) Đúng vậy! Con thử nhìn những nước phát triển xem, tôn giáo của họ cũng rất thịnh vượng. Cứ đi ba bước lại thấy một nhà thờ, đi năm bước lại thấy một nhà thờ. Họ không phải là những người không có tín ngưỡng đâu! (Nam thính giả: Đúng vậy, thực sự là như thế!) Wenda20161030B 33:03 德行越高，智慧越充盈 男听众：一个人的德行和智慧有什么关系？越有道德的人智慧就越多吗？ 台长答：那当然了，有道德的人，就是代表他的智慧充盈。一个人有道德，能够对得起别人，做善德、做善事，帮助别人，做人讲究道德，这个人当然就会有智慧了。你说说看，任何一个人文化水准越高，他道德水准越高，同样地就会延伸出他的智慧。我问你一句话，一个教授智慧高还是一个普通人智慧高？（教授智慧高）好了，有文化的（对对对。师父，您这样一说，一个地区经济文化水准越高，它的精神生活水平就带动得发展起来了，而且信佛的也越来越多，是不是这样？）对！所以你看很多发达的国家，它的宗教非常兴旺的，三步一个教堂，五步一个教堂，他们并不是没有宗教信仰的（是的，确实是这样）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.837Z
+draft: false
+url: "/2025/04/khong-nen-tho-tao-quan-trong-bep.html"
+---
+
+Tiêu đề bài viết: Không nên thờ Táo Quân trong bếp Nội dung chi tiết: Wenda20130203B 38:05 Nữ thính giả: Hiện nay vẫn có người thờ Táo Quân, vào ngày mùng một và rằm họ sẽ thắp hương. Vậy đặt bàn thờ trong bếp có phù hợp không? “Lư Đài Trưởng” đáp: Trong bếp vừa giết gà, giết vịt, giết cá, khắp nơi đều là những thứ ô uế, không tốt. Thứ nhất, Táo Quân có đến không? Thứ hai, Táo Quân cũng là một vị quan ở địa phủ. Con có thể thờ Ngài, nhưng không nên đặt ở khu vực bếp nấu. Nếu thực sự muốn thờ Táo Quân, thì cũng phải lập riêng một bàn thờ khác. Giống như một quan chức quản lý nhà tù, con lại đặt Ngài ngay trong nhà tù để cúng bái, liệu có phù hợp không? Vì Ngài là quan, nên không bị giới hạn như vậy. (Hiểu rồi) Cũng giống như nhiều người thờ Thổ Địa Công Công mà lại đặt Ngài dưới sàn nhà, con nghĩ có tôn kính không? Dù là quan ở địa phủ cũng không thể đặt dưới đất, mà phải thờ trên một bàn thờ riêng (Con đã hiểu). \*\*\* 不宜在厨房供灶王 Wenda20130203B 38:05 女听众：现在还有人供灶王，他们会在初一十五上香，这个在厨房是不适宜的吧？ “卢台长”答：在厨房里面又杀鸡，又杀鸭，又杀鱼的，到处都是肮脏的东西，到处都是不好的东西，第一灶王爷来不来？第二灶王爷也是地府的一个官，你可以供他，但是不能放灶头这里供。如果真正供灶王爷的话，也是另外供一个神台。就相当于一个专门管监狱的官，你把他放监狱里来拜他。因为他是官，所以他不受到限制的（明白）就像很多人拜土地公公，把土地公公放在地板上，你说尊敬不尊敬？人家也是官啊，地府的官可以不放在佛台，但是放在神台上面（知道了）

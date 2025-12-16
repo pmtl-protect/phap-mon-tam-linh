@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.603Z
+draft: false
+url: "/2025/06/van-ao-hoa-thinh-vuong-can-biet-kiem.html"
+---
+
+Tiêu đề bài viết: Vận đào hoa thịnh vượng cần biết kiểm soát, nếu không sẽ gặp vận rủi Nội dung chi tiết: Thính giả nữ: Thưa Đài Trưởng, Ngài dạy giữa người với người đều có duyên lành dữ, có nợ có trả. Nếu một người đàn ông cứ đi tìm phụ nữ, đó là do những người phụ nữ đó nợ anh ta, hay do chính anh ta chủ động đi tìm? Đài Trưởng : Cả hai đều có. Một người đàn ông không kiểm soát được bản thân thì giống như thú hoang, như động vật vậy. (Dạ, vậy có phải do kiếp trước nhiều người nợ anh ta không?) Các nhà khoa học nghiên cứu nhân loại học đã phát hiện, động vật giống đực không bao giờ thỏa mãn với một bạn tình duy nhất (Dạ vâng). Đây là bản năng động vật. Nhưng con người có tư duy cao cấp, nên không được hành xử như loài vật. (Nếu anh ta nói những phụ nữ đó chủ động đến tìm anh ta, tức là nhiều phụ nữ kiếp trước nợ anh ta, có đúng không ạ?) Dù họ chủ động hay anh ta chủ động, anh ta đều không nên làm. Nếu làm là có tội, sau này sẽ gặp vận rủi, chết sớm, nằm liệt giường sớm, toàn thân bất động, những trường hợp như vậy đều có thể xảy ra. (Dạ con hiểu rồi ạ) Wenda20170806B 48:08 桃花运旺盛要学会控制，否则会很倒霉 女听众：台长，您说我们人与人之间都是有恶缘有善缘，有欠还有还的。如果男的一直去找女人，是那些女人欠他的，还是他自己要去找的？ 台长答：自己找的、人家欠他的，都有。一个男人控制不住自己，就像个野兽一样，就像个动物一样 （哦，是前世很多人欠他？） 因为有很多科学家研究人类学的时候，雄性动物它不会满足一个雌性动物对它的欲望的（对）这种是动物的一种常态。但是人是有高级思维的，所以人不能去做这种动物的行为 （如果他说那些女人是主动来找他的，就是说很多女人前世是欠他的，对不对？） 主动来找他也好，他自己也好，他都不应该做，他做了他就有罪，他以后会倒霉的死得早了，很早就瘫在床上了，浑身不能动了，这种都有可能的 （明白） Wenda20170806B 48:08

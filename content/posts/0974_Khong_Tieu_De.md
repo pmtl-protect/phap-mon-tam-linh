@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.940Z
+draft: false
+url: "/2025/05/mot-nguoi-noi-nang-cung-hien-su-tu.html"
+---
+
+Tiêu đề bài viết: Một người nói năng cũng thể hiện sự tu dưỡng nhất định. Nội dung chi tiết: Lời của Đài Trưởng : Một người nói năng cũng thể hiện sự tu dưỡng nhất định. Khi nói chuyện, nên chậm rãi một chút. Quý vị nói cả buổi mà người khác chẳng hiểu gì thì có ích chi đâu? Lời nói phải từ từ thấm vào tai người nghe, khiến họ hiểu rõ ý nghĩa, đó mới thực sự gọi là “nói chuyện”. Phải nói thấu được tâm người, vậy mới đạt được hiệu quả. Nhiều người vẫn chưa thấu hiểu đạo lý này. Thứ Hai tuần tới chính là Ngày Đản sinh của Đức Phật Thích Ca Mâu Ni vĩ đại (Lễ Phật Đản). Kính mong mọi người càng thêm kiên định niềm tin nơi Bồ Tát, tin sâu vào Đức Phật vĩ đại của chúng ta. Ngài đã giáng thế cứu độ chúng sinh, lưu truyền Phật Pháp vi diệu, mang đến lợi ích vô lượng cho nhân gian. Phật Pháp chính là trí tuệ, là nền giáo dục cao quý, là “ giáo pháp Thánh hiền ban tặng cho thế gian”. wenda20150522 10:53 讲话要慢一点；台长缅怀释迦牟尼佛 台长语：一个人讲话也是代表他一定的修养，讲话要讲得慢一点。你讲了半天人家听不懂有什么用啊？讲话要慢慢送到人家耳朵里，让人家明白你在说什么，这才叫“说话”呢。说到人家心里去了，那才行。很多人不懂这个道理。下个礼拜一就是我们伟大的佛陀圣诞日，希望大家能够更多地、更好地相信菩萨，相信我们伟大的佛陀。当年到人间来救我们，传下了这么好的佛法，让我们受益无穷。佛法是一种智慧，是一种教育，是一种“圣贤给人间带来的教育”。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

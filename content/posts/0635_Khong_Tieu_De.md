@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.223Z
+draft: false
+url: "/2025/06/nguyen-lam-cong-uc-bo-tat-xem-trong-tam.html"
+---
+
+Tiêu đề bài viết: Nguyện làm công đức, Bồ Tát xem trọng tâm thành – Tâm là quan trọng nhất Nội dung chi tiết: Thính giả nữ: Thưa Sư phụ, con có thắc mắc về việc phát nguyện. Ví dụ con nguyện mỗi tháng dành một số tiền nhỏ để làm công đức, nhưng vì số tiền ít quá, con có thể tích góp đến cuối năm rồi quyên góp một lần được không ạ? Sư phụ: Việc này con tự suy nghĩ cũng sẽ hiểu thôi. Ví dụ, nếu con bận không có thời gian niệm Ngôi Nhà Nhỏ, vậy mỗi ngày niệm một ít rồi không đốt, đợi đến lúc lâm chung đốt hết một lượt có được không? Hoặc ví dụ khác: Con đi khám bác sĩ, nói "Dạ dày con không tốt nên không uống thuốc được, đợi khi nào dạ dày khỏe hơn con sẽ uống." Nhưng nếu đợi đến lúc dạ dày khỏe mới uống thuốc, thì thuốc đó có thể lại làm hại dạ dày ngay lập tức, con hiểu không? (Dạ, con hiểu rồi ạ.) Làm việc thiện đâu phải đợi tích góp nhiều mới bắt đầu? Có tâm nguyện, dù chỉ quyên 5 đồng hay 1 đồng cũng là tâm thành. Nếu đợi đến khi có nhiều tiền mới quyên, ý nghĩa đã khác rồi. Bồ Tát không xem trọng số tiền con quyên góp, mà xem trọng cái tâm của con. Tâm mới là điều quan trọng nhất! Người tu Phật lấy tu tâm làm gốc, vì sao phải "tu tâm"? Chính là vậy đó! (Dạ, con hiểu rồi ạ.) Wenda20110916 39:30 许愿做功德，菩萨在乎你的心，心最重要 女听众：台长，还有一个许愿的问题，比如说我许愿做功德，每月固定拿出几百块钱来做功德，因为有点少，我可不可把钱攒下来年底一次性捐出去？�台长答：像这种事情实际上你自己想想应该就明白了。比方说，现在忙没时间念小房子，那么每天念一点点不烧，等到死的时候一起烧？再举个简单例子，你去看医生：“我肠胃不好不能吃药，所以现在暂时不吃，等到肠胃稍微好一点再吃药。”你说说看，要是等到你胃好的话，药吃下去，一下子你这个胃不是又弄坏了吗？（明白了，台长）哪有说做好事不从一点点做起的啊？你有这个心，哪怕捐五块钱一块钱那你是有心发心呐，等到你以后钱攒得多了一起给，那又不一样啦，你听得懂吗？菩萨不在乎你的什么捐钱的，菩萨是在乎你的心，心是最重要。学佛的人讲的是心，为什么要修心啊？（哦，明白，台长） Wenda20110916 39:30

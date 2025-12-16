@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.963Z
+draft: false
+url: "/2024/12/neu-mot-gia-inh-mac-no-tai-chinh-chua.html"
+---
+
+Tiêu đề bài viết: Nếu một gia đình mắc nợ tài chính chưa trả hết, thì liệu cộng nghiệp của gia đình đó có tiếp tục tồn tại không? Điều này có trở thành chướng ngại trong việc tu hành không? Nội dung chi tiết: Hỏi 5: Nếu một gia đình mắc nợ tài chính chưa trả hết, thì liệu cộng nghiệp của gia đình đó có tiếp tục tồn tại không? Điều này có trở thành chướng ngại trong việc tu hành không? Đáp 5: Có, vì gia đình là một tổ hợp, được hình thành từ nhân duyên trong tiền kiếp, dẫn đến việc kiếp này cùng nhau tạo thành một gia đình. Sư phụ từng thấy nhiều trường hợp mẹ và con trai là vợ chồng từ kiếp trước, vì vậy khi con trai cưới vợ, người mẹ có cảm giác như con trai mình lấy “vợ bé” của bà, bởi bà vẫn mang tâm không buông bỏ từ kiếp trước. Gia đình là một tổ hợp gắn kết chặt chẽ, vì vậy nếu một thành viên trong nhà bị bệnh hoặc gặp chuyện không may, cả gia đình cũng sẽ bị ảnh hưởng, kéo theo vận rủi. Cộng nghiệp của gia đình sẽ tiếp tục tồn tại cho đến khi các thành viên trong gia đình cùng nhau chuyển hóa nó. �问5：如果一个家庭欠有外债，在还没有能力偿还完的情况下，是不是这个家庭共业就会一直存在？而且会成为修行的障碍？ 答5：会，因为家庭是一个组合体，由于前世的因缘，今世组合为一个家庭。台长就看到很多妈妈和儿子都是前世夫妻，所以儿子娶妻妈妈会觉得他娶了小老婆一样，因为是前世的情人，所以她不舍得。家庭是一个组合，所以家里只要一个人生病，全家都会倒霉。 Đài Trưởng khai thị cho các Phật tử về những vấn đề siêu hình (1) https://lujunhong2or.com/台长开示佛友玄学问题（一）

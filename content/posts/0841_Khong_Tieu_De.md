@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.675Z
+draft: false
+url: "/2025/02/hay-nam-chat-lay-tam-tu-bi-cua-quan-am.html"
+---
+
+Tiêu đề bài viết: Hãy nắm chặt lấy tâm từ bi của Quan Thế Âm Bồ Tát Nội dung chi tiết: Hãy nắm chặt lấy tâm từ bi của Quan Thế Âm Bồ Tát, mãi mãi không bị bỏ lại phía sau, chúng ta sẽ vượt qua mọi khó khăn, chúng ta sẽ trở thành Bồ Tát ở nhân gian. Các con nhất định có thể thành công, Sư phụ không phải bây giờ thấy các con, hy vọng về sau cũng thấy các con từng người từng người đều có thể lên trên, đừng để Thầy thấy từng người từng người đều đi xuống. Dốc sức đi lên, đừng ở nhân gian mà hãy leo lên, phải để cảnh giới của mình đi lên, trở thành đệ tử Phật chân chính. Hãy nghĩ xem Đức Phật đã chịu bao nhiêu khổ cực, Đại Thế Chí Bồ Tát, Quan Thế Âm Bồ Tát, Văn Thù Bồ Tát, Phổ Hiền Bồ Tát, Tế Công Hoạt Phật… có vị Bồ Tát nào đến nhân gian độ người mà không chịu khổ đâu ! Chịu khổ chính là tiêu nghiệp, chịu khổ mới có thể thành toàn chúng sinh, chính là thành toàn chính bản thân mình. Bất cứ vị Phật nào cũng là vì Ngài thành toàn chúng sinh, Ngài mới thành toàn được tự ngã! ～ Sabah Malaysia 17012015 ♨️♨️♨️ 緊緊抓住觀世音菩薩這個慈悲的心，永遠不掉隊，我們會任何困難都能克服，我們會成為人間的菩薩。你們一定能夠成功的，師父不是現在看到你們，希望將來也看到你們一個個都能上來，不要讓我看見一個個都下去了。好好地往上，不要在人間往上爬，要讓自己的境界往上爬，成為真正的佛弟子。 想一想佛陀吃了多少苦，大勢至菩薩、觀世音菩薩、文殊菩薩、普賢菩薩、濟公活佛……哪一位菩薩到人間來度人不吃苦啊！吃苦就是消業，吃苦才能成全眾生，就是成全自己。任何一個佛就是因為他成全了眾生，他才成全了自我！ ～20150117馬來西亞·沙巴

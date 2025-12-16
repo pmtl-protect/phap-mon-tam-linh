@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.887Z
+draft: false
+url: "/2024/12/nhung-luu-y-khi-day-tre-niem-kinh.html"
+---
+
+Tiêu đề bài viết: Những lưu ý khi dạy trẻ niệm kinh Nội dung chi tiết: wenda20160110B 52:08 Những lưu ý khi dạy trẻ niệm kinh Nữ thính giả: Có một số đồng tu dạy trẻ nhỏ niệm Tâm Kinh, nhưng đôi khi trẻ vừa niệm một lúc lại chen vào vài câu, hoặc có lúc đi rửa tay, nhớ ra lại niệm vài câu. Liệu như vậy có phải là không tôn kính Bồ Tát không? Có cần phải đợi đến khi trẻ lớn hơn mới dạy không ạ? \*\*Đài Trưởng đáp:\*\* Phải xem trẻ mấy tuổi (3 tuổi) ồ, vậy thì không sao đâu. Chỉ cần dặn trẻ đừng đùa giỡn là được, không nên để tên Bồ Tát ra miệng mà đùa giỡn. (Ồ, vậy trong trường hợp này có cần phải niệm Lễ Phật Đại Sám Hối Văn cho trẻ không?) Mỗi ngày niệm một lần cũng được. (Được rồi, cảm ơn thầy!) ---------------------- Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 ---------------------- wenda20160110B 52:08 \*\*教小孩念经的注意事项\*\* 女听众：有的同修教孩子念心经嘛，小孩子有时候背一会，就会插一句话，或者有的时候去洗手间洗手，想起来也念两句，那这样是不是对菩萨不恭敬啊？是不是要等到孩子大一点…… 台长答：要看几岁（3岁）哦，那没关系的。叫他不要开玩笑就好了，不要把菩萨的名字放在嘴边里乱开玩笑就好了（哦。这种情况要帮小孩子念礼佛大忏悔文吗？）每天能念一遍也可以（好的，感恩师父！）

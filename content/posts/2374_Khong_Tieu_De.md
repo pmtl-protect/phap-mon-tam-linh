@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.393Z
+draft: false
+url: "/2025/08/neu-la-nguoi-chay-co-an-trung-va-uong.html"
+---
+
+Tiêu đề bài viết: NẾU LÀ NGƯỜI ĂN CHAY CÓ THỂ ĂN TRỨNG VÀ UỐNG SỮA Nội dung chi tiết: Nam thính giả: Có một số đồng tu luôn khuyên con ăn trứng và uống sữa, nhưng con đã phát nguyện ăn chay hoàn toàn trong hai ba năm rồi, con nên giải thích thế nào để họ ko nghĩ là con quá cứng nhắc? Đài Trưởng đáp: Con chính là cứng nhắc đấy. Bởi vì trong thời kỳ mạt pháp, ăn chay có thể bao gồm trứng và sữa. Nam thính giả: Nhưng con đã phát nguyện rồi. Đài Trưởng đáp: Phát nguyện ko quan trọng, con phát nguyện ăn chay thì đó chính là ăn chay, là điều mà Bồ Tát chấp nhận. Nam thính giả: À, vậy là con cứng nhắc rồi. shuohua20140418 15:52 吃全素可以吃鸡蛋喝牛奶 男听众：有同修老是劝我吃鸡蛋、喝牛奶，但是我许愿吃了两三年全素了，我该怎么向他们解释才不会让他们觉得我执著呢？ 台长答：你就是执著啊。因为现在末法时期吃素可以吃鸡蛋、喝牛奶的（但是我已经许愿了啊）许愿不管的，你许愿吃素，这就是素的啊，菩萨同意的素的啊（好）除非你自己不要吃，那是另外的概念（哦，是我执著了）

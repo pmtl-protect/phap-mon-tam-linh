@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.301Z
+draft: false
+url: "/2024/12/vua-lam-viec-vua-tung-kinh-nhu-vay-kinh.html"
+---
+
+Tiêu đề bài viết: vừa làm việc vừa tụng kinh, như vậy kinh văn và Ngôi Nhà Nhỏ có còn tác dụng không? Nội dung chi tiết: Hỏi 12: Sư phụ luôn nhấn mạnh cần tĩnh tâm khi tụng kinh, nhưng con không có đủ thời gian để yên tĩnh tụng kinh. Thường là khi nào có thời gian hoặc vừa làm việc vừa tụng kinh, như vậy kinh văn và Ngôi Nhà Nhỏ có còn tác dụng không? Đáp 12: Đó chính là nhân duyên của con người. Nhiều người đến khi mắc bệnh ung thư giai đoạn cuối mới biết đến Pháp môn Tâm Linh, lúc đó ngay cả Sư phụ cũng khó cứu họ, vì họ không còn thời gian để trả hết nghiệp chướng qua hàng ngàn tờ Ngôi Nhà Nhỏ . Ngôi Nhà Nhỏ là sự kết hợp từ kinh điển Phật giáo, thuộc về Quán Thế Âm Bồ Tát, không phải của Sư phụ. Việc nhớ đến và tụng kinh, dù là khi đi bộ hay đang làm việc, đều không vấn đề gì. Cuộc sống chính là thiền, sống là áp dụng Phật pháp vào nhân gian. Phật pháp nhân gian mà Hòa thượng Tinh Vân giảng giải cũng tương tự như lời dạy của Sư phụ, rằng chúng ta phải vận dụng Phật pháp vào đời sống. �问12：师父一直强调要静心念经，可是又没有那么时间安静地念，一般是有空想起来就念经，或边做事边念的经文和小房子还有用吗？ 答12：这就是人的缘分，很多人生了癌症晚期才知道心灵法门，这个时候台长都很难救他，因为他已经没有时间还掉几千张小房子的债。小房子是佛教经典组合，是观世音菩萨的，不是台长的。想起来就念、走路念都可以，都没问题。生活就是禅，生活就是要活在人间佛法中，星云大师说的人间佛法，跟台长讲的一样，我们就是要将佛法用在人间。 Đài trưởng khai thị Phật hữu về vấn đề huyền học (phần 2) https://lujunhong2or.com/台长开示佛友玄学问题（二）/

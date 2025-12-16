@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.690Z
+draft: false
+url: "/2025/03/chuyen-tam-mot-phap-mon-chuyen-hoa.html"
+---
+
+Tiêu đề bài viết: Chuyên tâm một pháp môn, chuyển hóa nguyện lực để trả nợ bằng Ngôi Nhà Nhỏ Nội dung chi tiết: Wenda20120914 01:05:22 Thính giả nữ hỏi: Sư phụ, có một đồng tu mới tu chưa lâu, trước đây anh ấy niệm nhiều loại kinh khác nhau, vừa niệm “A Di Đà Phật” vừa niệm “Địa Tạng Kinh”. Anh ấy gọi điện hỏi con, con liền khuyên anh ấy tạm dừng niệm “A Di Đà Phật” và “Địa Tạng Kinh”, chỉ chuyên tâm niệm Ngôi Nhà Nhỏ và những bài kinh thuộc Pháp Môn Tâm Linh. Dù sao cũng là để trả nợ nghiệp, con nói rằng chúng ta có thể chuyển hóa nguyện lực thành Ngôi Nhà Nhỏ để trả nợ, không biết nói vậy có đúng pháp không? Sư phụ đáp: Hoàn toàn đúng pháp! Không chỉ đúng pháp mà còn rất có trí tuệ nữa! Nói đơn giản, nếu con không có vốn, thì làm sao tạo ra được thứ mới? Trước tiên, con phải tạo dựng công đức của mình. Ví dụ, con muốn mua một món đồ nhưng lại không có tiền, vậy trước tiên con phải trả hết nợ chứ! Nợ còn chồng chất thì làm sao có thể vay thêm tiền được? Ai sẽ cho con vay đây? (Thính giả: Con hiểu rồi, sư phụ bảo trọng sức khỏe!) Wenda20120914 01:05:22 一门精进，转换愿力用小房子还债 女听众：台长，有一个同修刚修了不久，但是他之前念的经文比较杂，又念阿弥陀佛又念地藏经，他打电话来问我，我就跟他说：先把阿弥陀佛和地藏经暂停，就念小房子和心灵法门的这些功课。反正都是还账，就是我们把愿力转换成小房子的方式去还，不知道这样说如不如法？�台长答：完全如法，不但如法还智慧呢！就是说我们现在自己没有本钱怎么来制造出新东西呢？你要先把自己功德做做好，比方说你现在想买一样东西，你想有钱，你首先要把帐要还清楚吧，你欠钱都欠了半天，你还问人家借钱，谁借给你啊？（明白了，台长保重）

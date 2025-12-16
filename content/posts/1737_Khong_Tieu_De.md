@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.943Z
+draft: false
+url: "/2025/05/nhieu-nguoi-chi-biet-cau-phuc-ma-khong.html"
+---
+
+Tiêu đề bài viết: Nhiều người chỉ biết cầu phúc mà không biết cầu công đức. Nội dung chi tiết: 🍁✨Nhiều người chỉ biết cầu phúc mà không biết cầu công đức. Trên thực tế, công đức có thể tiêu trừ nghiệp chướng của thân bạn ,trong khi phúc đức chỉ có thể làm nghiệp chướng của bạn trầm trọng thêm. Vì vậy, những người cầu phúc , một ngày nào đó phúc của họ cạn kiệt, điều chờ đợi họ chính là nghiệp chướng. Chúng ta cầu công đức để tiêu trừ ác nghiệp đã tích lũy trong kiếp trước. Nếu bạn cầu nguyện cho con cái, tiền bạc, v.v. mỗi ngày, ngay cả khi bạn có được những gì mình cầu xin, nó cũng chỉ mang lại cho bạn vài năm hạnh phúc trên thế gian, còn lại sẽ là những phiền não bất tận. Bởi vì khi con cái bạn khỏe mạnh, may mắn thì nỗi lo của bạn sẽ là mình già đi, đến lúc sắp phải ra đi, bạn sẽ không nỡ rời xa chúng. Những điều bạn cầu không phải là Vĩnh Cửu,Đối với những người như chúng ta học Phật , Cầu được thì cũng chẳng mang lại lợi ích gì ? 🌟Bài khai thị phát thanh (I) 18, Công đức tùy thuộc vào phát Tâm , phúc Báo là phiền não .đài trưởng lư Singapore Pháp Môn Tâm linh 很多人只知道求福报，而不懂得求功德。实际上，功德能够消除你身上的孽障，而福德只能够加重你身上的业障，所以，求福的人，等到某一天他的福享尽了，等待他的就是业障。我们要求功德，要消除自己身上累世积累的恶业。天天求孩子、财运等，求到了，也只会给你带来几年在人间的欢乐，接下来的就是无尽的烦恼。因为当你的孩子身体好了，财运有了，你的烦恼就是你老了，等你要走的时候，你又舍不得他了，这些求来的东西不是长久的，对于我们学佛的人来说，求来了又有何用呢？ 广播讲座（一）18、功德靠发心，福报是烦恼-卢台长新加坡心灵法门 🙏🙏🙏Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót. không Đúng Lý Đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.

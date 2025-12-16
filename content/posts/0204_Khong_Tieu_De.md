@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.981Z
+draft: false
+url: "/2025/07/tai-sao-ech-lai-tao-nghiep-nang-hon-ga.html"
+---
+
+Tiêu đề bài viết: Tại sao ăn ếch lại tạo nghiệp nặng hơn ăn gà? Nội dung chi tiết: Thính giả nữ: Thưa Thầy Lư , trước đây người từng nói rằng ăn ếch tạo nghiệp còn nặng hơn ăn gà, vậy nguyên nhân là gì ạ? Thầy Lư : Bởi vì ếch là loài động vật có ích, tức là súc vật có lợi cho con người. - Còn gà, nói thật thì nó đẻ trứng cho con người ăn. Còn ếch thì ăn côn trùng, diệt sâu bọ, và linh tính của ếch rất mạnh – một con ếch có linh tính tương đương với vài con gà gộp lại. - Con có thấy ếch rất nhanh nhẹn không? Nó rất nhạy bén, nhảy nhót trong ruộng, chỉ một chút động tĩnh là nó biết ngay, cho nên linh tánh của nó rất mạnh. - Khi con ăn một con ếch, lột da nó ra, thì nghiệp chướng tạo ra còn lớn hơn nhiều so với việc giết một con gà. Thính giả nữ: Con hiểu rồi. Giống như cá lóc có linh tính mạnh phải không ạ? Thầy Lư : Đúng vậy. Nhưng gi.ết gà, giế.t các loại cá khác thì cũng không tốt, cũng cùng một đạo lý. —-Nguồn: Wenda20140817B 46:06 为何吃青蛙的业障比较大 女听众：您之前讲过吃青蛙的业障比吃鸡的业障还大，这是什么原因呢？ 台长答：因为青蛙是一种益畜，就是有益的牲畜。鸡呢，讲老实话给你生蛋；青蛙吃虫，因为青蛙的灵性比较重，一个青蛙的灵性相当于好几个鸡的灵性了。你看青蛙活不活？它非常活跃的，在田里面跳啊跳啊，很敏感的，一点点事情它就知道，所以它的灵性比较重。你吃一个青蛙，把它的皮剥掉，那么你的业障远大于杀一个鸡（明白。就像黑鱼的灵性比较重，是吗？）对。但是杀鸡、杀其他的鱼都不好的，一样道理 wenda20140817B 46:06

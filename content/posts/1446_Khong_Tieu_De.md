@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.154Z
+draft: false
+url: "/2025/03/bien-tinh-cam-thanh-nang-luong-tich-cuc.html"
+---
+
+Tiêu đề bài viết: Biến tình cảm thành năng lượng tích cực là tăng thượng duyên, biến thành năng lượng tiêu cực sẽ kéo lùi bản thân Nội dung chi tiết: Wenda20161216 42:10 Nữ thính giả: Thưa Thầy, tình cảm là vấn đề lớn nhất của con người. Nếu người tu hành không thể buông bỏ được tình cảm, nó sẽ trở thành chướng ngại cho đạo hạnh của họ, thậm chí trở thành ngôi mộ mà họ tự đào trước khi thành Phật. Xin Thầy từ bi khai thị cho chúng con. Đài Trưởng: Tình cảm, nếu biến nó thành năng lượng tích cực, sẽ tăng thêm động lực để con tiến bộ; nhưng nếu biến nó thành năng lượng tiêu cực, nó sẽ kéo chân con lại, khiến con thụt lùi và trở nên lười biếng. Vì vậy, nếu sử dụng tình cảm một cách đúng đắn, nó sẽ trở thành tăng thượng duyên giúp con tiến bộ; ngược lại, nếu không biết cách xử lý, con sẽ phải chịu đựng nỗi đau từ tình cảm. Bất kỳ ai cũng không nên chấp trước vào vấn đề tình cảm, vì người chấp trước sẽ phải chịu khổ đau. "Nhất định phải có người ấy", "Nhất định phải để con cái tốt đẹp", khi con thất vọng, nếu không buông bỏ được, con có thể sẽ phải gánh nghiệp cho họ, và thậm chí còn đau khổ hơn cả họ. Wenda20161216 42:10 把感情变为正能量是增上缘，变为负能量会拖后腿 女听众：师父，感情是人们最大的问题，如果修行人看不破感情，就会障碍自己的道行，就是成佛之前自己挖掘的坟墓。请师父慈悲开示一下。�台长答：感情，把它变为正能量，会增加你上进的动力；把它变成负能量，是拽你后腿，让你倒退、懈怠的负能量的根源。所以感情用得好，是增加你的增上缘；感情不好，那你自己会承受感情的痛苦。任何人在感情问题上不能执著，执著的人在感情上就会吃苦。“我一定要他”“我一定要孩子好”，当你失望的时候，你放不下，可能你就帮他背业了，你可能会比他还要痛苦。

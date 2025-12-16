@@ -1,0 +1,8 @@
+---
+title: "Liên quan đến vấn đề niệm kinh trong giờ làm việc."
+date: 2025-12-15T22:19:51.638Z
+draft: false
+url: "/2025/12/lien-quan-en-van-e-niem-kinh-trong-gio.html"
+---
+
+Liên quan đến vấn đề niệm kinh trong giờ làm việc. Nữ thính giả: Hiện nay, chúng con có rất nhiều nhóm cộng tu lập đạo tràng ở trên mạng, Cùng nhau cộng tu niệm Kinh bài tập, Sau đó học 《 Bạch Thoại Phật Pháp 》 , và còn niệm Ngôi Nhà Nhỏ. Có rất nhiều đồng tu cũng tham gia, Mọi người đều nhận được rất nhiều lợi ích , Còn cảm nhận được Bồ Tát gia trì rất lợi hại , pháp hỷ tràn đầy. Thế nhưng, trong lúc tinh tấn tu tập ấy, Có một số đồng tu còn lo lắng, Bởi vì đại đa số thời gian tham gia cộng tu là giờ làm việc , và rất nhiều đồng tu là người còn đi làm . Trong giờ làm việc lén lút tham gia nhóm cộng tu và niệm Ngôi Nhà Nhỏ. Dù rằng đã niệm số lượng Ngôi nhà nhỏ không ít, nhưng trong tâm vẫn cảm thấy bất an , Không biết làm như thế này có khiến cho nghiệp cũ chưa tiêu lại thêm nghiệp mới không? Xin Sư phụ khai thị . Đài trưởng đáp: Nói về mặt lý thuyết, tốt nhất là không nên có cảm giác tội lỗi này, thì Kinh niệm ra sẽ có hiệu quả tốt hơn. Nếu thực sự Con đã làm như thế, thành thật mà nói, Nếu không ảnh hưởng đến công việc của mình , con niệm một ít Ngôi nhà nhỏ, có rất nhiều thứ ở nơi con làm việc sẽ diễn ra thuận lợi, kể cả ông chủ của con cũng sẽ gặp nhiều việc thuận lợi hơn. wenda20140511B 43:58 有关在上班时念经的问题 女听众：我们现在有很多共修群在网上成立道场，一起共修念功课，然后学习《白话佛法》，还有念小房子，很多同修也都参与，大家都受益匪浅，就是感觉到菩萨加持很厉害，法喜充满。但是在精进共修的同时，有些同修有些担忧，因为这些共修时间大都是在工作日上班时间，很多同修又都是上班族，上着班偷偷地参加共修念小房子，虽然念了不少小房子，但是心里会不安，不知道这样做会不会旧业未消又添新业？请师父开示一下。 台长答：从道理上来讲最好没有这种犯罪感，那就念出来的效果更好。如果你真的这么做了，讲老实话，你在单位如果不影响你工作的话，你念一点小房子，单位里很多事情也会顺利的，连老板都会很多事情顺利的.

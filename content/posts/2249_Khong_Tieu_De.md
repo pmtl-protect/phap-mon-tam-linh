@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.076Z
+draft: false
+url: "/2025/02/tam-tu-bi-co-cam-ong-troi-at-thuong.html"
+---
+
+Tiêu đề bài viết: Tâm từ bi có thể cảm động trời đất, thường xuyên thả cá sẽ giúp tuổi già không bệnh tật, không tai họa. Nội dung chi tiết: Wenda20131122 36:36 Nữ thính giả: Con thường tan làm lúc sáu giờ tối, khi trời đã tối. Mỗi ngày tan làm con đều đi qua một quầy bán cá, nhìn thấy những con cá này con cảm thấy chúng rất tội nghiệp, chúng đều là từ Kunshan mang đến. Đôi khi con có một chút tiền trong người, con sẽ mua hết chúng và thả đi. Tuy nhiên, đã là buổi tối và trời tối đen, con không làm nghi thức mà chỉ thả cá và niệm Chú Vãng Sanh, như vậy có được không? Sư phụ: Được, con sẽ rất tốt đẹp trong tuổi già, khi con có sức khỏe tốt, không bệnh tật, và cuộc sống đầy đủ. Khi đó, con sẽ nghĩ lại những lúc khó khăn bây giờ. Người khác về nhà, kiếm chút tiền để mua đồ ăn, còn con thì mua cá để thả, con thử nghĩ xem tinh thần của con có thể cảm động Bồ Tát không?! Làm như vậy, tuổi già của con sẽ rất tốt, và con còn có thể lên trời. Tâm từ bi có thể cảm động trời đất, đối với hành động của con, Thầy rất kính trọng! Wenda20131122 36:36 慈悲心能感动天地，常放生晚年无病无灾 女听众：我一般晚上六点下班，天都暗了。我每天下班都经过一个卖鱼的摊头，看到这些鱼就觉得它们很可怜，都是从昆山抓来的。有时候身上会有点儿钱，我就把它们买了全部放掉。不过已经是晚上天很黑了，我仪规也不做就直接放掉，然后念往生咒，这样可以吗？�台长答：可以的。你以后晚年好得不得了，等到你晚年身体很好、没有病痛而且衣食无忧的时候，你就想想现在很辛苦的时候。人家回家了、人家赚点钱买点东西吃吃，而你把鱼买下来去放，你说说看你这种精神能不能打动菩萨？！你这样的话，晚年会非常好，而且以后还能上天。慈悲心能感动天地，对你做的这些行为，台长都非常敬重！

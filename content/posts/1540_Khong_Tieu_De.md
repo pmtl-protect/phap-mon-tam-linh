@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.435Z
+draft: false
+url: "/2024/11/mang-ca-cua-chong-cau-ve-i-phong-sanh.html"
+---
+
+Tiêu đề bài viết: Mang cá của chồng câu về đi phóng sanh nên khấn cầu như thế nào? Chồng câu cá, vợ cũng có nghiệp Nội dung chi tiết: Mang cá của chồng câu về đi phóng sanh nên khấn cầu như thế nào? Chồng câu cá, vợ cũng có nghiệp 🌻Nữ thính giả: chồng của đồng tu không tin Phật, thường xuyên câu cá. Đồng tu thấy chồng câu cá, rất buồn bã, và khuyên bảo chồng, muốn mang những con cá này đi phóng sinh. Con muốn hỏi, mang cá của chồng câu về đi phóng sinh nên khẩn cầu như thế nào? ☀️Đài trưởng đáp: mang cá đã câu đi phóng sinh, vợ cậu ấy làm đúng, nhưng nghiệp chướng của chồng cô ấy vẫn còn. con cá bị móc câu móc trúng rồi, giống như tay bị cái đinh móc vào rồi kéo lên 🌻 (đúng) ☀️Con nghĩ xem, cái này đã tạo thành đau khổ cho con cá rồi, hơn nữa cái này đều có oán khí, thậm chí khi nó bị câu lên thì bị khó thở 🌻(đúng) ☀️Cá bị "phát bệnh tim", khó thở 🌻(Cô ấy thả những con cá đó, nên khẩn cầu như thế nào?) ☀️ Cầu xin Bồ Tát Quán Thế Âm phù hộ, chỉ có thể nói "cố gắng giảm bớt", bởi vì con phải biết, chồng câu cá, vợ cũng có nghiệp. Hoặc là cầu cho chính mình, hoặc là cầu giúp cho chồng, đều giống nhau. Cầu giúp cho chồng, chỉ có thể nói "Giảm bớt nghiệp chướng của ông ấy", nghiệp đã tạo rồi, chỉ có thể giảm bớt, không tiêu trừ được đâu 🌻 (Con Hiểu rồi ạ ) ✨✨✨Wenda20201018 08:21 把先生钓的鱼放生该如何祈求；先生钓鱼，妻子也有业 女听众：同修的先生不信佛，经常钓鱼。同修看见先生钓鱼，很难过，劝说先生，想把这些鱼拿去放生。想问，拿先生钓回来的鱼去放生应该怎么祈求？ 台长答：钓的鱼去放生，他老婆是做得对的，但是她老公这个业障还在的。鱼被钩子钩到了，就像手被人家钩子钉住拉上来（对）你想想看，这个对鱼已经造成痛苦了，而且这个都有怨气的，它至少钓上来的时候呼吸不畅（对）鱼的“心脏病”发，呼吸不畅（她去把那些鱼放掉，应该怎么祈求？）求观世音菩萨保佑，只能说“尽量减少”，因为你要知道，老公钓鱼，老婆也有业的。要么就求自己，要么帮老公求，都一样的。帮老公求，只能说“减少他的业障”，业已经造了，只能减少，不可能消除的（明白了）

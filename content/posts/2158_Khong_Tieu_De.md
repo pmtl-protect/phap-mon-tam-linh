@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.884Z
+draft: false
+url: "/2025/04/quy-vi-nhung-nguoi-e-tu-that-su-nen-suy.html"
+---
+
+Tiêu đề bài viết: Quý vị, những người đệ tử, thật sự nên suy nghĩ lại, quý vị đã làm được gì? Nội dung chi tiết: Đã tạo được bao nhiêu công đức? Công đức hiện tại của quý vị có xứng đáng với những gì quý vị sẽ phải trả về sau hay không? Hãy tự hiểu rằng, làm công đức là chính quý vị được hưởng, không phải người khác. Nếu không chịu tu hành cho tốt, khi tai nạn ập đến, không thể trốn thoát thì chỉ có con đường chết. Sư phụ nói cho quý vị nghe, số người mắc bệnh ung thư bây giờ so với trước đây có thể so sánh được không? Hiện nay, số người mắc ung thư nhiều đến mức nào? Ngày trước, chỉ cần có một người mắc ung thư là chuyện kinh thiên động địa, còn bây giờ, đã trở thành chuyện quá đỗi bình thường. Sư phụ bây giờ chỉ cứu người tốt, không cứu kẻ xấu. Quán Thế Âm Bồ Tát cũng chỉ độ những chúng sinh có duyên. Tại sao Quán Thế Âm Bồ Tát cứu quý vị? Quý vị đã làm được gì? Bây giờ ai cũng có cuộc sống tốt hơn, vậy quý vị đã bỏ ra điều gì? Những thứ này có thực sự là những gì quý vị đáng được hưởng không? Sư phụ đã rất lâu rồi không nghiêm khắc với quý vị như thế này. Sư phụ nói cho quý vị biết, nếu quý vị không chịu tu hành cho tốt, thì ngay cả sư phụ cũng không thể cứu được quý vị! Trích BTPP(12) Quyển 3- Tập 28 Trang nghiêm cõi Phật, thầy nghiêm trò giỏi (Phần 1) 你们徒弟真的要好好想想，你们做了些什么？你们做了多少功德？你们现在所做的功德和你们以后所要付出的能不能成正比啊？自己要明白，做功德是你们自己得，不是人家得。你们要是不好好修的话，一个灾难来了逃不掉就死了。師 父讲给你们听，现在生癌症人的数量跟过去能比吗？现在生癌症的人有多少啊。过去有一个人生癌症就是不得了的事情，现在已经见多不怪了。師 父现在是只救好的，不救坏的。观世音菩 薩都是度有缘众生的。观世音菩 薩为什么救你们？你们做了些什么？现在个个家里都好了，你们付出了什么？这些东西都是你们应该得到的吗？師 父已经好久没这么讲你们了。師 父告诉你们，你们不好好修，连師 父都救不了你们。 摘自《BHFF》第三册 第28篇 庄严佛净土，严师出高徒（一）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.842Z
+draft: false
+url: "/2025/04/tu-tot-tren-nguoi-se-co-iem-sang-trong.html"
+---
+
+Tiêu đề bài viết: Tu tốt trên người sẽ có điểm sáng, trong tai nạn có thể được Bồ Tát cứu giúp Nội dung chi tiết: Hỏi: Thưa Sư phụ, lần trước Sư phụ có nhắc đến gần đây Quán Thế Âm Bồ Tát luôn cứu người, bận rộn không kể xiết. Xin Sư phụ khai thị qua một chút ạ. Đáp: Bồ Tát cứu người, bởi vì nhân gian có dịch bệnh, nhân gian có tai nạn. Tai nạn này là gì? Bởi vì con người phá hoại rất nhiều sự cân bằng sinh thái, chặt cây, không làm xanh hóa, rồi động đất, lũ lụt, thiên tai rất nhiều. Bồ Tát chính là hết sức cứu chúng ta, Bồ Tát thấy các con tốt, người này tốt thì sẽ có một điểm sáng, ánh sáng, Bồ Tát sẽ cứu người đó ra. Tu tốt hay không tốt chính là dựa vào điểm sáng trên người các con, hiểu không? (Ồ, Bồ Tát thấy trên người họ có ánh sáng, Ngài sẽ đến cứu họ ạ ?) Đúng vậy. Trước mỗi lần thiên tai lớn, Mẹ Bồ Tát đều rơi lệ, bởi vì Ngài cũng không thể cứu được tất cả mọi người. Không thể động đến nhân quả, đây là thiên luật. Ngài có thể cứu được ai, phụ thuộc vào trên người con có bao nhiêu ánh sáng. Vì vậy, đây cũng là lý do tại sao, Thầy mỗi ngày kêu gọi mọi người học cách chạy, chạy qua vô thường. \[ 修得好身上有光點，災難中可得到菩薩相救 \] Wenda20200403 31:48 問：師父，您上次提到過最近觀世音菩薩一直在救人，忙得不得了。您講講。 答：菩薩救人，因為人間有疫情，人間有災難。這個災難是什麼？因為人破壞很多生態平衡，砍樹、不搞綠化，然後地震、水災，自然災害很多。菩薩就是拼命地在救我們，菩薩看你們人好，這個人好就有一個光點、亮光，菩薩就把他救出來。修得好壞就是靠自己身上的光點的，明白嗎？（哦，菩薩看到你有個亮的光點，他就來救你？）對。 在每次大災前，菩薩媽媽都會流淚，因為她也無法救起所有人。不可動因果這是天律。她能救起的，取決於您身上有多少光。所以，這也是為什麼，我每天喊讓大家學會奔跑，去跑過無常。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

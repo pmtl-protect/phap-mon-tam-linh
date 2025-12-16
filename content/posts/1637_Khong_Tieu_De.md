@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.736Z
+draft: false
+url: "/2025/05/quy-y-chinh-la-quy-y-phat-tinh-ma-ban.html"
+---
+
+Tiêu đề bài viết: Quy y chính là quy y Phật tính mà bạn đã đang tu luyện thông qua bằng cách tu tâm của chính mình. Nội dung chi tiết: 🌻 Nhiều người thường hỏi: "Thưa sư phụ, liệu Phật tính có phải là thứ mà mọi người đều có đúng không? tại sao việc tu tâm lại khó khăn đến thế? Chẳng phải chúng ta đều có Phật tính trong mình sao? Tại sao chúng ta vẫn chưa rõ ràng ? " 🌟Đúng vậy, Phật tính là thành quả của sự tu luyện, mặc dù chúng ta đã có nó, nhưng nó đã bị vấy bận qua nhiều đời. Vì vậy, chúng ta cần phải từ từ tu luyện, Đào lên và làm sạch lại từ đầu . 🪷Lư đài trưởng bạch thoại Phật pháp 7-26 《Chinh phục thói quen từ nhiều đời trước 》 皈依就是皈依你自己修心要修出来的佛性。很多人问：“师父，佛性不是每个人身上都有的吗？为什么我们修心这么难修呢？ 我们每个人身上不是都有佛性的吗？为什么我们还是搞不清楚啊？”对了，佛性是你修出来的，虽然本身拥有，但是累世已经弄脏了，必须慢慢地把它修出来，重新挖出来，洗干净。 ——卢台长白话佛法7-26《调伏累世的习性》￼ 🙏🙏🙏Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót. không Đúng Lý Đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.

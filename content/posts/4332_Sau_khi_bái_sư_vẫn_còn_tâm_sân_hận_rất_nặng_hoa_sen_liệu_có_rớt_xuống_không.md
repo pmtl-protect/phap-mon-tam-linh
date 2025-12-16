@@ -1,0 +1,8 @@
+---
+title: "Sau khi bái sư vẫn còn tâm sân hận rất nặng, hoa sen liệu có rớt xuống không"
+date: 2025-12-15T22:19:51.708Z
+draft: false
+url: "/2025/12/sau-khi-bai-su-van-con-tam-san-han-rat.html"
+---
+
+Hỏi: Xin hỏi sư phụ, nếu như đã bái sư, hơn nữa tu được đến một trình độ nhất định, nhưng đối với một chuyện nào đó hoặc một người nào đó vẫn còn tâm sân hận rất nặng, thì có ảnh hưởng đến hoa sen không? Hoa sen liệu có vì vậy mà rớt xuống không? Nên hóa giải tâm sân hận trong lòng như thế nào? Có cần sám hối không? Đáp: Là một người học Phật, đầu tiên phải buông bỏ. Con đã học làm Bồ Tát rồi, đều biết nhân quả, thì đừng đi hận nữa. Bởi vì hận, đối phương không có cảm giác gì, tự mình làm mình tức gần chết, đúng không? Cho nên đừng có đi hận. Làm thế nào để thay đổi đây? Phương pháp tốt nhất chính là bản thân phải buông bỏ. Buông bỏ như thế nào đây? Chính là phải để bản thân từ từ trở nên bao dung, từ bi, biết nghĩ cho người khác. Nếu nhẹ, sẽ không ảnh hưởng hoa sen; nếu thường xuyên sân hận, cứ mãi không buông xuống được, hận càng lúc càng nặng, thế thì hoa sen sẽ rớt xuống đó. Hỏi đáp Pháp hội Jakarta 12032018 拜师后还有很重的瞋恨心，莲花是否会掉下来 问: 请问师父，如果已经拜师，而且修到一定程度，但对某件事或者某个人还是有很重的瞋恨心，会不会影响到莲花？莲花会不会因此而掉下来？该如何化解心中的瞋恨心？需要忏悔吗？ 答: 作为一个学佛人，首先要放下。你已经学菩萨了，都知道因果，就不要再去恨了。因为恨，对方没感觉，自己把自己气了个半死，对不对？所以不要去恨。怎么样来改变呢？最好的方法就是自己要放下。怎么放下呢？就是要让自己慢慢地变得包容、慈悲、为人家想。如果轻的，不会影响莲花；如果经常瞋恨，一直放不下，恨得越来越厉害，那么莲花就掉下来了。 雅加达法会问答20180312

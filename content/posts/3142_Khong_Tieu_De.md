@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.376Z
+draft: false
+url: "/2024/11/kien-tri-niem-tam-kinh-e-o-nguoi-than.html"
+---
+
+Tiêu đề bài viết: Kiên trì niệm Tâm Kinh để độ người thân Nội dung chi tiết: wenda20121005 20:09 ❓Nữ thính giả: Thưa thầy, con muốn hỏi về việc chồng con không tin lắm vào những điều này, vì vậy con muốn niệm kinh cho anh ấy. 🪷Đài Trưởng đáp: Mỗi ngày niệm 7 biến Tâm Kinh. (7 biến Tâm Kinh có đủ không? Vì trước đó con cũng đã niệm một thời gian rồi.) Đã niệm rồi thì không thể dừng lại. (Nhưng con thấy hình như không có hiệu quả rõ rệt với anh ấy.) Rất đơn giản, giống như con đun nước mới nửa chừng thì nói: “Không thấy hiệu quả, sao nước chưa sôi nhỉ?” Rồi con lại tắt lửa. Phải đun lại từ đầu. (Ồ, là như thế này ạ, con không biết có cần tăng thêm số biến hay không.) Không cần đâu, con đang nôn nóng muốn thấy kết quả, như vậy không được. Trồng cây vào mùa xuân thì đến mùa thu mới thu hoạch được, làm sao có thể nhanh như vậy được? Con nói xem, có cái gì mà vừa trồng xuống đã thu hoạch ngay? (Vậy con vẫn phải kiên trì niệm kinh cho anh ấy.) Đúng rồi. ---------------------- Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 ---------------------- wenda20121005 20:09 坚持念心经度家人 女听众：台长请教一下：我的丈夫不是太信这方面，所以我想念经文给他。 台长答：每天念7遍心经（7遍心经够吗？因为我前段时间念过一段）念过一段你就不能停（就是好像在他身上没有明显的效果）很简单，你烧水烧了一半，说：“没有效果，怎么还不开啊？”你把火停掉。重新烧（噢，是这样子，我就不知道是不是要再加多一点）没用的，你这种是急于求成的，不行的。春天种下去的果子，要等到秋天才能收啊，哪有这么快的？你告诉我，什么东西种下去就收的 ？（还是要坚持给他念这个经文）对了。

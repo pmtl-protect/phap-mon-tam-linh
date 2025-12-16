@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.478Z
+draft: false
+url: "/2025/08/ve-van-e-nhin-thay-vong-linh-hoi-ap.html"
+---
+
+Tiêu đề bài viết: VỀ VẤN ĐỀ NHÌN THẤY VONG LINH - HỎI ĐÁP PHẬT HỌC PHÁP MÔN TÂM LINH Nội dung chi tiết: Hỏi 69: Kính thưa Sư phụ Lư, vì sao con thường xuyên nhìn thấy vong linh ? Có cách nào để không nhìn thấy nữa không ạ? Đáp 69: Thông thường có ba trường hợp dễ nhìn thấy vong linh : 1. Người có âm khí rất nặng thì dễ thấy vong linh . Những người này thường thể chất yếu, hay bệnh hoặc dương khí không đủ. Nếu âm khí quá nặng thì cần niệm nhiều Chú Đại Bi, đồng thời nên phơi nắng nhiều hơn. 2. Người tu hành sai lệch thì dễ nhìn thấy vong linh . Vì vậy, những kinh văn, thủ ấn hay nghi thức mà Sư phụ chưa dạy thì tốt nhất tạm thời không nên thực hành. Chỉ cần chuyên tâm niệm kinh, phóng sinh, phát nguyện, tu tâm, tu hành là đủ. 3. Người có vong linh đi theo mình thì cũng dễ nhìn thấy vong linh . Giống như bạn đang lái xe TOYOTA thì sẽ để ý đến các xe TOYOTA khác trên đường vậy. Người như vậy cần phải niệm Ngôi Nhà Nhỏ gửi tặng cho người cần kinh của chính mình (ghi “karmic creditor of \[tên mình\]”). Cách xác định bản thân có vong linh hay không có thể tham khảo mục 4. Làm sao để biết mình có vong linh theo không? trong 《Hỏi Đáp Phật Học》 (thông qua các biểu hiện về sức khỏe hoặc giấc mơ v.v.). 69. 有关看见灵性的问题 2010-06-01 问69：请问卢台长，为什么我平时可以看到灵性？有什么方法可以不要看到吗？ 答69： 一般有以下三种情况容易看到灵性： 1. 阴气很重的人容易看到灵性，这种人一般体弱多病或者阳气不足，如果阴气太重就要多念《大悲咒》，同时还要多晒太阳。 2. 修偏差的人容易看到灵性，所以卢台长还没有教大家念的经文、手势、仪式最好都暂时不要去做，只要好好地念经、放生、许愿、修心、修行。 3. 如果身上有灵性的人也是容易看见灵性，就如自己在开TOYOTA的车子，就会注意路上其他TOYOTA的车子一样。这样的人就要念小房子给自己名字的要经者，如何判断自己是否有要经者可以参照《佛学问答4. 怎么判断自己身上有无灵性？》（通过自身的身体状况与梦境等）。

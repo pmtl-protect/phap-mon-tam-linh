@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.168Z
+draft: false
+url: "/2024/11/cau-hoi-lien-quan-en-viec-phat-loi-oc.html"
+---
+
+Tiêu đề bài viết: Câu hỏi liên quan đến việc phát lời thề độc khi tu các pháp môn khác Nội dung chi tiết: Zongshu20161203 22:26 Nam thính giả: Lư đài trưởng, con có 1 vấn đề tương đối quan trọng muốn hỏi, mẹ vợ con từ năm 1995 đã bắt đầu tu 1 pháp môn khác, sau 3 lần quán đảnh từ sư phụ của bà, lúc đó bà đã thề rằng: Nếu như thay đổi pháp môn khác, sẽ xuống địa ngục Kim Cang. Con muốn hỏi người, lời thề này sẽ thành hiện thực không? Đài trưởng đáp: Con nói xem có hay không? Nếu như bà ta có lòng tin với Quán Thế Âm Bồ Tát, bà ta sẽ xuống địa ngục không? Con đừng hỏi ta, con tự hỏi bản thân là được. Nếu như con đang thờ Quán Thế Âm Bồ Tát, thì sẽ xuống địa ngục không? Con chưa làm điều gì xấu thì xuống địa ngục gì? ( Tuyệt đối là không) Được rồi, con giống như là chuyển sang sống trong một tổ chức mới, thay đổi một mối quan hệ mới. Có gì liên quan không? Nếu thật sự là Bồ Tát, liệu có vô lý như vậy không? “ Con chỉ được khám bệnh ở chỗ ta thôi, nếu đổi một bác sĩ khác, con sẽ phải chết. ”, vậy có được không? Tất nhiên không được! ( Dạ đúng dạ đúng) \*\*\*\*\*\*\*\*\*\*\*\*\*\*\* 有关修其他法门时发毒誓的问题 男听众：卢台长，有一个问题比较严重，我丈母娘1995年开始修其他法门，经过她的师父三次灌顶，当时她发誓还是干吗：如果转了其他法门的话，会下金刚地狱。我想问一下，您看她这个会应验吗？ 台长答：你说会不会？她要是信观世音菩萨，她会下地狱吗？你不要问我，你问问自己好了，如果你现在拜观世音菩萨，会不会下地狱？你没做坏事下什么地狱？（绝对不会）好了，你等于转一个组织生活一样，转一个关系。有什么关系？要是真的菩萨，他会这么不讲道理？“你只许在我这里看病，换一个医生的话，你就要死掉”，可以吗？不可以的！（是的是的）

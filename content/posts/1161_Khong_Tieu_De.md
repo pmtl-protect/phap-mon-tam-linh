@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.399Z
+draft: false
+url: "/2024/12/phong-sinh-ca-loc-moi-con-ca-loc-co.html"
+---
+
+Tiêu đề bài viết: Phóng sinh cá lóc, mỗi con cá lóc có thể tính bằng mười con cá bình thường. Cá lóc có tuổi thọ có thể sống đến 100 năm, và trên đầu mỗi con cá lóc đều có bảy ngôi sao, tượng trưng cho Bắc Đẩu Thất Tinh. Nội dung chi tiết: wenda20160612A 11:11 Hỏi: Phóng sinh cá lóc, mỗi con cá lóc có thể tính bằng mười con cá bình thường. Cá lóc có tuổi thọ có thể sống đến 100 năm, và trên đầu mỗi con cá lóc đều có bảy ngôi sao, tượng trưng cho Bắc Đẩu Thất Tinh. Phóng sinh cá lóc có thể giúp gia đình, sự nghiệp và hôn nhân thuận lợi hơn không? Loại cá nào là tốt nhất để tiêu nghiệp khi phóng sinh? Đáp: Vì trên đầu cá lóc có bảy ngôi sao, nên nó có ý nghĩa mạnh mẽ hơn một chút. Điều này cũng thể hiện lòng từ bi của con đối với chúng sinh trong thủy cung. Trên đầu mỗi con cá lóc có bảy ngôi sao. Phóng sinh một con cá lóc có thể giúp con gặp thuận lợi trong nhiều việc ở nhân gian. wenda20160612A 11:11 放生放黑鱼，一条黑鱼能抵十条普通鱼，黑鱼的寿命能活100年，每一条黑鱼的头上都有，七颗星，北斗七星 放黑鱼的话，能让家庭事业婚姻更顺利一些 消业放哪种鱼类更好？ 答：因为黑鱼（生鱼）头上有七颗更足一点，就是更能够让下面人家说的水族宫里边感觉到你的慈悲心。 头上有星，灵性重黑鱼头上有七颗星，放一条黑鱼可以让你很多人间的事情更顺利。 #phongsinh # caloc

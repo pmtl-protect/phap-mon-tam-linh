@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.361Z
+draft: false
+url: "/2025/08/ai-co-thanh-tuu-phat-ao-thi-de-dang.html"
+---
+
+Tiêu đề bài viết: Ai có thể thành tựu Phật đạo thì dễ dàng thay đổi bản thân mình không? Nội dung chi tiết: Nhiều người chính là vì bị tình cảm ràng buộc, bị vật chất ràng buộc, bị năm dục sáu trần của thế gian làm hại, bị ba độc tham, sân, si xâm nhiễm, cho nên những người này không chịu nổi khảo nghiệm. Ai có thể thành bậc cao tăng đại đức, ai có thể thành tựu Phật đạo, họ có dễ dàng thay đổi bản thân mình không? Kiên định như sấm sét bất động, Dù gian khổ thế gian có nhiều đến đâu họ cũng đều chịu đựng được. Hãy xem các vị pháp sư đã chịu bao nhiêu khổ, cả một đời! Gia đình không hiểu, khi tự tu hành thì chính là khổ tu, trên người chỉ có một bộ y phục, một cái ba lô nhỏ, họ có gì? Đi đến đâu cũng khổ tu, họ đã buông bỏ bao nhiêu? Tại sao phải học hỏi các vị pháp sư? Chính là cái lý này. Cho nên phải ghi nhớ, người muốn tinh tấn thì phải học được cách không ngừng nỗ lực, mỗi ngày trong đầu đều chứa đầy lời của Bồ Tát, đều là lời Phật, lý niệm của Phật, thì làm sao có tà niệm nào có thể xâm nhập vào trong tâm bạn được? Lư Đài Trưởng wenda20170312B 08:56 哪位能夠成就佛道的人是輕易改變自己的？ 很多人就是因為被情所累，被物質所累，被人間的五欲六塵所害，被貪、瞋、痴三毒所侵，所以這些人就是禁不起考驗。 哪位能夠成高僧大德的人、哪位能夠成就佛道的人，他們是輕易改變自己的? 雷打不動的， 人間再多的苦他們都吃得下。 看看法師們吃了多少苦啊，一輩子啊。 家裡的不理解，自己修為的時候就是苦修行，身上就是這麼一件衣服、一個小背包，他們有什麼？走到哪裡都是苦修，他們放下多少？為什麼要向法師學習？就這個道理。 所以要記住了，想精進的人就得學會不停地努力，每天腦子里裝的都是菩薩的話，都是佛的話、佛的理念，哪有邪念可以侵到你的心中啊？ 盧台長wenda20170312B 08:56 Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót. không Đúng Lý Đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.🙏🙏🙏

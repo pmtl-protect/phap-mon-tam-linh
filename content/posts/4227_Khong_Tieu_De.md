@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.372Z
+draft: false
+url: "/2025/12/mo-thay-ai-truong-noi-ban-than-niem.html"
+---
+
+Tiêu đề bài viết: Mơ thấy Đài trưởng nói bản thân niệm kinh không tốt Nội dung chi tiết: Mơ thấy Đài trưởng nói bản thân niệm kinh không tốtNữ thính giả: Con đã từng mơ thấy Đài trưởng nói Con niệm kinh không tốt. Đài trưởng đáp: Pháp thân của Đài trưởng nhắc nhở Con niệm kinh không tốt, vậy mà Con còn dám nói với Thầy? Con sẽ niệm tốt? Nữ thính giả: (Con biết, hôm nay ở chỗ các đệ tử đã nói rồi, có phải do có một số chữ Con không biết rõ?) Đài trưởng đáp; Không biết thì phải học, Một bà lão dù không biết một chữ nào, người ta vẫn có thể niệm Chú Đại Bi , người ta đã rất nỗ lực để làm được điều đó. Nữ thính giả: (Ồ). 梦到台长说自己念经不好 女听众：我梦到过台长说我念经念得不好。 台长答：台长法身告诉你念经念得不好，那你还好意思跟我讲？你会念得好？（我知道，今天就在弟子那边讲了，是不是因为有些字我不太认识？）不认识的也学。一个老妈妈一个字也不认识，人家照样会背大悲咒，人家是努力得来的（嗯）

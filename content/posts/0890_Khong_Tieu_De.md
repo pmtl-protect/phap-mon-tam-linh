@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.773Z
+draft: false
+url: "/2025/05/mo-mieng-la-tao-nghiep-nen-luon-noi-loi.html"
+---
+
+Tiêu đề bài viết: Mở miệng là tạo nghiệp, nên luôn nói lời hay Nội dung chi tiết: Wenda20180615 28:07 Nữ thính giả: Thưa Sư phụ, đồng tu thắc mắc câu "mở miệng là tạo nghiệp" nên hiểu thế nào ạ? Vậy bình thường chúng con nên nói năng ra sao? Đài trưởng đáp: "Mở miệng là tạo nghiệp" bao gồm cả thiện nghiệp và ác nghiệp. Nói lời hay, khẩu nghiệp thanh tịnh chẳng phải là gieo thiện nghiệp sao? Vẫn là tạo nghiệp đấy chứ? (Dạ phải) Thế tại sao không chọn gieo thiện nghiệp? (À, là mở miệng ra chỉ nên nói lời tốt ạ?) Ừ, mở miệng ra chỉ nói lời tốt. Ví dụ người ta nói "Cơm chín rồi", mình đáp: "Ôi, con cảm ơn ạ!" Cùng một câu về ăn uống, như vậy có phải là tạo thiện nghiệp không? (Dạ phải) Hoặc nói: "Chị tu tốt quá!", "Càng ngày càng thấy chị giống Bồ Tát!" Những lời này khiến người ta vui vẻ, như thế có phải là tạo nghiệp không? (Dạ phải) Nghe chữ "tạo nghiệp" cứ tưởng là xấu, kỳ thực tạo thiện nghiệp cũng là tạo nghiệp, tạo ác nghiệp cũng là tạo nghiệp, hiểu chưa? (Dạ con hiểu rồi ạ) Wenda20180615 28:07 “出口就是业”，出口就讲好话 女听众：同修想问，“出口就是业”这句话这么理解？那平时该怎么样讲话呢？ 台长答：出口就是业，分善业、恶业。讲好话、口吐莲花不是种善业吗？是不是业了？（对）好了，你为什么不能种善业？（哦，出口就讲好话？）嗯，出口就讲好话。人家说饭好了，“哎哟，感恩啊！”同样一句吃饭的话，你是不是造善业了？（是的）“哎哟，你修得真好！”“哎哟，我现在越看你越像菩萨。”讲得人家欢天喜地的，你说是不是造业了？（是的）好像听到“造业”很难过，好像是不好听的，实际上造善业也是造业，造恶业也是造业，听懂了吗？（听懂了）

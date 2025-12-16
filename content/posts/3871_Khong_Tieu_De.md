@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.505Z
+draft: false
+url: "/2025/01/lam-gi-cung-khong-thanh-cong-eu-co-lien.html"
+---
+
+Tiêu đề bài viết: Làm gì cũng không thành công đều có liên quan đến nghiệp chướng và duyên phận. Nội dung chi tiết: Nam thính giả: Thưa Sư phụ, làm sao chúng con biết được một việc không thành công là do thiếu duyên hay do nghiệp nặng? Xin Sư phụ từ bi khai thị. Đài Trưởng: Nếu một điều gì đó không thành công, duyên phận và nghiệp chướng đều có liên quan với nhau. Người nhiều nghiệp chướng làm gì cũng không thể thành công, người không có duyên cũng không thể thành công. Cho nên phải tiêu nghiệp thì mới tìm được duyên, con có nghiệp thì không bao giờ có duyên. Vì vậy, đôi khi ở một mức độ nào đó, vẫn có thể tìm thấy duyên phận, nghiệp chướng sẽ luôn ở trên người con, nếu nghiệp chướng của con không tiêu trừ và không thể thoát khỏi được ( hiểu rồi, cảm tạ sư phụ từ bi khai thị !) wenda20151002 19:36 ♦️做事不成功与业障及缘分都有关系 男听众：请问师父，我们如何知道一件事情的不成功，是因为没有缘分还是业障大呢？请师父慈悲开示一下。 台长答：一个事情不成功，缘分和业障都有关系。一个业障大的人不能成功，一个没有缘分的人也不能成功。所以，你要把业障修掉，才会找到缘分，你有业障永远没有缘分。所以，有时候从某种程度上来讲，缘分还可以找，业障消不掉你就永远在身上，跑不了（明白了，感恩师父慈悲开示！）

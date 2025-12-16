@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.705Z
+draft: false
+url: "/2025/02/o-nguoi-chinh-la-phap-bo-thi-o-nguoi.html"
+---
+
+Tiêu đề bài viết: Độ người chính là pháp bố thí , độ người công đức lớn hơn rất nhiều so với tự tu Nội dung chi tiết: #TiếtmụchỏiđápcủathầyLư 【Độ người chính là pháp bố thí , độ người công đức lớn hơn rất nhiều so với tự tu】 🙏Hỏi: Con xin hỏi Sư phụ, như trong “Kinh Kim Cang” nói, công đức của pháp bố thí nhiều hơn tài bố thí, như cát sông Hằng, vàng ngọc châu báu…Cho nên các sư huynh cần tích lũy nhân duyên phúc đức, có phải là cần nắm bắt cơ hội này không? 🌟Trả lời: Rất đơn giản, trong 3 thí thì pháp thí là quan trọng nhất, bởi vì tài thí, pháp thí và vô úy thí thì pháp thí là cứu linh hồn của con người nên pháp thí có công đức vô lượng vô biên. Vì vậy, hy vọng mọi người sẽ cứu người nhiều hơn nữa, đó là pháp bố thí.  Dù thế nào đi chăng nữa, pháp bố thí không được ngừng, và nó sẽ được chuyển đổi thành công đức vô lượng vô biên. #Người mà cứu người thì có thể thành Bồ Tát, nếu người chỉ quan tâm đến tự tu thân mình thì công đức của họ kém xa người ở ngoài cứu người, hơn nữa người cứu người có thể tiêu trừ rất nhiều nghiệp chướng của bản thân, cho nên người mà đi cứu người mới là Bồ Tát của thời kì mạt pháp. ⛅️——23/6/2015 Hồng Kông, Trung Quốc

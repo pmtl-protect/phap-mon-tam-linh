@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.357Z
+draft: false
+url: "/2025/05/so-luong-ngoi-nha-nho-co-ot-trong-mot.html"
+---
+
+Tiêu đề bài viết: Số lượng ngôi nhà nhỏ có thể đốt trong một ngày Nội dung chi tiết: Wenda20140706B 17:58 Người nghe nữ: Dạo trước con không ở trong nhà mình, đến tháng 2 năm nay mới về ở lại. Con đã đốt 7 ngôi nhà nhỏ cho người cần kinh của căn nhà. Mấy hôm trước con nằm mơ, trong mơ hình như là chồng con, nhưng con cũng không chắc, vì chồng con không tu pháp môn này, trong mơ anh ấy nói với con: “Em còn phải đốt thêm 15 ngôi nhà nhỏ nữa.” Vậy có phải là còn phải đốt thêm 15 ngôi nhà nhỏ cho người cần kinh của căn nhà không ạ? “ Lư Đài Trưởng” trả lời: Hoàn toàn đúng. Đó là vong linh của căn nhà đã báo cho chồng con biết. (Vậy con nên phát nguyện với Bồ Tát là trong thời gian bao lâu sẽ đốt đủ 15 ngôi nhà nhỏ cho người cần kinh của căn nhà phải không ạ?) — Đúng vậy. (Vậy mỗi lần con nên đốt 3 tấm, hay 7 tấm, hay 5 tấm?) — Thường thì đốt 3 tấm mỗi lần. (Hôm nay con đốt 5 tấm được không ạ?) — Được. Một ngày tối đa đừng vượt quá 21 tấm. (Là nói riêng cho nck của căn nhà ạ?) — Không phải, là tổng số ngôi nhà nhỏ đốt trong một ngày. (Con đã từng có lần đốt 7 tấm cho nck căn nhà rồi...) — Không sao cả. 一天之内小房子烧送的数量最多不超过21张 Wenda20140706B 17:58 女听众：我前段时间没有在自己家里住，今年2月份回来入住的，我给房子的要经者烧了7张小房子，前几天夜里我做梦，好像感觉是我的老公，但是我也不确定，他也没有修这个法门，梦里他跟我说：“你还要烧15张小房子。”这是不是还要烧15张小房子给房子的要经者？ “卢台长”答：完全正确，这是房子的要经者跟你老公讲了（那我就跟菩萨许愿，我多长时间给房子的要经者烧15张小房子？）对（那我这个小房子是3张一烧，还是7张一烧，还是5张一烧啊？） 一般都是3张烧（那我今天烧了5张，可以吗？）可以。一天最多不要超过21张（就是房子的要经者？）不是，小房子烧送啊（我给房子的要经者有一次烧7张呢？）没关系的。

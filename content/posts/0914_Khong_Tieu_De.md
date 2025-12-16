@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.817Z
+draft: false
+url: "/2025/05/nguyen-nhan-gay-ra-ung-thu-luoi-hoac.html"
+---
+
+Tiêu đề bài viết: Hỏi đáp Phật Pháp Nội dung chi tiết: Nguyên nhân gây ra ung thư lưỡi hoặc khối u ở lưỡi là gì? Bạn ở thế gian này nói quá nhiều điều không tốt (nói xấu). Tại sao mọi người lại nói xấu người khác? Tôi không hiểu được nữa rồi. Ăn cơm xong không có việc gì làm đi nói xấu người khác. Lưỡi của họ đang xoắn lại rồi. Trong quá khứ kể ra nếu bạn ở dưới bị người khác đâm đầu lưỡi bạn, ở dương gian đầu lưỡi của bạn sẽ bị phồng rộp và mọc các khối u khác 20200925. 54:15 Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con 生舌癌或 舌头上 长肿瘤 是何因果 Wenda20200925 54:15 你就是在人间讲了太多坏话了。 人为什么要去讲人家坏话? 我都搞不清楚了, 吃饱饭没事干,专门去嚼舌头, 好了,舌头绞下来了。 过去讲起来, 你在下面被人家用钉子穿舌头, 在阳间你舌头上就会长泡,就会长东西。

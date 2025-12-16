@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.059Z
+draft: false
+url: "/2025/02/xem-nhan-duyen-cua-nguoi-tuoi-thin-va.html"
+---
+
+Tiêu đề bài viết: Xem nhân duyên của người tuổi Thìn và tuổi Mão; Tin tưởng Bồ Tát có thể thay đổi vận mệnh, không tin thì không thể thay đổi được Nội dung chi tiết: Zongshu20190827   16:20 Xem nhân duyên của người tuổi Thìn và tuổi Mão; Tin tưởng Bồ Tát có thể thay đổi vận mệnh, không tin thì không thể thay đổi được Nữ thính giả: Sư Phụ, người nữ sinh năm 1988, tuổi Thìn, và người sinh năm 1987, tuổi Mão, họ có nhân duyên không ạ? Sư Phụ đáp: Hiện tại còn khá tốt, nhưng sau này sẽ gặp rắc rối. Cuối cùng, người nữ sẽ không chọn người nam này. Hiện tại cô ấy đang rất tập trung vào anh ta, nhưng sau này sẽ không muốn anh ta nữa. ( Nữ thính giả: Vậy người nam sinh năm 1987, tuổi Mão có duyên với Phật pháp không ạ?) Cần tụng kinh nhiều, tụng Chú Giải Kết nhiều. Nếu anh ta tin vào Bồ Tát, vận mệnh của anh ta có thể thay đổi; nếu không tin vào Bồ Tát, vận mệnh sẽ không thể thay đổi. ( Nữ thính giả: Vâng, cảm ơn Sư Phụ.) Do đó cuộc đời là vậy, chúng ta không thể nhìn thấy được tương lai. —----------------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. —----------------------------------- Zongshu20190827   16:20 看属龙和属兔的姻缘；相信菩萨能改命，不相信改不了 女听众 ：师父，1988属龙的，女的，和1987年属兔的，有姻缘吗？ 台长答 ：现在还蛮好，以后会麻烦。到最后这个女的不会要他的。现在这个女的死盯着他，以后不会要他的（好的。这个1987年属兔的有没有佛缘？）多念经，多念解结咒。他相信菩萨，还能改变他的命运，不相信菩萨改变不了命运的（好的，感恩师父）所以人生啊，就是看不到未来。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.032Z
+draft: false
+url: "/2024/11/thai-phu-khong-nen-thuong-xuyen-co-quan.html"
+---
+
+Tiêu đề bài viết: Thai phụ không nên thường xuyên có quan hệ vợ chồng vì điều này không tốt cho thai nhi Nội dung chi tiết: Trực thoại trực đáp, ngày 3 tháng 5 năm 2013 Thính giả: Có một đồng tu, là đệ tử của Sư phụ, hiện tại cô ấy đang mang thai hơn 5 tháng. Tuy nhiên, cô ấy có một khối u xơ tử cung, bác sĩ nói rằng nếu khối u không thu nhỏ lại thì sẽ phải sinh mổ. Gần đây, cô ấy còn bị nhiễm viêm gan B và rất lo lắng. Xin Sư phụ khai thị cô ấy nên làm gì? Sư phụ: Hãy bảo cô ấy giữ tinh thần thật thanh tịnh, không có bất kỳ sự tiếp xúc nào với chồng. Ngay cả việc tiếp xúc với những thông tin về vấn đề này trên mạng hay báo chí cũng cần tránh, vì chỉ cần tiếp xúc là có thể gặp rắc rối. Trong trạng thái đầu óc thật thanh khiết, thì em bé sẽ dần hồi phục; ngược lại, nếu tâm trí không trong sạch, đặc biệt là tiếp xúc với những vấn đề này, thì thai nhi sẽ gặp phải vấn đề, rất phiền phức. Thầy từng thấy qua hình ảnh tuteng một số trường hợp tương tự, khi người mẹ và chồng vẫn duy trì quan hệ thì đứa trẻ dần trở nên khó chịu, quậy phá trong bụng, điều này không phải là việc tốt. 6、怀孕时常有夫妻之事对胎儿不利（直话直说2013年5月3日） 听众：有一位同修是您的准弟子，她现在有五个多月的身孕，问题是她那个子宫肌瘤，医生说如果再不缩小的话就要开刀生孩子。最近她又感染了乙肝，非常着急，请师父开示她该怎么办？ 台长： 叫她自己精神要非常干净，跟老公不要有任何接触。哪怕网上、报纸上都不能接触这种东西，一接触就闯祸了。脑子非常干净的情况下，这孩子会慢慢好起来；如果脑子不干净，尤其接触那些东西的话，这孩子很快会出问题，很麻烦。我曾经在图腾上看见过一些这样的情况，就是和老公一直有这方面接触，慢慢孩子在里面就变得很不耐烦，然后狂哄乱跳，这不是太好的事情。 Bài giảng tuyệt vời của Đài Trưởng: Tác hại của việc tà dâm đối với sức khỏe https://lujunhong2or.com/卢台长精彩开示专题：邪淫对健康的危害

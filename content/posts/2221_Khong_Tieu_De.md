@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.014Z
+draft: false
+url: "/2025/04/ung-theo-uoi-than-thong-keo-de-roi-vao.html"
+---
+
+Tiêu đề bài viết: Đừng theo đuổi thần thông, kẻo dễ rơi vào “quỷ thông” Nội dung chi tiết: Wenda20140530 38:50 Người nghe nam: Ở chỗ chúng con có một vị đồng tu thỉnh thoảng nói rằng có Bồ Tát nói chuyện với anh ấy, và anh ấy cũng khai thị cho các đồng tu khác, hướng dẫn họ tụng kinh ngôi nhà nhỏ. Chúng con cảm thấy việc đó hình như không ổn lắm, nhưng lại không dám nói với anh ấy. Anh ấy là đệ tử của Thầy, mà trước đây từng gọi được vào chương trình và Thầy cũng nói rằng anh ấy tu hành thực sự khá tốt. Chúng con không rõ rốt cuộc là trên thân anh ấy là “quỷ thông” hay thật sự là “thần thông” của Bồ Tát? “Lư Đài Trưởng” đáp: Nói với anh ấy đừng làm như vậy nữa là được rồi. Làm như vậy thì rất nhanh sẽ thành quỷ thông thôi. Cho dù ban đầu có một chút thần thông, nhưng một khi theo đuổi nó thì lập tức sẽ trở thành quỷ thông. (Thưa thầy, thầy có thể đơn giản cảm ứng thử xem vị Bồ Tát trên thân anh ấy là thật hay giả không ạ?) Hiện giờ không thể cảm ứng. Cũng có thể nhận ra được — nếu là quỷ thông, thì trên người sẽ có rất nhiều “tinh” bám vào, chuyện này không hiếm gặp gì cả. (Ồ...) Giống như những bà đồng cốt ở nông thôn, tất cả đều có thần thông đấy thôi! \*\*\* 不要追求神通，否则容易鬼通 Wenda20140530 38:50 男听众：我们这里一个同修有时候说有菩萨跟他说话，他也帮同修开示，让同修念小房子。我们感觉好像不太好，但又不敢说他。他是台长的弟子，而且之前打通电话，台长说他修得确实蛮好的。我们不知道他身上到底是鬼通还是菩萨的神通？ “卢台长”答：叫他不要这么做就好了。他这么做很快就鬼通了，就算开始有点神通，他一追求马上就鬼通了啊（台长，您能不能简单感应一下他身上的那个菩萨是真的还是假的？）现在不能感应。看得出来的，鬼通的话很多精都在身上，这不稀 奇的了（哦）像农村那些巫婆，全部都有神通的呀。

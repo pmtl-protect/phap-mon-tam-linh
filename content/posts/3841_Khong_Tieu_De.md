@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.424Z
+draft: false
+url: "/2025/02/khai-thi-vao-ngay-15-thang-gieng-niem.html"
+---
+
+Tiêu đề bài viết: Khai thị Vào ngày 15 tháng Giêng, niệm kinh, ăn chay, cầu sự Tam hợp của Thiên, Địa, Nhân Nội dung chi tiết: Lời của Đài trường: Thứ Hai tuần tới chính là ngày 15 tháng Giêng, tức là Tết Nguyên Tiêu rồi, hy vọng mọi người có thể niệm thêm kinh, chúng ta học Phật thì phải thường xuyên niệm kinh, cầu được sự Tam hợp của Thiên, Địa, Nhân, mọi việc sẽ thuận lợi hơn nhiều! Nhân tiện, sư phụ muốn nói với mọi người, vào ngày 8 tháng 4, chủ nhật, lúc 2 giờ chiều, tại Tòa thị chính Hurstville, sẽ tổ chức một buổi Pháp hội nữa theo yêu cầu của nhiều thính giả. Vé đã được bán hết, hiện tại chúng tôi lại in thêm một số vé để mọi người có thể đến lấy, hy vọng mọi người nhanh chóng đến nhận. Bên cạnh đó, sư phụ cũng muốn nhắc nhở mọi người, vào ngày 15 tháng Giêng, tốt nhất là ăn chay và niệm kinh nhiều hơn. Như sư phụ vừa nói, Thiên, Địa, Nhân ba nguyên tố cần phải hợp nhất. Chúng ta làm thế nào để hợp với Trời? Đó là niệm nhiều kinh, lễ Phật, làm người như Bồ Tát, như vậy là hợp với Trời; làm người không làm việc xấu, sống một cuộc đời đàng hoàng, như vậy là hợp với Nhân. wenda20120203 46:54 正月十五念经吃素求得天地人三合的开示 台长语:下个星期一就是正月十五，就是元宵节了，希望大家能够多念经，我们学佛人总是要多念经，求得天地人三合，各方面就会顺利很多！台长顺便跟大家讲，4月8号，星期天，下午两点钟，在好市围市政厅，应很多听众需要，再开一场法会，票子全部拿光了，现在又印了少量的门票给大家，希望大家赶快来拿。另外告诉大家，希望大家在正月十五的时候最好吃素，多念经。台长刚才说了，天地人三元要合。我们怎样跟天合呢？就是要多念经，拜菩萨，做人像菩萨，就是天合了；做人不做坏事，做一个像样的人，就是人合了。

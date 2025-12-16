@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.627Z
+draft: false
+url: "/2024/11/me-bau-oc-bach-thoai-phat-phap-cho-con.html"
+---
+
+Tiêu đề bài viết: Mẹ bầu đọc Bạch Thoại Phật Pháp cho con nghe, thì khấn cầu như thế nào? Nội dung chi tiết: 🌻 Nam thính giả: Thưa Sư Phụ, thai phụ thực hành thai giáo, nếu như cô ấy đọc Bạch Thoại Phật Pháp cho con của mình nghe thì phải khấn cầu như thế nào ạ? ☀️ Đài Trưởng trả lời: Đọc Bạch Thoại Phật Pháp cho con nghe là để giúp con hiểu được chân lý. "Thỉnh cầu Quan Thế Âm Bồ Tát giúp cho con của con...... ( tên của đứa trẻ) có thể khai mở trí tuệ, từ nhỏ đã biết sống đúng pháp đúng lý, xin Quan Thế Âm Bồ Tát gia trì cho con của con trí tuệ, sau khi trưởng thành sống là một người có đạo đức, có thể trở thành một người cứu độ chúng sinh". 🌻 Nam thính giả: (Dạ, đứa trẻ vẫn chưa sinh ra ạ, vẫn còn trong bụng mẹ thì phải làm sao ạ?) ☀️ Đài Trưởng trả lời: Người mẹ tu Tâm, đứa bé cũng tu Tâm rồi. Người mẹ ăn uống gì thì đứa trẻ sẽ hấp thụ những chất dinh dưỡng đó từ Mẹ của mình. 🌻 Nam thính giả: (Dạ, con hiểu rồi. Cảm ơn Sư Phụ). ✨✨✨ wenda20170127 32:19 妈妈给孩子读《白话佛法》，如何祈求 男听众：师父，怀孕的妈妈进行胎教，她如果给孩子读《白话佛法》，怎么去祈求呢？ 台长答：读《白话佛法》就是给孩子明理，“请观世音菩萨帮我儿子某某某能够开智慧，从小懂得如理如法地生活。请观世音菩萨加持他的智慧，让他长大之后，能够成为一个懂得道德的人、能够救度众生的人。”（那孩子没有出生，在妈妈的腹中呢？）妈妈修心，孩子就修心了；妈妈吃什么，孩子就吸收妈妈的营养。

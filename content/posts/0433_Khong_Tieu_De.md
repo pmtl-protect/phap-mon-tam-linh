@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.555Z
+draft: false
+url: "/2025/06/lam-nao-e-niem-kinh-co-cam-xuc.html"
+---
+
+Tiêu đề bài viết: Làm thế nào để niệm kinh có cảm xúc Nội dung chi tiết: Shuohua20160610 16:31 Làm thế nào để niệm kinh có cảm xúc Nữ thính giả hỏi: Thưa Sư phụ, hôm trước Ngài có nói rằng niệm kinh cần phải có cảm xúc. Vậy làm sao để chúng con có thể niệm kinh mà dễ dàng kết nối với khí trường của Bồ Tát, giúp kinh văn phát huy hiệu quả tốt hơn ạ? Đài trưởng đáp: Niệm kinh phải có cảm xúc. Thầy hỏi con, khi làm một việc gì đó, khi con cảm động, thì con có cảm xúc không? (Dạ có) Được rồi, chỉ cần khi niệm kinh, mỗi lần hãy nghĩ xem Bồ Tát đã giúp con bao nhiêu lần, như giúp ba mẹ con khỏe mạnh hơn, hoặc giúp con đạt được điều gì đó mà con cầu xin, con có cảm động không? (Dạ cảm động) Khi con cảm động rồi mà tiếp tục niệm kinh, thì lúc đó sẽ có cảm xúc rồi. (Tức là với tâm biết ơn, biết ơn Quán Thế Âm Bồ Tát, mang theo tâm thái cảm ân đó.) Đúng vậy. Ví dụ như trước đây con từng cầu xin Bồ Tát giúp con thi đậu vào một trường học nào đó, hoặc giúp một người thân trong gia đình con, và con cầu đã thấy linh ứng rồi. Bây giờ, con hãy nhớ lại điều đó, cảm động một chút, rồi tiếp tục niệm kinh, thì lúc đó niệm kinh sẽ khác hẳn so với lúc bình thường. Trong quá trình dịch và chia sẻ Pháp, Con có gì sai sót, không đúng Lý, đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con shuohua20160610 16:31 怎样做到念经有感情 女听众：师父那天说念经要有感情，我们怎么念经更能接到菩萨气场，念出经文的效果更好呢？ 台长答：念经要有感情。我问你，你们做事情，感动的时候是不是有感情？（是）好了，只要你念经的时候，每一次想一想菩萨给了你多少菩萨让你的爸爸妈妈身体好了，或者让你求的一件事情成功了，你感动不感动？（感动）当你感动的时候再去念经，这个时候就会出感情了（就是感恩，感恩观世音菩萨，抱着那种感恩的心态）对。比方说你曾经求菩萨，他帮你报考某一个学校，或者帮你家里某一个亲人，你求了灵了，你再把它拿回来回忆一下、感动一下，这个时候再念，和平时念就不一样了。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.053Z
+draft: false
+url: "/2025/02/phat-nguyen-phong-sinh-so-luong-ca-neu.html"
+---
+
+Tiêu đề bài viết: Phát nguyện phóng sinh số lượng cá, nếu không đếm được có thể thưa với Bồ Tát Nội dung chi tiết: Wenda20141123B 39:14 Nam thính giả: Đồng tu trước đây đã phát nguyện phóng sinh một số lượng cá nhất định. Nhưng do tham gia phóng sinh tập thể, nên số lượng cá không dễ đếm, có lúc là cá lớn, có lúc là cá nhỏ, kích cỡ không đồng đều. Ở chỗ chúng con thường phóng sinh cá chép lớn, cá rô phi lớn. Một số đồng tu lo rằng số lượng không đủ, vì điều kiện tài chính có hạn. Dù sao thì phóng sinh cá chạch cũng không tốt bằng cá lớn. Nhưng đôi khi, chúng con sợ làm không trọn vẹn, như vậy có sao không? Đài Trưởng: Chuyện này không sao cả, chỉ cần thưa với Bồ Tát là được. Phải nói rõ ràng. (Có nghĩa là chỉ cần nói với Bồ Tát rằng con muốn phóng sinh với số tiền bao nhiêu là được, đúng không ạ?) Đúng vậy, con chỉ cần nói: “Bồ Tát ơi, do số lượng khó đếm chính xác…” Những chuyện như thế này cứ nói với Bồ Tát. Trên đầu ba thước có thần linh, hộ pháp thần của con và các thần linh trên cao đều sẽ ghi lại giúp con. Chỉ cần tâm con chính trực, không được nói dối. Nói thật thì không sao, nhưng nếu nói dối thì sẽ bị trừng phạt. (Vậy nếu chúng con mua thêm, đôi khi mua vài trăm đồng tiền cá chạch để bù vào cho đủ số lượng thì có được không?) Cũng được, nhưng vẫn phải thưa rõ ràng với Bồ Tát. Wenda20141123B 39:14 发愿放生数量，条数数不清可以和菩萨讲 男听众：同修原先发愿要放多少条鱼，由于集体放生，鱼的数量不好数，有的时候是大鱼有的时候是小鱼，不匀。我们这边一般放大鲤鱼大鲫鱼，一些同修怕数量不足，金额有限嘛，因为放泥鳅总归不如放大鱼好，但是有的时候我们怕做得不太圆满。�台长答：这个没关系，只要跟菩萨讲就可以了，要讲的（就说要放多少钱就可以，是吧？）对，你就说“菩萨，我们因为数不清楚”，什么事情都跟菩萨讲，头上三尺有神灵，你的护法神、上面的神灵全部帮你记下来的，你只要正，不能说谎话，说真话没关系的，说谎话就要受惩罚的（哦。我们多买一些，有时候买几百元的泥鳅，怕这个数量不足就补一补，这样可以不可以？）应该也可以，也要跟菩萨讲。

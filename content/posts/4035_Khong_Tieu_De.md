@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.874Z
+draft: false
+url: "/2025/01/ve-viec-ghi-ngay-tren-ngoi-nha-nho.html"
+---
+
+Tiêu đề bài viết: Về việc ghi ngày trên ngôi nhà nhỏ Nội dung chi tiết: Người nghe nữ: Khi đốt ngôi nhà nhỏ, đáng nhẽ con ghi ngày là 31 tháng 3 nhưng lại viết nhầm thành ngày 1 tháng 4. Vậy thì ngôi nhà nhỏ sẽ có tác dụng từ ngày 1 tháng 4, đúng không ạ? Lư Đài Trưởng trả lời: Đúng vậy. Người nghe: Nếu viết là tháng 5 thì đến tháng 5 mới có tác dụng, đúng không ạ? Sư phụ: Đúng vậy. Người nghe: Nhiều đồng tu có người thân đã qua đời đã đầu thai, nên không thể niệm ngôi nhà nhỏ cho họ. Vậy có thể viết ngày trên ngôi nhà nhỏ là một trăm năm sau rồi đốt được không? Sư phụ: Ồ, đừng làm vậy, điều này không được đâu. Nếu họ đã đàu thai thành người, vẫn có thể đốt ngôi nhà nhỏ cho họ. Vì khi con đốt, họ có thể sẽ mơ thấy những chuyện của kiếp trước. Cũng giống như chúng ta bây giờ, không biết kiếp trước mình là ai. Có thể con cháu của chúng ta vẫn đang đốt ngôi nhà nhỏ cho chúng ta, và khi họ đốt, con sẽ thấy thuận lợi hơn, sức khỏe cũng sẽ tốt hơn. Chỉ có lợi mà không có hại. Người nghe: Vậy là không sao ạ? Sư phụ: Đúng vậy. Vì dù họ đã đầu thai làm người, nhưng vẫn cùng sống trong thế giới này với chúng ta. Chỉ là trước đây họ là người thân của con, còn bây giờ đã trở thành người thân của người khác mà thôi. \*\*\* 关于烧小房子的日期 Wenda20130331 01:54:50 女听众：烧小房子的时候把日期3月31号写成了4月1号，那小房子就在4月1号起作用对不对？ “卢台长”答：对（如果写五月份的话就在五月份起作用？）对（很多同修家中亡人投人了，又不能跟他们念小房子，能不能把这个小房子写成一百年以后烧下去呢？）诶，不要搞，这个不可以的。如果已经投人的话，照样可以给他烧，因为你烧的时候，他可能会梦到过去的事情。就像我们现在一样，我们不知道自己过去是谁，可能我们的孩子还在给我烧小房子，他一烧的话，你会顺利，身体会好，只有好没有坏处（没关系的呀）因为他投胎后跟我们同一个世界，只不过他过去是你的谁，现在变成是人家的谁了。

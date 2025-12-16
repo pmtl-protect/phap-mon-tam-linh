@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.905Z
+draft: false
+url: "/2025/08/su-phu-noi-voi-cac-con-may-cau-chan-ly.html"
+---
+
+Tiêu đề bài viết: Sư phụ nói với các con mấy câu chân lý nhân sinh: Nội dung chi tiết: Sư phụ nói với các con mấy câu chân lý nhân sinh: Học Phật làm người, đừng chấp với quá khứ, bởi quá khứ đã qua rồi; đừng chấp với hiện tại, bởi con vẫn phải tiếp tục sống; đừng chấp với người bạn đời, nếu không thì thật sự sẽ không thể sống yên ổn; đừng chấp với kẻ tiểu nhân, bởi họ với ai cũng đều không yên ổn; đừng chấp với chính mình, bởi tất cả rồi cũng sẽ qua đi. Chúng ta là người học Phật phải nhìn thấy được tương lai, và phải muốn thay đổi tương lai. Bill Gates thường hay nói một câu: “Tôi luôn cầm ống nhòm để nhìn thế giới này”, nên tầm nhìn của ông xa rộng. Chúng ta muốn thay đổi tương lai của mình, thì phải tu tâm; người tu tâm thì phải có niềm tin; người có niềm tin thì mới không bao giờ buông bỏ, tinh tấn học Phật. Đây chính là nền tảng của học Phật và thành Phật. Lấy Đức dưỡng thân, lấy Nhân dưỡng vật, lấy Đạo nuôi dưỡng thiên hạ muôn đời — Trích khai thị tại Pháp hội Brisbane, 20/3/2016 师父告诉你们几句人生经典的话： 学佛做人， 别和往事过不去，因为往事已过去； 别和现在过不去，因为你还要过下去； 别和你的伴侣过不去，否则你们真的会过不去； 别和小人过不去，因为他和谁都过不去； 别和自己过不去，因为一切都会过去。 我们学佛人要看得到未来，并想改变未来。 比尔·盖茨经常跟别人说一句话： 我这个人永远是拿着望远镜看这个世界， 所以他看得远。 我们想改变自己的未来， 我们才要修心，要修心的人就要有信心， 有信心的人才会永不放弃，精进学佛， 这就是学佛和成佛的基础。 以德养身，以仁养物，以道养天下万世（下） ——2016年3月20日布里斯本法会开示摘要

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.212Z
+draft: false
+url: "/2025/03/cong-uc-nhap-va-cong-uc-xuat-co-su-khac.html"
+---
+
+Tiêu đề bài viết: Công đức nhập thế và công đức xuất thế có sự khác biệt gì? Nội dung chi tiết: Wenda20191124 52:36 Công đức nhập thế và công đức xuất thế có sự khác biệt gì? Thính giả nữ: Làm từ thiện có phải là đang thực hiện công đức nhập thế không? Công đức nhập thế có phải cuối cùng trở thành phước báo không? Đài trưởng trả lời: Nếu họ không nghiêm túc thăng tiến đến cảnh giới Bồ Tát, vậy thì đó là công đức nhập thế (trong tu hành, chẳng hạn như vì bệnh tật hoặc có việc gì mà cầu nguyện, phóng sinh, niệm kinh, làm công đức, thì loại này có được gọi là công đức nhập thế không?) Công đức của họ đã tiêu hao, chẳng hạn như họ bị bệnh hoặc cha mẹ họ bị bệnh, họ đã làm nhiều công đức, đó là công đức, mà công đức đã tiêu hao, tiêu hao thì không còn nữa! Công đức dùng cho người thế gian thì trở thành phước đức. Còn một số người tìm kiếm tiền, đó chính là phước đức (Dạ vâng. Như việc học Phật, niệm kinh với mục tiêu thoát khỏi lục đạo, cứu độ chúng sinh, hay giống như các pháp sư để thành Phật, vì một mục tiêu vĩ đại thì có phải là công đức xuất thế không?) Đúng vậy, vì họ không vì cầu xin gì, gọi là vô cầu, vô sở đắc, một cái gọi là hữu sở đắc. Vô sở đắc có nghĩa là bạn không nên nghĩ đến việc làm nhiều việc vì một mục tiêu nào đó. ----------------------------- Wenda20191124 52:36 入世功德和出世功德有什么区别 女听众：做慈善的话是不是等于是在做入世功德？入世功德是不是最后就成了福报呢？ 台长答：他如果不好好地上升到菩萨的境界，那么就是入世功德（在修行中，比如说因为生病或者有什么事情去求，而去放生、念经、做功德，那这种算是入世功德吗？）他的功德用掉了，比方说他生病或者他爸爸妈妈生病，他做了很多功德，是功德啊，功德用掉了，用掉就没了啊！功德用到人间了就变成福德了。还有一些找钱，就是福德（好的。像奔着超脱六道、救度众生的目标去学佛念经，还是像法师一样为了成佛、为了宏伟的目标去学佛，那这种就等于是出世功德了？）对了，因为他不为所求，叫无求、无所得，一个叫有所得。无所得的意思就是你不要想为某一个目标去做很多事情。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.295Z
+draft: false
+url: "/2025/08/han-nguoi-khac-cung-se-mang-nghiep.html"
+---
+
+Tiêu đề bài viết: Hận người khác cũng sẽ mang nghiệp Nội dung chi tiết: Giải đáp thắc mắc thư tín (398) ️ Hỏi: Ngài đã từng khai thị, hận người khác sẽ thay người đó mang nghiệp, đối phương sẽ lấy đi một phần công đức của chúng ta. Xin hỏi, điều này nên hiểu như thế nào? Đáp: Khi ngươi hận người này, chẳng phải là hận những chỗ không tốt của người ta sao? Ngươi vừa hận là đã hận vào trong lòng rồi, nghiệp chướng xấu xa liền đến trong lòng ngươi, ngươi liền mang lên mình những nghiệp chướng này. Hận những khuyết điểm của hắn, hận nghiệp chướng của hắn, hận hắn làm việc sai trái, ngươi liền mang lên mình, càng hận càng tổn thương chính mình. Tại sao nhiều người không có trí huệ? Chính là không hiểu. Ngươi hận hắn, hắn chẳng biết gì cả, ngươi đặt tất cả sự hận thù vào trong lòng mình, hận đến nghiến răng nghiến lợi, đau đớn quặn thắt ruột gan, ăn không ngon, ngủ không yên, cuối cùng mang hết nghiệp chướng của hắn lên mình. Loại người hèn hạ đó, cần gì phải để ý đến hắn làm gì? Phải buông bỏ, vứt bỏ đi! Cả đời người làm tổn thương ngươi rất nhiều, ngươi toàn bộ hận trong lòng sao? Khí lượng nhỏ như vậy làm sao mà sống? Chỉ có buông bỏ. Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót. không Đúng Lý Đúng Pháp. Con xin Chư Phật, Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. 恨别人也会背业---解答来信疑惑 （三百九十八） ️ 问：您曾经开示过，恨别人会替那个人背业，对方会拿走我们功德的一部分。请问，这个怎么理解？ 答：你恨这个人的时候，是不是恨他不好的地方？你一恨就恨到心里了，不好的业障就到你心里了，你就背上了这些业障。恨他的缺点，恨他的业障，恨他做错事情，你就背在自己身上了，越恨越伤害自己。很多人为什么没有智慧？就是不懂。你恨他，他什么都不知道，你把恨全部放在自己心中，恨得咬牙切齿、肝肠寸断、吃不下饭、睡不好觉，最后把他的业障全部恨到自己身上。这种烂人，理他干吗？要放下、扔掉！一辈子伤害你的人很多，你全恨在心里？气量这么小怎么活？只有放下。

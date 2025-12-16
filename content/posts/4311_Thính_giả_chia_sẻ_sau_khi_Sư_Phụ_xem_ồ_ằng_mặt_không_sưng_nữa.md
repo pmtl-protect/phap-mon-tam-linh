@@ -1,0 +1,8 @@
+---
+title: "Thính giả chia sẻ sau khi Sư Phụ xem Đồ Đằng mặt không sưng nữa."
+date: 2025-12-15T22:19:51.661Z
+draft: false
+url: "/2025/12/thinh-gia-chia-se-sau-khi-su-phu-xem-o.html"
+---
+
+Thính giả chia sẻ sau khi Sư Phụ xem Đồ Đằng mặt không sưng nữa. Nữ thính giả: Sư Phụ, Trước đây mặt mẹ con lúc nào cũng bị sưng, và có các nếp nhăn ở chỗ sưng. Bà ấy nói sau khi Sư Phụ giúp bà ấy xem Đồ đằng, bây giờ đã đỡ hơn nhiều so với trước kia. Mặt bà ấy không còn sưng nữa, và các nếp nhăn cũng mờ đi rất nhiều. Cảm ơn Sư Phụ! Đài trưởng đáp: Cần duy trì niệm kinh, và uống nước Đại Bi. Nữ thính giả: (Ồ). ​wenda20141214B 56:15 听众分享给台长看过图腾后脸不肿了 女听众：师父，我妈原先脸总是肿，肿的地方还有三道纹。她说您给她看完图腾以后，现在都比以前好很多了，脸也不肿了，三道纹也浅了。感恩师父！ 台长答：好好念经啊，而且要喝大悲水（哦）

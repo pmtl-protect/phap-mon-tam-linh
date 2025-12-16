@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.945Z
+draft: false
+url: "/2024/11/cau-10-thuc-te-cat-toc-ngan-co-tot-hon.html"
+---
+
+Tiêu đề bài viết: Câu 10: Thực tế cắt tóc ngắn có tốt hơn không? Nội dung chi tiết: Hỏi: Sư phụ nói , nằm mơ thấy cắt tóc có nghĩa là tiêu trừ đi phiền não. Vậy thực tế là tóc cắt ngắn bớt đi vậy có tốt hơn không? Trả lời: trên thực tế là đúng. Tại vì sao? Hãy xem tại sao sư phụ lại cắt hết tóc đi . thì cắt đi phiền não. Hãy suy nghĩ mà xem, trong thực tế thì con gái bây giờ để tóc dài hay tóc ngắn trông đẹp hơn? Chắc chắn là tóc ngắn đẹp hơn phải không . Tại vì sao? Tóc ngắn sẽ sạch . Bây giờ có một người phụ nữ để tóc rất là dài , mỗi ngày gội đầu có mệt không? Và có thời gian để gội không? Ngoài ra, để tôi kể cho bạn nghe một cảm nhận chân thực, đó là nhìn từ góc độ trên tướng mạo và phong thủy ngày xưa mà nói , một người có tóc dài là gian khổ, càng dài mệnh càng khổ. Cho nên rất nhiều đã cắt bớt tóc đi. nhiều người đã cắt đi. (Cảm ơn Sư Phụ). Vì nhiều sư huynh của chúng ta, đặc biệt là các sư huynh nữ cắt tóc rất ngắn nên con mới hỏi câu này) vậy thì hay quá, con xem pháp sư cắt tóc ngắn được không ? Là Không phiền não , đi đến đâu mọi người cúng dường đến đó. 20150410 Câu hỏi từ Hội nghị Phật hữu Thế giới Singapore Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con 🙏🙏🙏

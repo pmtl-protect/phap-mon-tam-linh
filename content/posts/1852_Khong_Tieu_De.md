@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.225Z
+draft: false
+url: "/2024/12/ve-van-e-phe-hu-khi-hu-sau-khi-van-ong.html"
+---
+
+Tiêu đề bài viết: Về vấn đề phế hư, khí hư sau khi vận động Nội dung chi tiết: wenda20141026B 28:39 Về vấn đề phế hư, khí hư sau khi vận động Nữ thính giả: Cũng là đồng tu này, cô ấy nói khi vận động, cô ấy bị khí hư, khí không xuống mà lại dồn lên trên, gây đầy hơi dạ dày, khó chịu đến mức không thể ngủ được. Cô ấy phải làm sao? Đài Trưởng đáp: Rất đơn giản, khí hư, người bị khí hư thực ra là bị hư phổi. Phổi hư là khi có một chút vận động thôi mà toàn bộ dung tích phổi không đủ, lượng khí lưu trữ trong phổi không nhiều. Vì sao rất nhiều người khuyên các con tập thở sâu, khi hít vào thì dùng mũi, khi thở ra thì dùng miệng. Nếu thường xuyên thở sâu như vậy sẽ có lợi cho phổi. Trước khi đi ngủ, cứ làm như vậy 30 lần. Bây giờ con thử xem, bảo đảm sẽ rất thoải mái, hít vào bằng mũi, hít sâu một chút, rồi thở ra bằng miệng, thấy thoải mái không? (Đúng đúng đúng). Làm như vậy sẽ giúp phổi con dễ chịu, huyết áp cũng sẽ giảm, nhịp tim cũng chậm lại, đây là một phương pháp rất tốt. ------------------------------ Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 ------------------------------ wenda20141026B 28:39 \*\*关于肺虚、运动后气虚的问题\*\* 女听众：也是这位同修，她说她运动就气虚，气不往下反而往上顶，会胃胀气，难受得无法入睡，应该怎么办？ 台长答：很简单，气虚，只要用劲就气虚的人实际上就是肺虚，肺虚的人就是稍微有点运作，整个的肺活量不够，肺部储存的气不多。为什么很多人叫你们练深呼吸，吸的时候用鼻子，吐出去的时候用嘴巴，经常这样深呼吸的话对肺会有好处，睡觉之前这么来30下。你现在试试看保证很舒服，用鼻子吸，吸进去吸得深一点，然后再嘴巴吐出来，舒服吧？（对对对）这样你的肺就会舒服了，血压也会下来，而且你的心跳也会减慢，这是个很好的方法。

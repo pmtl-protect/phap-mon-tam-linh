@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.066Z
+draft: false
+url: "/2025/04/van-menh-cua-con-nguoi-chung-ta-cung.html"
+---
+
+Tiêu đề bài viết: Vận mệnh của con người chúng ta cũng như vậy, cuộc đời mà chúng ta có được cũng như thế, bạn chứa tâm thái như thế nào thì sẽ nhận được quả báo và cuộc sống tương ứng. Nội dung chi tiết: Có một người thợ mộc đốn một cái cây và làm thành ba cái thùng gỗ. Một cái dùng để đựng rác gọi là thùng rác, rất hôi, mọi người đều tránh xa nó; Một cái dùng để đựng nước gọi là thùng nước, mọi người đều sử dụng nó; còn một cái dùng để đựng cơm, tuy gọi là thùng cơm, nhưng chúng sinh đều dựa vào nó để sống. Dù là thùng cơm, thùng nước hay thùng rác, thực ra chất liệu gỗ đều giống nhau, cái thùng cũng giống nhau, chỉ khác nhau ở chỗ bên trong chứa gì. Vận mệnh của con người chúng ta cũng như vậy, cuộc đời mà chúng ta có được cũng như thế, bạn chứa tâm thái như thế nào thì sẽ nhận được quả báo và cuộc sống tương ứng. Vì vậy, hãy có một tâm thái tốt, chứa đựng lòng từ bi và biết ơn, chúng ta sẽ có cuộc sống như Bồ Tát và một tương lai tốt đẹp. —— Ngày 18 tháng 1 năm 2015, Pháp thoại của Sư phụ tại Đại học Sabah, Malaysia 有一位木匠他砍了一棵樹，把它做成三個木桶，一個裝垃圾叫垃圾桶，很臭，眾人都躲著它； 一個裝水叫水桶，眾人都在用著它；還有一個裝米飯，雖然稱為飯桶，但是眾生都靠著它活著。飯桶也好、水桶也好、垃圾桶也好，實際上木質都是一樣的，桶都是一樣，因為裝的東西不一樣。 我們人的命運也是這樣，我們擁有這個人生也是如此，裝什麼樣的心態你會得到什麼樣的果報和人生啊。所以擁有好的心態，裝上慈悲和感恩，我們就會擁有菩薩一樣的生活和美好的前景啊。 ——2015年1月18日台長馬來西亞【沙巴大學】開示

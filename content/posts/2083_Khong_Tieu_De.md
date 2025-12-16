@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.723Z
+draft: false
+url: "/2025/08/tay-bi-te-phai-can-than-ot-quy-thuc.html"
+---
+
+Tiêu đề bài viết: Tay bị tê phải cẩn thận đột quỵ, thực phẩm có hàm lượng cholesterol cao phải ăn ít Nội dung chi tiết: Tay bị tê phải cẩn thận đột quỵ, thực phẩm có hàm lượng cholesterol cao phải ăn ít Trích “Tổng luận Huyền Nghệ” ngày 31 tháng 3 năm 2015 Thính giả: Xin Sư phụ xem giúp mẹ con có linh tính nào không? Đứa con bị phá thai của bà ấy đã rời đi chưa? Mẹ con sinh năm 1965, tuổi Tỵ. Sư phụ: Không ổn đâu, đứa con bị phá thai vẫn chưa đi. Bảo bà ấy phải cẩn thận, bà ấy có khả năng bị đột quỵ, tay phải thường xuyên bị tê (Vậy để bà ấy thường xuyên ngâm chân chẳng hạn?) Đúng rồi, vấn đề chủ yếu là phải ăn ít những thứ có hàm lượng cholesterol cao, bảo bà ấy ăn chay là được rồi (Bà ấy đã ăn chay được khoảng hai ba năm rồi ạ) Nếu đã ăn chay hai ba năm thì trứng gà cũng nên ăn ít thôi (Vâng ạ) Nghe nói mình ăn chay rồi thì lại ăn trứng gà thoải mái, phô mai, cheese cũng ăn nhiều… Mấy thứ đó chỉ là để điểm xuyết, không phải là đồ ăn chính để cho vào bữa cơm (Vâng ạ) Cholesterol cao, lòng đỏ trứng thì không nên ăn, lòng trắng thì có thể ăn một chút (Dạ, cảm ơn Sư phụ!) 手部发麻要当心中风，高胆固醇食品要少吃 ——2015年3月31日《玄艺综述》 听众：请师父再看一下我妈妈身上有没有灵性，她打胎的孩子有没有走？她是1965年属蛇的。 台长：不行啊，打胎的孩子还没走。叫她当心啊，她会中风，她的右手经常发麻（那就让她多泡泡脚之类的？）对，最主要的问题就是少吃胆固醇高的东西，叫她吃素就好了（她已经吃了有两三年了吧）两三年吃素的话，鸡蛋也要少吃点的（好的）一听自己吃素了，鸡蛋拼命吃，cheese奶酪拼命吃……这个是点缀的，不是专门给你在饭里面吃的（好的）胆固醇高，蛋黄不能吃，蛋白还可以吃一点（好，感恩师父！）

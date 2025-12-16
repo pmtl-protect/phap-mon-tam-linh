@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.224Z
+draft: false
+url: "/2024/12/kiep-truoc-bi-ep-tu-sat-kiep-nay-co-tu.html"
+---
+
+Tiêu đề bài viết: Kiếp trước bị ép tự sát, kiếp này có thể tu thành Bồ Tát không? Nội dung chi tiết: Wenda20180615 03:30 Thính giả nữ: Trong chương trình có nói rằng người từng tự sát có thể vĩnh viễn không tu thành Bồ Tát được. Một đồng tu mơ thấy mình ở kiếp trước là cung nữ trong hoàng cung, bị hoàng thượng truy sát. Vì không muốn liên lụy đến nhiều người, cô ấy đành treo cổ tự sát. Vậy trường hợp bị ép tự sát như thế này… Đài Trưởng: Cũng như vậy thôi. Cô ấy không thể lên trời, vẫn phải đầu thai làm người. Cô ấy chẳng phải lại đến đầu thai làm người sao? (Vậy vì kiếp trước cô ấy từng tự sát, liệu kiếp này có phải vĩnh viễn không tu thành Bồ Tát được không?) Điều này còn tùy thuộc vào kiếp cô ấy tự sát, nhưng về cơ bản, cô ấy khó có thể lên trời làm Bồ Tát. Tuy nhiên, điều này cũng không phải tuyệt đối. Nếu cô ấy có công đức đặc biệt lớn… Tất cả đều là tương đối, không có gì là tuyệt đối cả, con hiểu chứ? (Hiểu rồi ạ.) Việc đầu thai giống như câu nói: “Buông dao đồ tể, lập tức thành Phật,” đúng không? (Đúng ạ.) Dù con từng làm điều xấu đến đâu, chỉ cần một niệm “A Di Đà Phật” cũng có thể được vãng sinh Tây Phương Cực Lạc. Nhưng còn bao nhiêu nghiệp chướng phải giải quyết thì sao? Con hiểu rồi chứ? (Hiểu rồi ạ, cảm ơn Sư phụ.) Wenda20180615 03:30 前世被逼自杀，今世能否修成菩萨 女听众：节目录音说自杀过的人可能永生永世修不成菩萨。同修梦见有一世是皇宫里的宫女，被皇上追杀，她不想连累那么多人，只好上吊自杀了。请问，出于这种原因被逼自杀的…… 台长答：一样啊。她上不了天，还是投人，她不是又来投人了？（因为她前世自杀过，也是永生永世修不成菩萨吗？）这个是看她哪一世自杀的，基本上应该不能到天上做菩萨，但是要看她的，如果她功德特别大……这个没有绝对的，全部都是相对而言的，听得懂吗？（好的，明白了）投胎，你“放下屠刀，立地成佛”，对不对？（嗯）你做得再差，一念“阿弥陀佛”就往生西方极乐？那这么多的业障呢？明白了吗？（好的，感恩师父）

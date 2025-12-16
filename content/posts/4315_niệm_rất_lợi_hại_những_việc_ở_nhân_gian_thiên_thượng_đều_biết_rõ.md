@@ -1,0 +1,8 @@
+---
+title: "Ý niệm rất lợi hại, những việc ở nhân gian thiên thượng đều biết rõ."
+date: 2025-12-15T22:19:51.669Z
+draft: false
+url: "/2025/12/y-niem-rat-loi-hai-nhung-viec-o-nhan.html"
+---
+
+Ý niệm rất lợi hại, những việc ở nhân gian thiên thượng đều biết rõ. Nữ thính giả: Sư phụ nói ý niệm của con người thật sự rất lợi hại, nếu mọi người cùng nhau hận một người xấu, Ngay lập tức người đó sẽ bị bệnh hoặc xui xẻo. Ý niệm của người học Phật lại càng lợi hại hơn, sau khi ý niệm này sản sinh ra sẽ giống như sóng điện từ truyền lên trời, có phải giống như sấm sét? Xin Sư phụ từ bị khai thị. Đài trưởng đáp: Ý niệm rất lợi hại. Nếu mọi người cùng hợp lại, thì ý niệm này rất lợi hại. Giống như sóng điện từ, Thiên thượng sẽ biết ngay, Thiên thượng biết được sóng điện từ này, sẽ phản hồi lại nhân gian. Nhớ kỹ nhé, Thiên thượng biết rõ mọi việc ở nhân gian, chịu khổ chính là tiêu nghiệp, hãy chịu khổ nhiều một chút. Khi Có nghiệp lực lớn, lúc nghiệp chướng xuất hiện, sẽ có lúc có thể tiêu trừ, Đôi khi là nghiệp chướng của bản thân Con, người khác cũng không thể giúp được Con, dù Con có sóng điện từ cũng vô ích. Nữ thính giả: Con hiểu rồi. Wenda20180325A 40:36 意念很厉害；人间的事情天上全知道 女听众：师父讲人的念力真的很厉害，如果大家一起恨一个坏人，这个坏人马上生病或者倒霉。学佛的人意念更加地厉害，这种意念是否产生了之后就会打到天上，像打雷一样的电磁波？请师父慈悲开示。 台长答：意念是很厉害的。如果大家一起来，这个意念就很厉害，像电磁波一样的，天上就知道了，天上知道这个电磁波，又打回到人间。记住了，天上全知道人间的事情，吃苦就是消业，多吃点苦吧。有大的业力、业障来的时候，有时候可以消掉，有时候是自己的业障，别人也帮不了你，你就是有电磁波也没有用（明白）

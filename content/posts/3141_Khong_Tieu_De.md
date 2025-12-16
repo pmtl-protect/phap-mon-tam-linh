@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.373Z
+draft: false
+url: "/2025/02/mo-thay-mat-ien-thoai.html"
+---
+
+Tiêu đề bài viết: Mơ thấy mất điện thoại Nội dung chi tiết: ☎️Nam thính giả: Sư phụ, Xin chào Thầy, nếu mơ thấy bị mất điện thoại, nên giải mã giấc mơ như thế nào ạ? 📞Đài trưởng đáp: Mất điện thoại à, chứng tỏ con đang thanh tu rồi, điện thoại để liên lạc với bên ngoài là một thứ phiền não , điện thoại là cái gây rắc rối, Con xem xem chúng ta tọa thiền, lúc chúng ta nhập định điện thoại cũng không nghe. Sư phụ căn bản không mở điện thoại. Nhập định không mở điện thoại, toạ thiền cũng không mở điện thoại. ☎️ :Con hiểu ạ, Sư phụ , ngài có wechat không? 📞:Không có, ta không có wechat, vì ta sợ phiền, con nói Sư phụ còn có wechat được sao? Thế thì không cần ngủ rồi, cả ngày chỉ xem thôi, hahaha ☎️:Sư phụ, ý của con muốn nói là Thầy không có wechat, nhưng Thầy có "Uy tín" đó ạ 📞:Haha Wenda20201002 35:34 梦见手机没有了 男听众：师父，您好。如果梦到手机没有了，怎么解梦？ 台长答：手机没有了，就说明你在清修了。手机是对外联系的一个烦恼，手机——烦恼。你看看我们打坐、我们闭关的时候手机都不听的，师父根本不开手机的。闭关不能开手机的，打坐都不能开手机（明白。师父，您有微信吗？）没有，我没微信的，我就是怕烦。你说师父有微信还了得？那不要睡觉了，整天看吧，呵呵（师父，我那意思是说，您没有微信，但是您有那个“威信”）呵呵。 Trong quá trình dịch nếu có gì chưa đúng lý đúng pháp, xin Chư Phật, Bồ tát, Long thiên hộ pháp và Sư phụ từ bi tha thứ cho con 🙏🙏🙏

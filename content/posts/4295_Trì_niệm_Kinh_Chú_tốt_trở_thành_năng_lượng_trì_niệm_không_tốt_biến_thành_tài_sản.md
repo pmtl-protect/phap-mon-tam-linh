@@ -1,0 +1,8 @@
+---
+title: "Trì niệm Kinh Chú tốt trở thành năng lượng, trì niệm không tốt biến thành tài sản ở cõi âm; Đài Trưởng khai thị về “Bảy Tầng Trời”(Thất Trùng Thiên)"
+date: 2025-12-15T22:19:51.628Z
+draft: false
+url: "/2025/12/tri-niem-kinh-chu-tot-tro-thanh-nang.html"
+---
+
+Trì niệm Kinh Chú tốt trở thành năng lượng, trì niệm không tốt biến thành tài sản ở cõi âm; Đài Trưởng khai thị về “Bảy Tầng Trời”(Thất Trùng Thiên) Nam thính giả: Đồng tu nằm mơ thấy Sư phụ khai thị: Chú Đại Bi, Tâm Kinh và Lễ Phật Đại Sám Hối Văn là Ba Đại Kinh Chú nhất định phải nhớ, ghi nhớ được rồi có thể lên đến Bảy Tầng Trời (Thất Trùng Thiên), nếu không nhớ trì niệm không tốt thì chỉ là tài sản là tiền ở cõi âm. Xin Sư phụ khai thị thêm. Đài Trưởng đáp: Trì niệm kinh tốt thì trở thành năng lượng. Sư phụ vẫn luôn nói rằng nếu con trì niệm không tốt, điều này sẽ biến thành tài sản (tiền), xuống cõi âm. Bảy Tầng Trời (Thất Trùng Thiên), trên trời có 33 tầng trời. Điều này tuy chưa thoát khỏi lục đạo, nhưng ít nhất cũng có thể nói con đã đạt đến Bảy Tầng Trời rồi. Như thế cũng đã rất lợi hại rồi. Bảy Tầng Trời được xem như một biểu tượng. Bảy Tầng Trời là một cảnh giới, cảnh giới này rất cao. Cho nên rất nhiều tòa nhà cao tầng được gọi là ‘Thất Trùng Thiên’. Người ta nói ‘Cửu Trùng Thiên’, ‘Thất Trùng Thiên’ đều đại diện cho sự thăng tiến của cảnh giới. Con đã từng nghe nói ‘Bát Trùng Thiên’ chưa? Nam thính giả: (Con hiểu rồi). wenda20160501A 12:44 念经念得好成为能量，念得不好变成下面的钱；台长解释“七重天” 男听众：同修梦见师父开示：大悲咒、心经、礼佛大忏悔文三大经文一定要记住，记住了可以升七重天，在下面就是钱。请师父开示一下。 台长答：念经念得好了就成为能量师父一直讲的念得不好变成钱，下去。七重天，天上有三十三层天，这个还是没有超脱六道，但是至少说你已经能够到七重天了，那已经很厉害了。七重天是像人家一个象征一样，七重天是到了一个境界，这个境界是蛮高的，所以很多楼叫“七重天”。人家说“九重天、七重天”都是一个境界的提升，你听到过“八重天”吗？（明白了）

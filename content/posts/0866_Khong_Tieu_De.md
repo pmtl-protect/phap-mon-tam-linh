@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.725Z
+draft: false
+url: "/2025/05/cong-cao-nga-man-se-anh-huong-en-tu-tam.html"
+---
+
+Tiêu đề bài viết: Cống cao ngã mạn sẽ ảnh hưởng đến tu tâm, phải kiềm chế Nội dung chi tiết: wenda20170616 46:19 Cống cao ngã mạn sẽ ảnh hưởng đến tu tâm, phải kiềm chế Thính giả nữ: Sư phụ ơi, từ khi con học Phật, con luôn có tâm lý cống cao ngã mạn, phải làm sao ạ? Đài Trưởng đáp: Điều này liên quan đến kiếp trước của con, nếu kiếp trước con có cống cao ngã mạn, “đẳng cấp khá là cao ”, nên kiếp này con vẫn sẽ tiếp tục. Phải kiềm chế sự cống cao ngã mạn của mình. Con có “công đức” gì đâu? Con “cao” ở điểm nào? (Con cũng không biết.) Hãy thật thà hơn, con phải xem mình thấp đi. Tại sao Đức Phật ngày xưa đi khất thực? Chính là để buông bỏ cống cao ngã mạn. Đức Phật vốn là một thái tử, con nói Ngài thiếu gì? Sao Ngài lại dẫn mọi người đi từng nhà gõ cửa xin bố thí? Giống như đang học cách buông bỏ cống cao ngã mạn vậy. Xem thầy của con có cống cao ngã mạn không? (Không có.) Vậy con là ai mà còn cống cao ngã mạn? Con có tài cán gì đâu? Không được cống cao ngã mạn (Dạ). Một người như vậy sẽ ảnh hưởng đến việc tu tâm của con. wenda20170616   46:19 贡高我慢会影响修心，必须克制 女听众：师父，我自从学佛以来，老是产生贡高我慢的心理，怎么办？ 台长答：这跟你前世有关系，你前世如果有贡高我慢，“档次比较高”，所以你这辈子还会继续。必须要克制自己贡高我慢，你有什么“功”啊？你“高”了什么？（我也不知道呢）老实一点了，你要把自己看低。为什么佛陀当年出去托钵乞食？就是要放下贡高我慢。佛陀是一位太子，你说缺什么？他为什么带着大家去一家一家敲门啊？就像要施舍一样的，就是放下贡高我慢。你看看你们师父贡高我慢吗？（没有）那你是谁啊？你还贡高我慢？你有什么本事啊？不许贡高我慢（好）一个人这样会影响你修心的。 —------------------------------ Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.

@@ -1,0 +1,8 @@
+---
+title: "TRÍ HUỆ TAM-MUỘI"
+date: 2025-12-15T22:19:51.616Z
+draft: false
+url: "/2025/12/tri-hue-tam-muoi.html"
+---
+
+Khi mắng người, chính là lửa đang đốt bản thân quý vị, quý vị mới đi mắng người. Lấy ví dụ đơn giản, cái ấm nước khi đun nước, lúc nào nó sẽ phát ra âm thanh? Bởi vì phía dưới lửa đốt mạnh, thì cái ấm sẽ có hơi nước bốc ra thành tiếng. Khi trong lòng một người khí đầy, lúc muốn mắng người, lửa trong tâm càng đốt càng mạnh, giống như miệng ấm nước phát ra tiếng kêu, nén không nổi nữa thì bắt đầu mắng người; vậy lúc mắng người chẳng phải là đang đốt chính mình sao? Khó chịu không khó chịu? Trước đây có một loại ấm nước, trên miệng ấm có một cái giống như cái còi, đợi đến khi hơi thoát ra thì kêu rất lớn; trên thực tế, miệng của con người cũng giống như miệng cái ấm đó. Người Thượng Hải ngày xưa gọi là “đồng điếu”, nghĩa là gì? Chính là khi một người khí đầy, miệng của họ sẽ mắng người; người không có tức giận thì miệng sẽ không mắng người. Tại sao lại tức giận? Bởi vì nó liên tục đốt họ, trong tâm đang đốt mà. Quý vị nhìn cái ấm nước đó, trước khi sôi, khi hơi thoát ra ở miệng ấm, bên trong ấm đã nóng bỏng rồi. Một người khi đang tức giận, ngũ tạng lục phủ của quý vị chịu nổi sự thiêu đốt như vậy không? Sư phụ nói với quý vị thật sự chính là Bạch thoại Phật Pháp, hy vọng quý vị học cho thật tốt. trích BTPP 7-41: TRÍ HUỆ TAM-MUỘI.

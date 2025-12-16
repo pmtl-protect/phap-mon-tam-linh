@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.228Z
+draft: false
+url: "/2025/08/khi-mot-phat-tu-moi-hoi-rang-can-nen.html"
+---
+
+Tiêu đề bài viết: Khi một Phật tử mới hỏi rằng cần nên chú ý điều gì khi phát nguyện ăn chay trường Nội dung chi tiết: Giải đáp thư thắc mắc 246 20180812 Nam thính giả: Khi một Phật tử mới hỏi rằng cần nên chú ý điều gì khi phát nguyện ăn chay trường, nếu như phụng sự viên nói với họ rằng, sau khi phát nguyện ăn chay trường nếu mộng khảo không vượt qua được cũng tính như là thất nguyện, phải niệm tụng rất nhiều lễ Phật đại sám hối văn. Nếu như vì lý do này khiến cho Phật tử không muốn phát nguyện ăn chay trường thì có được tính là đoạn tuệ mệnh của họ không? Đài Trưởng đáp: Điều đó nghĩa là người này vẫn chưa có duyên phận. Nếu như chỉ là chuyện đơn giản như vậy cũng không muốn tiếp nhận, thì họ có duyên phận gì để tu tâm ăn chay trường? Căn bản họ cũng không có nền tảng. Nam thính giả: Nếu như không nói trước với Phật hữu rằng đã phát nguyện ăn chay trường mà mộng khảo không vượt qua được cũng tính là thất nguyện, đợi đến khi Phật tử đã phát nguyện rồi thì phụng sự viên mới nhắc nhở họ khiến cho Phật hữu mới tạo khẩu nghiệp hoặc không muốn tuân thủ theo phát nguyện, thì phụng sự viên có nghiệp chướng không? Làm sao mới có thể đúng lý đúng pháp? Đài Trưởng đáp: Nói với Bồ Tát rồi, sẽ không có nghiệp chướng: “con nhất tâm nhất ý muốn độ hóa chúng sanh học tập theo Quán Thế Âm Bồ Tát, có thể duyên phận họ không đủ, sẽ có thất nguyện hoặc lười biếng thối chuyển rồi…”. Thì nghiệp chướng sẽ rất nhỏ rồi./.

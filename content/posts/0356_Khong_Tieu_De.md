@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.372Z
+draft: false
+url: "/2025/06/hieu-qua-tro-niem-co-lien-quan-en.html"
+---
+
+Tiêu đề bài viết: Hiệu quả trợ niệm có liên quan đến khoảng cách không? Nội dung chi tiết: 🌻Nam Thính Giả: Hiệu quả của việc trợ niệm cho người khác có liên quan đến khoảng cách không ạ, người trợ niệm và người được trợ niệm càng gần nhau thì hiệu quả càng tốt phải không ạ? Xin Sư Phụ từ bi khai thị. ☀️Đài Trưởng đáp: Thực ra, việc này nói theo cách hiện đại, Thầy lấy một ví dụ, thứ nhất, phải xem mạng ( mạng viễn thông ); thứ hai, phải xem chức năng của điện thoại di động. Chức năng của điện thoại di động chính là năng lượng của bản thân con, sau đó là phạm vi con phát sóng bên ngoài, điều này dựa trên năng lượng của điện thoại, mức độ phân bổ decibel, khoảng cách xa tất nhiên hiệu quả sẽ kém một chút, khoảng cách gần thì sẽ tốt hơn. Nhưng khoảng cách xa hơn, tại sao có người cách năm mươi mét, một trăm mét vẫn có thể dùng bộ đàm được? Tại sao có người chỉ mười mét, năm mét là nói không nghe rõ rồi? Bản thân chất lượng bộ đàm có vấn đề. Hiểu không? 🌻(Con hiểu rồi ạ. Cảm ơn Sư Phụ từ bi khai thị!) ✨✨✨wenda20151025A  22:52 🇦🇺 助念效果与距离有关吗 🌻男听众：为他人助念的效果是不是与距离有关，助念者与被助念者相距越近，效果越好？请师父慈悲开示。 ☀️ 台长答：实际上，这个用现在的话来讲，我举个例子，第一，要看网络；第二，要看手机的功能。手机的功能就是你本人的能量、发射范围，然后你发射出去的范围是根据你手机的能量，那个发射分贝面，远距离当然效果就差一点，近距离好一点。如果再远的距离，为什么有的人五十米、一百米照样能够用对讲机啊？有的为什么只有十米、五米，就讲得听不清楚了？本身对讲机的素质有问题。明白了吗？（明白了。谢谢师父慈悲开示！） 🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

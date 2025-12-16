@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.675Z
+draft: false
+url: "/2025/07/khi-ma-tinh-hoanh-hanh-can-bao-ve-ban.html"
+---
+
+Tiêu đề bài viết: Khi ma tính hoành hành, cần bảo vệ bản thân không bị tổn hại Nội dung chi tiết: Wenda20180624B 44:50 Nam thính giả: Thưa Sư phụ, trong “Tây Du Ký” có những yêu quái rất lợi hại, đến mức đồ đệ của Đường Tăng cũng không đánh lại, cuối cùng phải cầu Bồ Tát gia hộ. Vậy trong hiện thực, có trường hợp nào mà ngay cả Thần Hộ Pháp cũng không đánh lại ma chướng không ạ? Lư đài trưởng đáp: Con nghĩ là có không? (Dạ, con không biết ạ.) Ở nhân gian, Hitler có phải là ma không? (Là ma ạ.) Vậy thì vì sao khi đó ông ta có thể chiếm đóng nhiều quốc gia ở châu Âu như vậy? Chính pháp sao lại không đánh lại được ông ta? (Cuối cùng thì cũng thắng được ạ.) Cuối cùng — điều đó là phải nhìn vào kết quả sau cùng. “Tà không thắng chánh” là nói về kết cục cuối cùng, nhưng khi ma tánh đang hoành hành, thì con thật sự sẽ bị tổn hại. (Đúng vậy ạ.) Một người đang giết người, phóng hỏa, con nói xem dân thường có phải chịu khổ không? Cuối cùng hắn bị bắt vào tù, bị xử bắn, nhưng vấn đề là con người đã chịu khổ rồi. Cho nên thầy dặn dò các con, trước tiên đừng để bị người khác làm tổn thương. Nếu con đã bị tổn thương rồi, thì con là người phải chịu khổ trước. Tuy cuối cùng công lý thuộc về con, nhưng công lý ấy lại không dễ mà có được, phải đánh đổi bằng máu và nước mắt. (Dạ, con đã hiểu rồi ạ.) \*\*\* 魔性猖獗时要保护自己不被伤害 Wenda20180624B 44:50 男听众：师父，《西游记》里有的妖怪很厉害，当年唐僧的徒弟也打不过，最后寻求菩萨保佑。那现实中也有护法神打不过的魔阻吗？ “卢台长”答：你说有吗？（我不知道）在人间希特勒是魔吗？（是）那么当时他为什么能够占领这么多欧洲国家？正法怎么打不过他？（最终打过他了）最终那要看最后的，邪不压正指的是最后，但是魔性猖獗的时候，你的确会受到伤害的（对）这个人杀人放火的时候，你说普通老百姓吃不吃苦了？最后他被抓进监狱里枪毙了，但问题是你已经吃苦了。所以我关照你们，先不要被人家伤害，你被人家伤害了，总是你先吃苦啊。虽然最后正义是属于你的，但是这个正义就得来不易了，那是付出血的代价了（明白了）

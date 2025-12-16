@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.209Z
+draft: false
+url: "/2025/05/chuyen-tiep-phap-bo-thi-do-ong-tu-tao.html"
+---
+
+Tiêu đề bài viết: Chuyển tiếp Pháp Bố Thí do đồng tu tạo cần lưu ý điều gì ? Nội dung chi tiết: Nữ thính giả: Khi chúng con thực hành pháp bố thí, thường chuyển tiếp những nền tảng do các đồng tu phát tâm tự xây dựng. Nội dung bên trong đều là Phật Ngôn Phật Ngữ của Sư phụ và bài viết trên blog, nhưng đôi khi cũng có những chia sẻ nhỏ của cá nhân họ. Nếu chúng con chuyển tiếp nền tảng này, liệu có tạo nghiệp không ạ? Đài Trưởng đáp: Điều cốt yếu là xem tỷ lệ nội dung của Sư phụ chiếm bao nhiêu, đồng thời phải xem xét người đó có thường nói sai lệch hay không. Nếu người này bình thường rất ổn định, bản thân con xem thấy không có vấn đề gì thì Sư phụ cho rằng việc chuyển tiếp không sao cả, đây là "chúng thiện phụng hành". Nhưng nếu họ bóp méo giáo lý của Sư phụ một cách nghiêm trọng, tự tạo ra cách hiểu riêng, mà con vẫn chuyển tiếp thì sẽ tạo nghiệp (Dạ , con cảm ơn Sư phụ). Wenda20200705 39:32 转发同修做的平台要注意什么 女听众：我们平时在做法布施的时候，去转发一些很发心的同修自己做的平台，里面内容都是师父的一些佛言佛语和博客上下载的，但是有时候里面也会有自己的一些小分享。我们转发这个平台的话，会不会有小业障呢？ 台长答：主要是看他把师父的比例放多少，而且你看看这个人是不是经常乱说。如果这个人平时很稳稳当当的，你自己看没有什么问题，我觉得没有什么不可以转发的，众善奉行。如果他严重偏差了师父的那些佛理佛法，自己搞一套，那你去转发它，你就有业障（谢谢师父） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

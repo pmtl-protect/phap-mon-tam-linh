@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.044Z
+draft: false
+url: "/2024/12/e-tu-nhap-that-la-gi.html"
+---
+
+Tiêu đề bài viết: ĐỆ TỬ NHẬP THẤT LÀ GÌ ? Nội dung chi tiết: Hỏi: Sư phụ, lần trước Ngài đã nói về yêu cầu để nhận đệ tử và yêu cầu đối với đệ tử, nhưng có một số đồng tu muốn trở thành đệ tử nhập thất của Ngài. Vậy yêu cầu đối với đệ tử nhập thất là gì? Đáp: Yêu cầu đối với đệ tử nhập thất cũng giống như vậy. Thực tế, trước đây, khi một đại pháp sư hoặc một vị Bồ Tát giáng thế, hoặc khi con đi theo một vị khai sơn tổ sư của pháp môn, thì có hai loại đệ tử: một là đệ tử thông thường, hai là đệ tử nhập thất – những người quản sự, chủ yếu lo việc hoằng pháp và giúp độ chúng sinh. Đệ tử nhập thất là những người đã rất gần gũi với ý nguyện hoằng pháp của sư phụ. Hiểu không? ( Hiểu ạ.) Hiện tại có người thật sự không hiểu gì cả, thậm chí còn tạo khẩu nghiệp. Những người này sau này… cánh cửa địa ngục đã mở sẵn, chờ họ xuống đấy thôi! Không hiểu gì cả, thật ngu muội! Họ thậm chí còn không hiểu “nhập thất” là gì! “Nhập thất” nghĩa là theo sát vị khai sơn tổ sư hoặc sư phụ của mình để cùng hoằng pháp, tiếp cận với Bồ Tát, tiếp cận tư duy ở cảnh giới cao hơn của người tu tâm, bước vào không gian tư duy đó. Hiểu chưa? (Con hiểu rồi.) Wenda20150717 54:26 台长对入室弟子要求的进一步开示 男听众：师父，您上一次说了对收弟子的要求，也说了对徒弟的要求，但是有的同修想成为您的入室弟子，您说说入室弟子的要求是什么呢？ 台长答：入室弟子也是这个要求。实际上过去来讲，一个大法师或者一个菩萨到人间来，或者你跟着这个法门的开山宗师，一个是作为普通的弟子，还有入室弟子——就是管事的，主要是弘法、去帮助度人的，因为入室弟子就是说已经非常接近这个师父的弘法意愿了。你听得懂吗？（听得懂）现在有的人真的什么都不懂，有些人还口造恶业，所以这些人以后……地狱的门开着呢，等着他下去吧！什么都不懂，很愚痴啊！他连入室都不懂啊！“入室”就是紧跟着你这个开山宗师或者你的师父一起弘法，接近菩萨、接近修心人越高境界的思维，进入了你这个思维空间了。明白了吗？（明白了）

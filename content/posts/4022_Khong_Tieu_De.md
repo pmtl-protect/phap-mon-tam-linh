@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.847Z
+draft: false
+url: "/2025/01/phat-tam-hoang-phap-o-chung-sinh-nghiep.html"
+---
+
+Tiêu đề bài viết: Phát tâm hoằng pháp độ chúng sinh, nghiệp chướng từ 80% giảm còn 18% trong 3 năm Nội dung chi tiết: Chương trình "Huyền Nghệ Vấn Đáp" ngày 10/7/2015, 04:37 Thính giả nữ: Năm 2013, con gọi được cho Sư Phụ. Ngài nói hình ảnh vong linh của con trong đồ đằng đều là màu đen. Màu đen đó có phải là biểu hiện nghiệp chướng rất nặng không ạ? Đài Trưởng: Đúng vậy, màu đen chắc chắn không tốt. Thính giả: Nếu toàn bộ là màu đen, thì nghiệp chướng con lúc đó là bao nhiêu phần trăm? Đài Trưởng: 100%. Nếu con nói tất cả đều màu đen, thì đó chính là 100%. Lúc đó sao con không hỏi chi tiết? Thính giả: Lúc đó con có hỏi, và Ngài nói đồ đằng của con toàn màu đen. Tháng 5 năm nay, con lại gọi được và hỏi: “Nghiệp chướng của con hiện còn bao nhiêu phần trăm?” Ngài nói: “Không nặng lắm, chỉ còn 18%.” Có phải vì con làm trưởng nhóm hoằng pháp, dẫn dắt mọi người đi hoằng pháp, nhờ công đức độ người mà trong 3 năm nghiệp chướng của con giảm còn 18% không ạ? Đài Trưởng: Đúng vậy. Nếu lúc đó toàn màu đen, cơ bản là 70%-80%. Nếu trong 3 năm con phát tâm mạnh mẽ như vậy, giảm còn 18% thì chứng tỏ con đã làm rất tốt, làm cực kỳ tốt. Hiểu chưa? Thính giả: Con hiểu rồi. Con cảm ơn Sư Phụ! 发心弘法度众，业障从三年前80%降到18% Shuohua20150710 04:37 发心弘法度众，业障从三年前80%降到18% 女听众：弟子在2013年1月打通师父的电话，师父说弟子的图腾整个都是黑色。黑色就代表那时候我的业障很重是吗？ 台长答：对啊，黑色当然不好（如果整个是黑的，是百分之多少呢？）100%了，如果你说整个都是黑的，那就是100%了。我现在又不看图腾的，你当时怎么不问？（当时问了，师父说我整个图腾都是黑色的。今年5月弟子打通师父的图腾电话，我问：“弟子的业障还有百分之多少？”师父说：“不重啊，只有18%。”是不是因为弟子在做弘法组组长，到处带人弘法，就是因为这个度人的功德，这三年时间可以让我减轻到只剩18%了吗？）那当然了。一般说，如果看到你整个都是黑的话，基本上是70%-80%了（哇！）如果这三年你这么发心，能够到18%的话，说明你已经做得很厉害了，已经做得非常好了。明白了吗？（明白，感恩师父！）

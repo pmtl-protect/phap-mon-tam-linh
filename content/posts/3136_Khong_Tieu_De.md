@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.357Z
+draft: false
+url: "/2024/11/mo-thay-minh-i-en-song-bac-nhung-khong.html"
+---
+
+Tiêu đề bài viết: Mơ thấy mình đi đến sòng bạc nhưng không thể đánh bạc vì trên người có gắn chip Nội dung chi tiết: Wenda20181019 41:59 📞Nam thính giả: Thưa Sư phụ, xin Ngài giải thích giúp con vài giấc mơ. Con mơ thấy có một người đặt một con chip rất nhỏ trên lớp da chỗ vị trí trái tim của con, ông ta nói rằng đi đâu ông ấy cũng biết. Sau đó, giấc mơ chuyển cảnh con đi đến một sòng bạc. Người ở sòng bạc nói rằng con không thể đặt cược vì trên người con có mang thiết bị điện tử. Điều này có ý nghĩa gì ạ? 🪷Sư phụ trả lời: Thần Hộ Pháp đang quản lý con, gần đây ý niệm của con không được thanh tịnh. Còn đến “sòng bạc” nữa, con không được đánh bạc, con trước đây đã từng đánh bạc rồi, con nghe không hiểu sao? 📞Nam thính giả: Ồ, chuyện này cũng bị quản chặt như vậy sao? 🪷Sư phụ: Tất nhiên rồi! Thầy nói cho con biết, nếu con cứ như vậy thì cả đời này sẽ không tu hành thành công được đâu. 📞Nam thính giả: Con đã hiểu. Trước giờ con nghĩ nghiệp chướng này rất nhỏ. 🪷Sư phụ: Con nghĩ nghiệp chướng của con nhỏ sao? Nghiệp chướng của con to bằng cái mũi của con vậy. 📞 Nam thính giả: Con đã hiểu, con sẽ sửa đổi. Wenda20181019   41:59 梦见自己去赌场，因身上有芯片不能赌 男听众：台长，帮我解几个梦。我梦见一个人在我的心脏位置表皮放了一张很小的芯片，他说我去哪里他都知道的。梦境一转，我去了赌场。赌场的人讲，我不能下注，我身上带有电子的东西。这个是什么意思呢？ 台长答：护法神管住你了，你最近的意念不干净。还“赌场”了，你不要赌啊，你这个人过去赌过的，听不懂啊？（哦，这种也是管得很严啊？）那当然了！你这个人我告诉你，你这样一辈子都修不出来的（明白了。我以为这种业障很小）你觉得你业障很小啊？你的业障跟你的鼻子一样大呢（明白了，我会改）

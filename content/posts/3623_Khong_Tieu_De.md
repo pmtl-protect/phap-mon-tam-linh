@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.852Z
+draft: false
+url: "/2024/10/goi-ten-bo-tat-phai-chinh-quy.html"
+---
+
+Tiêu đề bài viết: Gọi tên Bồ Tát phải chính quy Nội dung chi tiết: Wenda20200920 49:43 Thính giả nữ: Các đồng tu chia sẻ hoặc đọc “Bạch Thoại Phật Pháp” trong nhóm, sau khi kết thúc sẽ thêm một câu “Nếu trong quá trình chia sẻ hoặc niệm tụng của con có bất cứ chỗ nào không như lý không như pháp, xin Mẹ Bồ Tát từ bi tha thứ”. Trong thư giải đáp khai thị Sư phụ nói: Đừng nói “Bồ Tát ma ma (mẹ Bồ Tát)”, nói “Quán Thế Âm Bồ Tát” là được. Xin hỏi Sư phụ, khi chúng ta thỉnh cầu chính quy, có phải đều nên gọi là “Quán Thế Âm Bồ Tát”, như vậy tương đối tôn trọng phải không ạ? Đài trưởng: Đúng. Lấy một ví dụ đơn giản, “Sư phụ” “Một ngày làm thầy, cả đời làm cha”, sao con không gọi điện thoại gọi ta là “Cha”? Con nói xem gọi “Sư phụ” tôn trọng hay gọi “cha” tôn trọng? Thính giả nữ: Sư phụ tôn trọng ạ. Đài trưởng: Được rồi, “Cha” có hàng ngàn hàng vạn, Sư phụ không có mấy người. Thính giả nữ: Bình thường có thể xưng hô Quán Thế Âm Bồ Tát là “Mẹ Bồ Tát” được không ạ? Đài trưởng: Chính là những người ở nông thôn đó, hay có có loại xưng hô này… Con đương nhiên nên xưng hô chính hiệu rồi, chính là Phật hiệu “Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát”, đó là chính hiệu.

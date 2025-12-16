@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.671Z
+draft: false
+url: "/2025/02/phat-phap-la-mot-tri-hue-toi-thuong.html"
+---
+
+Tiêu đề bài viết: Phật Pháp là một trí huệ tối thượng, Nội dung chi tiết: Phật Pháp là một trí huệ tối thượng, là phương thuốc tốt nhất để giải quyết mọi phiền não của chúng ta ở nhân gian; Phật Pháp có thể giúp chúng ta đoạn trừ phiền não, phá tan vô minh, trở thành ngọn hải đăng soi sáng cho cuộc đời. Hôm nay, chúng ta đã lên con thuyền pháp của Quan Thế Âm Bồ Tát, cần học tập tinh thần Đại Từ Đại Bi, Phổ Độ Chúng Sinh của Quan Thế Âm Bồ Tát, Truyền bá Phật Pháp đến mọi ngóc ngách, để mỗi người đều hiểu được yêu nước thương dân, tôn trọng pháp luật, để mỗi người đều có thể niệm kinh, học Phật, tu tâm, ăn chay, tâm không vướng mắc, tự thanh lọc tâm trí, đó chính là chân lý của Phật Giáo Đại Thừa. 【Khai ngộ giác ngộ minh tâm ngộ, bản tính kiến tính là Phật tính—— Lư Đài Trưởng ngày 18 tháng 5 năm 2018 tại Singapore “Hội nghị gặp mặt Phật hữu Thế Giới” Trích khai thị ( THƯỢNG)】 佛法，那是一种无上的智慧，它是解决我们人间所有烦恼的良方；佛法能够让我们断烦恼、破无明，成为人生奋发向上的航标。今天，我们乘上了观世音菩萨的法船，要学习观世音菩萨大慈大悲普度众生的精神，将佛法传遍每一个角落，让每一个人懂得爱国爱民、遵纪守法，让每一个人都能念经、学佛、修心、吃素，心无罣碍，自净其意，这就是大乘佛教的真谛。 【开悟觉悟明心悟 本性见性是佛性——卢台长2018年5月18日新加坡“世界佛友见面会”开示摘要（上）】 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

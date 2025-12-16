@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.934Z
+draft: false
+url: "/2025/04/phat-nguyen-khong-sat-sinh-trong-cong.html"
+---
+
+Tiêu đề bài viết: Phát nguyện không sát sinh, trong công việc vô tình giẫm chết kiến thì phải làm sao? Nội dung chi tiết: Nữ thính giả : Có một đồng tu phát nguyện không sát sinh, nhưng trong đời sống hàng ngày anh ấy làm việc ở nông thôn, sẽ vô tình làm chết kiến, vì vậy anh ấy rất lo lắng, như vậy có coi là thất nguyện không sát sinh không ạ? ☀️🤨Đài Trưởng đáp: Không sao cả, một con kiến vô tình bị anh ta giẫm chết, điều này không thể làm tổn hại nguyện lực của anh ta, không sao cả. Cố gắng tránh né đừng giẫm phải. Vì Anh ta không cố ý giết chúng. 🌻 (Dạ, không cố ý ạ, anh ấy cũng không muốn sát sinh) ☀️ Khái niệm “sát sinh” chính là con cố ý gi.ết ; vô ý tuy cũng có tội, nhưng điều này nhẹ hơn nhiều. 🌻 (Vậy anh ấy mỗi ngày tăng cường niệm Vãng Sanh Chú là được đúng không ạ?) ☀️ Ta nghĩ là nên niệm tăng Vãng Sanh chú. 🌻 (Mỗi ngày Vãng Sanh chú cần bao nhiêu biến ạ?) ☀️ Mỗi ngày ít nhất 59 biến 🌻 (Dạ vâng , cảm ơn Sư phụ) ✨✨✨ Wenda20200119 23:31 ☀️ 许愿不杀生，工作中无意踩死蚂蚁该怎么办 🌻 女听众：有一个同修许愿不杀生，但现实生活中他在乡下工作，会不小心弄死蚂蚁，所以他很顾虑，是不是要撤销不杀生的愿力？ ☀️ 台长答：不行的，一个蚂蚁无形地被他踩死，这个不能损坏他的愿力，不可以的。尽量不要，避免。他不是有意去杀的（对，不是有意的，他也不想杀生）“杀生”的概念就是你有意去杀；无意虽然也有罪，但是这个轻很多了（那他是不是每天加念往生咒都就可以？）我觉得应该是，加念往生咒（每天往生咒需要多少遍呢？）每天至少59遍（好的，感恩师父） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

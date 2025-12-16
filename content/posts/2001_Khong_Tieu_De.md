@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.569Z
+draft: false
+url: "/2024/11/tai-sao-sat-sinh-nghiep-chuong-lai-ac.html"
+---
+
+Tiêu đề bài viết: Tại sao sát sinh nghiệp chướng lại đặc biệt nặng nề như vậy. Nội dung chi tiết: wenda20141010 44:40 Khán giả nam: Nghiệp chướng sát sinh vô cùng nặng . phải chăng bởi vì người sát sinh sẽ chịu tổn hại thân thể và chịu nguyên nhân của nghiệp báo này? Đài trưởng trả lời: Không phải như vậy.Nghiệp báo sát sinh rất nặng. trước hết là khi một người có ý niệm sát sinh thì ma quỷ sẽ bị ám trên thân người này rồi. Cho nên nghiệp chướng của anh ấy đặc biệt nặng nề. Và Khi một người muốn giết một con vật, trước hết anh ta phải có ý niệm giết nó và ý niệm muốn giết. khi đó anh ta mới dùng hành động để giết con vật đó, cho nên nghiệp báo của anh ta sẽ đặc biệt rất nặng nề. Ý niệm liền khởi , Trời sẽ biết , và nhận quả báo trước, sau đó hành động, hành vi của bạn liền nhận quả báo . Vậy thì báo ứng của bạn sẽ rất lớn.

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.580Z
+draft: false
+url: "/2025/12/yeu-tinh-ong-vat-la-do-au-ma-co.html"
+---
+
+Tiêu đề bài viết: Yêu tinh động vật là do đâu mà có? Nội dung chi tiết: Wenda20120325A 04:42 Nam thính chúng: Những loại yêu tinh động vật như hồ ly tinh, mèo tinh… là tu mà thành ạ? Con người dễ tu hơn, còn nếu đầu thai vào súc sinh thì trí tuệ thấp, không biết tu hành. Vậy những loại tinh đó là tu thành bằng cách nào ạ? “Lư Đài Trưởng” đáp: Con hiểu sai rồi. “Tinh” là do tu sai đường mà thành, chứ không phải động vật tự tu thành. Ví dụ: Một người cố gắng tu luyện, nhưng tu lệch, tu sai pháp. Đến đời sau có thể biến thành hồ ly tinh, cẩu tinh, miêu tinh, lang tinh… Chính là từ con người tu sai mà thành “tinh”, chứ không phải động vật tu thành. Động vật không thể tu thành tinh, trí tuệ không đủ cấp độ. Ví dụ cho dễ hiểu: Con người nếu tu đúng thì có thể thành Bồ Tát. Nhưng có người giúp người coi tướng, trị bệnh, làm vài điều tốt, miệng thì nói tu hành niệm kinh, nhưng không sửa tâm, không tu chánh đạo, suốt ngày làm những chuyện tà khí — vậy sau này đi đâu? Xin lỗi, chính là biến thành yêu tinh động vật. Ngoài ra, có người rất cố chấp, lên núi, vào hang tu luyện lệch lạc, hoặc hấp thu tinh khí của cây cỏ, hút tinh hoa đất trời theo cách tà đạo — những thứ này đều là tu sai. Kết quả cuối cùng sẽ trở thành động vật tinh. 动物精是怎么来的 Wenda20120325A 04:42 男听众: 动物精像狐狸精、猫精，是怎么修成的？人道好修，投畜生以后，畜生智商比较低不会去修行，那是怎么修成的呢？ “卢台长”答: 你误解了，“精”是怎么修成的呢？比方说人在拼命地修炼，炼到后来有偏差，下辈子就变成个狐狸精、狗精、猫精、狼精了，是由人修偏之后才成为精的，而不是动物直接能修成精的。动物不可能修成精的，智商不够级别。举个简单例子，我们做人好好的，修成变成菩萨了。有些人也帮人看看相、帮人医医病，或者做点好事，不断在修炼念经，但又没有修正，修偏了，整天做GUI事，那么到哪里去呢？对不起，那就变成动物的精了。还有些人比较执着，跑到山上山洞里一坐，或者在山上偷那种树的精气，吸天地之精华，这些东西一弄是偏的不正的，接下来就成为动物精了。

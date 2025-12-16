@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.001Z
+draft: false
+url: "/2025/07/vong-linh-luon-o-tren-nguoi-va-vong.html"
+---
+
+Tiêu đề bài viết: Vong linh luôn ở trên người và vong linh thỉnh thoảng đến có gì khác biệt? Nội dung chi tiết: Shuohua20160401 26:14 Người nghe nữ hỏi: Vong linh nhập thân có hai trạng thái: một là luôn ở trên người này, một là không nhập thân nhưng thường xuyên đi theo. Xin hỏi sư phụ, hai trường hợp này khác nhau như thế nào ạ? “Lư Đài Trưởng” đáp: Một vong linh nếu có oán kết với người đó không quá sâu thì chỉ đi theo. Nếu oán kết quá sâu thì sẽ nhập thẳng vào thân thể. ( Vậy thưa Thầy, những vong linh Thầy nhìn thấy qua Đồ đằng là đã nhập thân rồi đúng không ạ?) Đúng vậy, rất nhiều là đã nhập thân rồi. Còn có lúc thì chưa nhập, chỉ thường xuyên đến. (Vậy những vong linh nhập thân có thể dẫn đến...) Trầm cảm, tự kỷ — tức là đã ở trên người cả ngày rồi. Trường hợp như vậy thì cần ít nhất 800 ngôi nhà nhỏ Còn một loại là thỉnh thoảng mới đến, ví dụ cứ đến tối thì phát điên, tối là không vui — vậy là vong linh đến cố định vào buổi tối. Có khi đến cố định ban ngày, cũng có khi thỉnh thoảng mới đến, loại này nhẹ hơn. ( Vậy đa số những vong linh trên người chúng ta đều thuộc loại nhẹ như vậy đúng không ạ?) Đúng, loại nặng là đã phát bệnh rồi. 灵性一直在身上与偶然来有什么区别 Shuohua20160401 26:14 女听众：灵性上身有两种状态，一种是附在这个人身上；另外一种是不上他身，但是经常会跟着他。请问师父，这两种情况有什么区别？ “卢台长”答：一个灵性跟他冤结不是太深，如果太深了直接在他身上了（那您图腾里看到的灵性就是已经上他身了，是吧？）对，很多上他身的。有的时候没上身，经常来（是不是上他身的会导致他……）忧郁症、自闭症了，已经一天到晚在身上了，这种就要800张小房子以上了；还有一种偶然地来，一到晚上就发神经病了，一到晚上他就不开心了，那么就是晚上固定来的，有的白天固定来的，有时候偶然来的这种就比较轻了（我们大多数人身上的灵性都是属于这种轻的，是吧？）对，重的就是已经生病了

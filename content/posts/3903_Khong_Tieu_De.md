@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.573Z
+draft: false
+url: "/2025/01/nghiep-chuong-la-do-tich-tu-lai-ma.html"
+---
+
+Tiêu đề bài viết: Nghiệp chướng là do tích tụ lại mà thành và tỷ lệ nghiệp bao nhiêu được coi là nghiệp chướng nặng. Nội dung chi tiết: Khán giả nam: Thưa Thầy, Thầy giảng về nghiệp nặng, vậy khái niệm nghiệp nặng là gì, được đo bằng tỷ lệ của nghiệp chướng hay có khái niệm nào khác? 📞Đài trưởng trả lời: khi nghiệp nặng, hôm nay con làm việc xấu thì không nghiêm trọng; nếu ngày mai làm việc xấu thì không nghiêm trọng; 3 ngày thì không nghiêm trọng; một tháng thì không cho là nghiêm trọng, nửa năm thì hơi nặng, sau một năm thì nghiêm trọng vô cùng. Nó diễn ra như thế đó, nó được tích lũy, nghiệp chướng đều do tích lũy mà ra. (Thông qua thầy xem Đồ Đằng, thì tỷ lệ nghiệp lực là bao nhiêu nghĩa là nghiệp nặng?) Người có nghiệp nặng thì có tâm sân hận nặng, người có nghiệp nặng thì tâm tham nặng, và người có nghiệp nặng thì làm những điều dại dột - suốt ngày xúc phạm người khác và suốt ngày làm điều ác với người khác. Những người như vậy có tâm ngu si nặng và họ có nghiệp chướng nặng nề. (Vậy thầy nhìn vào tỷ lệ nghiệp chướng của một người. 40% hay 50% được coi là nghiệp chướng nặng?) Khi nhìn vào tỷ lệ nghiệp chướng của một người, đừng nói là 50%, chỉ cần vượt quá 30% thì đã là rất nặng rồi, cực kỳ nặng rồi. Wenda20200802 13:34 #业障是累积的，#多少比例以上为业障重 ⭕问：师父，您讲到业障重，这个业障重到底是什么样的概念，是从业障比例去衡量还是怎么的概念？ 🔴答：业障重的话，你今天做一件坏事，不重；明天做一件坏事，不重；三天，不重；一个月，不算太重；半年，有点重；等到一年了，重得不得了。就这么来的，累积的，业障都是累积的（通过您看图腾，业障比例多少以上为业障重？）业障重的人瞋恨心重；业障重的人贪心重；业障重的人做出来的傻事——整天去得罪别人，整天去跟别人作恶，这种人愚痴心重，这种人都是业障重的（那您看一个人的业障比例他超过多少，40%还是50%就算业障重？）看一个人的比例的话，你不要说50%，只要超过30%的话已经很重了，已经重得不得了。

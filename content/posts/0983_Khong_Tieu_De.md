@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.955Z
+draft: false
+url: "/2025/05/vi-sao-nghe-bach-thoai-phat-phap-lai_9.html"
+---
+
+Tiêu đề bài viết: Vì sao nghe Bạch Thoại Phật Pháp lại khóc? Nội dung chi tiết: 004Wenda 20120318A 48:07 Nữ thính giả hỏi: Mỗi lần con nghe Bạch Thoại Phật Pháp, con đều mơ thấy cảnh trong giấc mộng. Và mỗi lần nghe con đều khóc, con cũng không biết tại sao? Sư Phụ trả lời: Điều này cho thấy con có duyên rất sâu với Phật Bồ Tát, cô gái ngốc à. Con có biết không, rất nhiều người khi nhắc đến ta cũng khóc, giống như khi ta nhắc đến Quan Thế Âm Bồ Tát cũng sẽ khóc vậy. Vì Ngài chính là ngọn đèn soi đường cho chúng ta, Quan Thế Âm Bồ Tát là người mẹ từ bi của chúng ta. Ngài luôn che chở, giúp đỡ, cứu vớt chúng ta ra khỏi biển khổ. Con nói xem, ai mà không cảm động? Ai mà không rơi nước mắt? Nữ thính giả: Con vô cùng cảm ơn Ngài, Sư Phụ! Sư Phụ : Tu tâm thật tốt chính là sự báo đáp tốt nhất dành cho Sư Phụ. Ta không cần gì từ các con, ta chỉ mong các con niệm kinh cho tốt, có thể thoát khỏi khổ nạn, như vậy ta vui mừng nhất rồi. Nếu các con đau khổ, ta còn đau khổ hơn các con. Vì vậy, các con tốt lên, ta nghe xong cũng sẽ rất vui! Wenda20120318A 48：07 为什么听白话fofa 会哭 女听众：听白话fo法，我就会做梦。每次听白话fo法我都会哭，不知道为什么？ 台 长答：说明你和佛菩-萨的缘分特别深，傻姑娘。你知道多少人讲到台 长都会哭的，像台 长讲到观世音菩-萨就会哭一样道理。因为这是我们的指路明灯，观世音菩-萨是我们的母亲，她那么照看我们、帮助我们、把我们救脱苦海，你说谁不感动？谁不哭？（感恩您，台 长！）好好修心就是对台 长最好的回报，台 长什么都不要你们的，我就要你们好好念 经，能够摆脱苦难，台 长最开心了。你们难过，台 长比你们还难过，所以你们要好，台 长听了就开心。

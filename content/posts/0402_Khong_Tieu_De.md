@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.490Z
+draft: false
+url: "/2025/06/tot-nhat-la-nen-lam-phap-bo-thi-nhieu.html"
+---
+
+Tiêu đề bài viết: TỐT NHẤT LÀ NÊN LÀM “PHÁP BỐ THÍ” NHIỀU HƠN Nội dung chi tiết: Trích BTPP (12 quyển) - Quyển 4 - Tập 2 Bồ Tát dạy: Trong tất cả các cách cúng dường, pháp cúng dường là tối thượng. Việc lấy một ít tiền ra gọi là "tài cúng dường". Trong tài bố thí, pháp bố thí và vô úy bố thí, pháp bố thí là tốt nhất. "Pháp bố thí" có nghĩa là khuyên người khác tu tâm niệm kinh. Nếu người đó không tin, quý vị hãy độ họ tin Phật, đó chính là pháp thí. Tốt nhất là nên làm pháp bố thí nhiều hơn. Tài thí, pháp thí, vô úy thí ba loại cùng lúc, công lực vô cùng, công đức vô lượng. Sư phụ nói cho quý vị nghe, độ người có công đức thì công đức lớn hơn độ người không có công đức. Ví dụ, bác sĩ là người có công đức, nếu quý vị đi độ bác sĩ thì công đức càng lớn; nếu quý vị đi độ một người đã tu Phật, tu tâm rồi, thì công đức càng lớn; nếu một người đã thờ Phật nhưng không biết cách niệm kinh, độ những người như vậy công đức cũng rất lớn. Chúng ta làm người đừng đợi đến khi già yếu mới hối hận. Mỗi người chúng ta sống là một hơi thở, hãy tranh thủ khi còn chút sinh mệnh hữu hạn này, cứu giúp nhiều người hơn, làm nhiều công đức hơn. ————————— Trong quá trình dịch và chia sẻ Pháp, con có gì sai sót, không đúng lý, không đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, từ bi tha thứ cho con. ————————— 白话佛法 >1-12册书籍 >第四册 2．用般若智慧在人间寻根 菩萨说：一切供养中，法供养为最。拿点钱出来，叫“财供养”。在财布施、法布施和无畏布施中，法布施是最好的。“法布施”就是去劝人家修心念经。如果这个人不相信的话，你去度他信佛，这就是法施。最好多做法布施。财施、法施、无畏施三施齐发，功力无比，功德无量。师父讲给你们听，度有功德的人比度无功德的人功德更大。比如说医生是有功德的人，如果你们去度医生功德更大；如果你们去度一个已经修佛修心的人，那功德更大；如果一个人已经拜佛了，但是不知道怎样念经，度这种人功德也很大。我们做人不要等到自己一副老骨头的时候才后悔。我们每个人活着就是一口气，要趁还有一点有限的生命时，多救人，多做功德。

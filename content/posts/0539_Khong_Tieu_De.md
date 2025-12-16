@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.903Z
+draft: false
+url: "/2025/02/loi-va-hai-khi-lam-moi-gioi-thieu-ban.html"
+---
+
+Tiêu đề bài viết: Lợi và hại khi làm mối giới thiệu bạn đời cho người khác Nội dung chi tiết: Wenda20130712 38:10 Nữ thính giả: Chúng con có thể giúp người khác giới thiệu bạn trai, bạn gái được không ạ? Đài Trưởng đáp: Giúp người khác giới thiệu bạn đời thực ra vừa tính là việc tốt mà cũng không hẳn là việc tốt. Tại sao vậy? Bởi vì con hãy xem mà coi, hai người được giới thiệu thành công sau này thường sẽ không tốt với người giới thiệu, điều này ai cũng biết. Cuối cùng, người giới thiệu thường sẽ bị trách móc. Thực chất, đây là sự trưởng thành của một mối nhân duyên, mà khi con tham gia vào để tác động đến nhân duyên đó, nói một cách hay thì là “kéo sợi tơ hồng”; nhưng nếu nói không hay thì chính là con đang động vào nhân quả của người ta. (Nữ thính giả: Vậy nếu bạn bè nhờ giới thiệu đối tượng, chúng con nên từ chối đúng không ạ?) Con có thể giúp giới thiệu, nhưng không nên can thiệp quá sâu, đừng tham gia vào bất cứ chuyện gì khác. (Nữ thính giả: Tức là chỉ cần giới thiệu, cho họ trao đổi số điện thoại rồi không quản nữa?) Đúng vậy, không quản gì thêm. Bởi vì rất nhiều người sau khi giới thiệu xong lại cứ tiếp tục can thiệp, mà cuối cùng còn đến mức mất luôn cả tình bạn. (Nữ thính giả: con hiểu rồi ạ) Wenda20130712 38:10 给别人介绍对象的利弊 女听众：我们能不能给别人介绍对象？就是帮别人介绍男女朋友。�台长答：帮人家介绍朋友实际上又算好事又不算好事，为什么？你去看好了，被介绍成功的两个人对介绍人一定不好的，这个你们大家都知道，介绍到后来都是被人家骂的。这个实际上就是一种缘分的成熟，而你去牵动这个缘分，讲的好听一点叫牵红线；讲得不好听的，你是动人家因果（如果有朋友托介绍对象，我们就推掉对吧？）你可以帮助人家介绍，但是不要参与太多，什么都不要参与（就是介绍两个人交换一下电话号码，然后就不管了）什么都不要管了。很多人介绍完之后不停地管啊管啊，管到后来连朋友都没得做了（明白）

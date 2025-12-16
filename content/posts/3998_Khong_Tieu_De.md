@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.791Z
+draft: false
+url: "/2025/04/vi-sao-o-coi-tu-la-va-ia-phu-rat-kho-tu.html"
+---
+
+Tiêu đề bài viết: Vì sao ở cõi A-tu-la và địa phủ rất khó tu lên được? Nội dung chi tiết: Wenda20160410 29:40 Nam thính giả: Thưa Lư Đài Trưởng, mỗi lần nghe Ngài giảng, con đều cảm thấy hoa sen thật tuyệt vời! Xin Ngài mắng con một chút xem con tu chưa tốt ở chỗ nào, dạo gần đây con cảm thấy hình như mình tu không được tốt lắm. Lư Đài Trưởng đáp: Tu cũng khá đấy, con có pháp hỷ sung mãn là rất tốt rồi. (Phải nghiêm một chút, nếu không con sợ tu không lên được. Mắng mắng một chút thì còn tốt hơn.) Hôm nay mắng không nổi nữa rồi. (Thính giả: Nếu sau khi vãng sanh, thì tu ở đạo nào dễ lên hơn?) Tất nhiên là thiên đạo rồi, trong lục đạo thì thiên đạo là cao nhất. Cõi A-tu-la thì khó tu hơn, tuy A-tu-la cũng có cơ hội tu lên thiên đạo, nhưng tốt nhất là phải thoát ly luôn... Cõi trời Dục giới vẫn còn thấp, tốt nhất là siêu thoát lên Cõi Sắc giới , hoặc Vô sắc giới. (Thính giả: Vì sao ở cõi A-tu-la rất khó tu ra khỏi lục đạo?) Vì người ở cõi A-tu-la tâm sân hận rất mạnh, họ oán hận rất nhiều việc. (Thính giả: Nếu ở địa phủ thì cũng khó sao? Có phải ở đó cũng nhiều tâm sân hận?) Đúng vậy. (Thính giả: Nếu buông bỏ được thì vẫn có thể tu lên sao?) Đến địa phủ rồi thì vẫn còn có cơ hội lên thiên đạo, nhưng rất hiếm, cơ bản là phần lớn đều phải đầu thai làm người lại. \*\*\* 为何在阿修罗道和地府很难修上去 Wenda20160410 29:40 男听众：台长，每次听您讲，都感到那个莲花这么好！台长，再骂我一下哪里修得不好，近来感觉好像修得不好。 “卢台长”答：修得蛮好，你法喜充满就蛮好（要严一点，不然我怕修不上去。骂一骂还好一点）今天骂不动了（如果往生，要修到哪一个道比较容易修上去呢？）当然天道，六道里面最高是天道。阿修罗道比较难修，阿修罗道有个机会，修天道可以，但是到了天道最好要脱离……欲界天还是太差一点，最好能够超脱色界天、无色界天（阿修罗道怎么很难修出六道呢？）阿修罗道人恨心很强，对什么事情很恨（如果是在地府也是很难？那边也是瞋心很强吗？）对（如果放得下也一样可以修上去吗？）到了地府上天道机会还是有，但是很少了，基本上都是投人的。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.594Z
+draft: false
+url: "/2025/03/noi-lap-la-do-kiep-truoc-noi-xau-nguoi.html"
+---
+
+Tiêu đề bài viết: Nói lắp là do kiếp trước nói xấu người khác quá nhiều, nên niệm Tâm Kinh để khai mở trí tuệ Nội dung chi tiết: Wenda 20130503  58:18 Nói lắp là do kiếp trước nói xấu người khác quá nhiều, nên niệm Tâm Kinh để khai mở trí tuệ 👩🏻 Thính giả nữ: Đồng tu sinh năm 1991, từ nhỏ đã bị nói lắp, xin Sư phụ khai thị giúp, bị nói lắp thì nên niệm kinh gì ạ? 🪷Sư phụ Lư: Kiếp trước nói xấu người khác quá nhiều. Người ta thường nói học nói vào ngày mưa dễ bị nói lắp, thực ra đây cũng là vấn đề nhân duyên. Tại sao có người học nói thì không bị, còn có người lại bị? Điều này chứng tỏ duyên phận của họ khác nhau. Những người mắc chứng bệnh này trước tiên bảo họ niệm Tâm Kinh để khai mở trí tuệ sau đó từ từ luyện tập. Giải quyết vấn đề này cần có một phương pháp, bảo họ kiên trì niệm kinh, cắn răng mà niệm. Mỗi ngày niệm Tâm Kinh và Chú Đại Bi, chắc chắn sẽ không bị nói lắp nữa. 👩🏻(Những người như vậy có bắt buộc phải ăn chay trường không ạ?) 🪷Thầy thấy ít nhất họ không nên ăn hải sản còn sống, chắc chắn phải như vậy. wenda20130503  58:18 口吃是上辈子说人坏话太多，多念心经开智慧 女听众：同修是91年的，从小就口吃，请师父开示下口吃病要怎么念经？ 台长答：上辈子说人坏话太多。人家说下雨天学很容易得口吃，实际上这也是一个因缘的问题，为什么有些人学的就没有口吃，有些人就会？这个就说明他的缘分。有这些毛病的人，首先叫他念心经开智慧，然后慢慢地练。解决这个问题应该有一套方法的，叫他咬咬牙坚持念，然后每天再念心经、大悲咒，一定不会口吃。念经他就不会口吃（这种人是不是必须要吃全素？）我觉得这个人至少不能吃活的海鲜，这是肯定的。

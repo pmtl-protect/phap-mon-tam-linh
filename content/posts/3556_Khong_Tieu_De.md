@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.699Z
+draft: false
+url: "/2025/03/ong-tu-chia-se.html"
+---
+
+Tiêu đề bài viết: ĐỒNG TU CHIA SẺ Nội dung chi tiết: Đệ xin chia sẻ việc đệ niệm LPĐHV và đốt kèm NNN vào ngày lễ lớn Trong Quá trình đệ tử con chia sẻ có điều gì không đúng lí , đúng pháp xin Quán Thế Âm Bồ Tát từ bi tha thứ,xin Long Thiên Hộ Pháp tha thứ🙏🙏🙏 Đệ bị ốm (combo ho nhiều + trào ngược dạ dày) uống thuốc các kiểu suốt gần 1 tháng không khỏi rất khó chịu,và ảnh hưởng rất nhiều sức khỏe và việc niệm kinh hàng ngày của đệ. Và nhân ngày 19-2 âm lịch Mừng ngày Quán Thế Âm Bồ Tát Đản sanh ,đệ đã phát phát nguyện niệm 49b LPĐSHV và đốt kèm 10 tấm NNN tập trung sám hối và xin tiêu trừ nghiệp chướng trên bộ phận dạ dày + cổ họng. Thật vi diệu ngay tối hôm đó và hôm sau ,hiện tượng trào ngược và ho của đệ gần như khỏi 80-90% .(2 hôm đó ko có uống thuốc nữa ,vì uống mãi ko khỏi) Đệ xin phép chia sẻ ạ 🙏🙏🙏 Cảm tạ Quán Thế Âm Bồ Tát đã luôn từ bi với con🙏🙏🙏 Cảm tạ Long thiên hộ pháp từ bi🙏🙏🙏

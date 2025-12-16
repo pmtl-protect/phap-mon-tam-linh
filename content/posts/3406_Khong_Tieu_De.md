@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.246Z
+draft: false
+url: "/2025/04/nhin-thay-phat-quang-mau-hong-khi-phong.html"
+---
+
+Tiêu đề bài viết: Nhìn thấy Phật quang màu hồng khi phóng sinh Nội dung chi tiết: wenda20140202A 19:23 Nhìn thấy Phật quang màu hồng khi phóng sinh Thính giả nữ hỏi: Nếu trong lúc phóng sinh, bên cạnh mặt trời xuất hiện một luồng ánh sáng màu hồng rất lớn chiếu xuống đầu chúng con, thì đó là ánh sáng gì vậy ạ? Đài Trưởng đáp: Đó chính là Phật quang đấy. (Trước đây con từng thấy Phật quang là màu vàng kim, còn lần này là màu hồng đậm.) Trên trời có rất nhiều ánh sáng, là quầng sáng bảy màu, bên trong những luồng sáng đó đều là Bồ Tát. (Dạ, con hiểu rồi.) Trong quầng sáng bảy màu có màu đen không? (Không thấy màu đen ạ, chỉ thấy màu vàng kim và màu hồng.) Có màu xám không? (Không có ạ.) Được rồi. —----------------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. —----------------------------------- wenda20140202A 19:23 放生时看到粉色的佛光 女听众 ：如果在放生的过程中，在太阳边上有一个非常大的粉色的光照到我们的头上，那是什么光？ 台长答 ：那就是佛光啊（我之前有看过佛光是金色的，这个光是很深的粉色）天上光很多，七色光环，里边的光都是菩萨（好，明白）七色光环里边有黑色吗？（没看到黑色，看到金色和粉色）灰色有吗？（没有）好了。

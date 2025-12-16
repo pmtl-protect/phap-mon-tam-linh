@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.726Z
+draft: false
+url: "/2025/05/thiet-ke-san-pham-hai-san-ma-phong-ai.html"
+---
+
+Tiêu đề bài viết: Thiết kế sản phẩm hải sản mà phóng đại sự thật thì có nghiệp chướng Nội dung chi tiết: Wenda20190324 45:46 Thiết kế sản phẩm hải sản mà phóng đại sự thật thì có nghiệp chướng Thính giả nữ: Một đồng tu làm công việc thiết kế, do yêu cầu công việc phải thiết kế các sản phẩm hải sản và các món mặn, dẫn đến việc làm sản phẩm của mình có phần phóng đại. Đồng tu muốn hỏi, công việc như vậy sẽ mang lại cho anh ấy bao nhiêu nghiệp chướng ạ? Đài Trưởng đáp: Con nói gì cũng không rõ, “phương pháp phóng đại” là gì thầy không biết. Nó có hại người khác không? Có làm tổn thương ai không? Có khoác lác quá đáng không? Có lừa đảo không? Tất cả những điều này đều liên quan đến chuyện này (ví dụ làm sản phẩm hải sản đẹp quá để thu hút người khác mua). Tất nhiên là có, làm những việc như vậy chắc chắn sẽ có nghiệp chướng. Wenda20190324   45:46 设计海鲜产品夸大事实，有业障 女听众：同修做设计工作，由于工作需要安排设计海鲜等荤食产品，导致把本身的产品做得有一些夸张。同修想问，这样的工作会给他带来多少业障？ 台长答：你什么都不讲， “ 夸张的手法 ” ，我不知道什么叫夸张手法。他害不害人？伤不伤别人？吹牛吹得厉害不厉害？有没有骗局？这都是属于这个东西的（比方把海鲜产品做得很好，吸引别人来购买）那当然有，做这种事情肯定有业障。

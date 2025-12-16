@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.867Z
+draft: false
+url: "/2025/06/u-tuyen-giap-benh-do-linh-tinh-vong.html"
+---
+
+Tiêu đề bài viết: U tuyến giáp: Bệnh do linh tính ( vong linh), tụng Ngôi nhà nhỏ Nội dung chi tiết: wenda20111202\_3245 Nữ thính giả: Lư Đài Trưởng, em gái con lần này phải làm phẫu thuật. Thầy xem giúp là do bệnh linh tính hay là bệnh thật thể vậy ạ? Cô ấy tuổi Tý, sinh năm 1972. Lư Đài Trưởng: Hôm nay thầy không xem \[trường hợp cụ thể\]. Con cứ nói cho thầy nghe là bệnh gì? Nữ thính giả: Là u tuyến giáp ở cổ ạ. Lư Đài Trưởng: Phẫu thuật cắt bỏ là không sao rồi. Bệnh này là bệnh linh tính. Nữ thính giả: Bệnh linh tính ạ? Vậy con nên tụng bao nhiêu tờ Ngôi nhà nhỏ cho cô ấy? Lư Đài Trưởng: Con nên tụng ít nhất 48 tờ Ngôi nhà nhỏ cho cô ấy. Nữ thính giả: 48 tờ ạ? Lư Đài Trưởng:Ừ, không sao đâu. Thầy đã cảm ứng rồi, không chết được đâu.. 甲状腺瘤：靈 性病，念小fang子 wenda20111202\_3245 女听众：臺 長，我妹妹这次要手术，你看看是靈 性病还是实病啊？72年的鼠。 臺長答：今天不看的，你告诉我什么病啊？（脖子上甲状腺瘤）开掉就没事了，她这个是靈 性病（靈 性病，那我给她念多少张呢？）你给她至少念48张小fang子（48张啊）诶，没事的，我现在给你感应过了，死不了。 🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

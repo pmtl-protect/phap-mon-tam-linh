@@ -1,0 +1,8 @@
+---
+title: "Không được phép vừa chấm Ngôi Nhà Nhỏ (NNN) vừa nói chuyện, khi chấm Ngôi Nhà Nhỏ (NNN) sẽ có Thần Hộ Pháp bên cạnh."
+date: 2025-12-15T22:19:51.791Z
+draft: false
+url: "/2025/12/khong-uoc-phep-vua-cham-ngoi-nha-nho.html"
+---
+
+Nam thính giả: Con xin hỏi Thầy, có một số đồng tu vừa chấm Ngôi Nhà Nhỏ (NNN) vừa nói chuyện, cách làm này có ảnh hưởng đến chất lượng của Ngôi Nhà Nhỏ (NNN) không? Đài trưởng đáp: có ảnh hướng, tuyệt đối không được làm như thế. Chấm Ngôi Nhà Nhỏ (NNN) chỉ tốn có chút thời gian, bạn còn phải nói chuyện sao?? Việc Ngôi Nhà Nhỏ (NNN) là 1 nghi thức vô cùng trang nghiêm ( dạ vâng, làm như thế có cho là bất kính với người cần kinh của chúng ta không?) đương nhiên là không tốt ( khi chúng ta chấm Ngôi Nhà Nhỏ (NNN) các vị Thần Hộ Pháp sẽ ở bên cạnh chứ ạ?) Khi bạn chấm Ngôi Nhà Nhỏ (NNN) đương nhiên là sẽ có Thần Hộ Pháp bên cạnh. Bạn đang làm gì bạn không rõ sao? Bạn đang làm việc tốt đấy. Thầy Lư diễn giải thêm: bạn thử nghĩ xem, chấm Ngôi Nhà Nhỏ (NNN) không trang nghiêm thì có tốt không? Cái mà mọi người đang chấm là gì? Đều là kinh văn của Bồ Tát, chuyện này tuyệt đối không đùa được, ở đâu có Kinh văn ở đó có Hộ Pháp bảo vệ, vì vậy khi quý vị chấm Ngôi Nhà Nhỏ (NNN) thì Hộ Pháp sẽ quan sát và bảo vệ quý vị . Quý vị không tôn trọng Kinh văn, chấm 1 cách tùy tiện thì Hộ Pháp sẽ xem đó là lỗi, nhiều lần lặp lại như vậy sẽ ghi tội ——Thầy Lư Quân Hoành khai thị trong tiết mục Vấn Đáp 01/04/2018A 03:15

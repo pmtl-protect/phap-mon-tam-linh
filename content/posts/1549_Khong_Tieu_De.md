@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.474Z
+draft: false
+url: "/2025/08/cac-buoc-cung-thinh-thiet-lap-ban-tho_88.html"
+---
+
+Tiêu đề bài viết: CÁC BƯỚC CUNG THỈNH THIẾT LẬP BÀN THỜ PHẬT Nội dung chi tiết: PHẦN SAU KHI DÂNG HƯƠNG VÀ CÚI LẠY TƯỢNG BỒ TÁT CHỈ CÓ PHẬT THÍCH CA ( CHƯA KHAI QUANG ) VÀ TƯỢNG QUÁN THẾ ÂM BỒ TÁT (ĐÃ KHAI QUANG ) 1.  Thắp hương và thắp hương lớn xong, quỳ trước đối diện Bồ Tát 2.  Cung thỉnh Nam Mô Thích Ca Mâu Ni Phật ( 3 lần ) Cung thỉnh Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát Ma Ha Tát ( 3 lần ) 3. Cung thỉnh Bồ Tát ( Đồng thanh tề tụng ) 4.  Cung thỉnh Bồ Tát tiến nhập vào bảo tượng và niệm kinh ( đồng thanh tề tụng ) : “Cầu xin Nam Mô Đại Từ Đại Bi Quán Thế Âm Bồ Tát thỉnh Nam Mô Thích Ca Mâu Ni Phật tiến nhập vào tất cả các bảo tượng mà con ( họ và tên chủ nhà, người nhà không cần đọc tên ) thờ cúng ” Niệm 108 biến thánh hiệu : “Nam Mô Thích Ca Mâu Ni Phật ” “Cung thỉnh Quán Thế Âm Bồ Tát Ma Ha Tát tiến nhập vào trong hết các bảo tượng mà con ( họ và tên ) thờ cúng ” Niệm 7 biến Chú Đại Bi, 7 biến Tâm kinh 5.  Quỳ xuống gập đầu, mỗi vị Bồ Tát lạy 3 lạy Cảm tạ Nam Mô Thích Ca Mâu Ni Phật ( niệm 3 lần, cúi lạy 3 lần ) Cảm tạ Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát Ma Ha Tát ( niệm 3 lần, cúi lạy 3 lần ) 6.  Có thể dựa theo tình trạng hiện tại của mình mà phát nguyện và cầu khấn 7.  Cúi đầu cảm tạ Nam Mô Đại Từ Đại Bi Thích Ca Mâu Ni Phật ( niệm 3 lần, cúi lạy 3 lạy ) Cảm tạ Nam Mô Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quán Thế Âm Bồ Tát Ma Ha Tát ( niệm 3 lần, cúi lạy 3 lạy )

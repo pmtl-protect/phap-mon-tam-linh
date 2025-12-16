@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.983Z
+draft: false
+url: "/2025/03/bo-tat-la-ai-y-vuong.html"
+---
+
+Tiêu đề bài viết: Bồ Tát là Đại Y Vương Nội dung chi tiết: Wenda20160610 01:08:20 Nam thính giả : Thưa Sư phụ, Ngài vừa nói rằng nhiều thầy thuốc Đông y là Bồ Tát từ thiên giới giáng xuống. Có một đồng tu thích tìm hiểu về chuyện trên trời, nên muốn hỏi: Liệu Dược Sư Phật có phải là danh y Biển Thước thời cổ đại không? Có phải sau khi Biển Thước qua đời, Đức Phật đã phong ông ấy làm Bồ Tát? Hay thực ra ông ấy vốn là một vị Bồ Tát trên thiên giới, xuống nhân gian cứu người rồi trở về? Sư phụ đáp: Rất nhiều danh y là Bồ Tát từ thiên giới giáng xuống. Con phải hiểu rằng Phật có đại thần thông, Bồ Tát cũng có đại thần thông. Khi một vị Bồ Tát phát nguyện: “Ta muốn xuống nhân gian cứu người,” thì tùy vào phương thức họ chọn để cứu độ mà họ có thể trở thành một vị lương y. Đó cũng là lý do vì sao nói rằng Bồ Tát là Đại Y Vương—các Ngài có thể tinh thông y thuật ngay lập tức. Các Ngài biết rõ loại thảo dược nào trị được bệnh gì, bởi vì trên thiên giới vốn đã có sẵn những tri thức này. Khi xuống trần, các Ngài chỉ cần mang theo và áp dụng vào thực tiễn. Ví dụ đơn giản: Khi con đi mua thiết bị âm thanh, nhân viên bán hàng hiểu rõ tất cả các thiết bị trong cửa hàng. Nếu con nhờ họ làm kỹ thuật viên âm thanh cho mình vào buổi tối, họ chắc chắn có thể làm được. Wenda20160610 01:08:20 菩萨是大医王 男听众：师父，刚才您讲到那些中医都是天上下来的菩萨，有一个同修就愿意问天上的事情，他问药师佛是不是古代的扁鹊名医？是不是他死后佛陀赐封他为菩萨，还是他本来是在天界的菩萨，下来救人又回去了？ 台长答：很多都是天上的菩萨。因为你要知道，佛有大神通的，菩萨也有大神通。他这些大神通，到人间，他只要一发愿：“我要来救人。”要看你自己愿意用什么方法救了，他如果想到人间来成为一位医生……所以为什么说菩萨是大医王？他马上就对医学全部熟悉，都了解。他就知道哪种草可以治哪种病，因为这些东西天上都有的，所以他只要拿出来就能做指导了。举一个简单例子，你去买音响设备，在里边卖东西的人，你说他哪个设备不知道？你晚上叫他去帮你做做音响师好了，他当然能做了。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.535Z
+draft: false
+url: "/2025/06/nguoi-moi-bat-au-mac-benh-hiem-ngheo.html"
+---
+
+Tiêu đề bài viết: Người mới bắt đầu mắc bệnh hiểm nghèo hoặc ung thư nên phát nguyện như thế nào nếu muốn chuyển hoá nghiệp lực? Nội dung chi tiết: Người mới bắt đầu mắc bệnh hiểm nghèo hoặc ung thư nên phát nguyện như thế nào nếu muốn chuyển hoá nghiệp lực? Thính giả nữ: Hiện nay có bài giảng này được đăng tải trên mạng Sư phụ Lư từ bi khai thị rằng nếu sức khỏe kém, kể cả bệnh nhân bệnh nặng và ung thư, nếu muốn chuyển hoá nghiệp lực thì phải phát nguyện như sau: Trước tiên: suốt đời ăn chay Thứ hai: suốt đời không sát sinh Thứ ba: phóng sinh hàng vạn sinh mạng Thứ tư: phát nguyện 1.000 Ngôi Nhà Nhỏ để trả nợ Thứ năm: hiện thân thuyết pháp sau khi khoẻ lại để cứu độ chúng sinh Thưa Sư phụ, các đồng tu có thể gửi nội dung này làm mẫu cho những người mới bắt đầu bị bệnh nặng không? Đài trưởng đáp: Có. Bởi vì đây là điều cơ bản nhất, ngoài những gì sư phụ đã dạy mọi người làm, đây đều là những điều cơ bản phải làm. Nếu bạn bị ung thư hoặc bị bệnh nặng thì phải làm những việc này, nếu không làm được thì cũng vô ích, nếu không làm được thì dù bạn có phát nguyện lớn lao đến đâu cũng vô ích. Wenda20160527 22:58 癌症：重症初学者想康复，最基本的发愿 女听众：现在网上传这样的开示“卢台长慈悲告诫，如果身体不好，包括重症病人，癌症，要想康复必须发以下大愿：第一，终身吃长素；二，终生不杀生；三，放生上万；四，许愿小房子1000张还债；五，康复后现身说法，救度众生。”请问师父，同修们能否将这个内容作为模板发给那些重病的初学者？�台长答：可以的。因为这个是最基本的，除了师父另外给他开示要做什么之外，这些是基本必须要做的。生了癌症、重症一定要做这几条的，做不到的话没有用的，做不到的话，你再许什么大愿都没用的。 Wenda20160527 22:58

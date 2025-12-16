@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.744Z
+draft: false
+url: "/2024/11/co-chia-se-hinh-anh-phong-sanh-len-mang.html"
+---
+
+Tiêu đề bài viết: Có thể chia sẻ hình ảnh phóng sanh lên mạng không? Nội dung chi tiết: Nam thính giả : Một đồng tu thường mua cá ở chợ rồi phóng sanh tuỳ duyên, không quan tâm giá, cá lớn cá nhỏ, lúc phóng sanh thì quay lại quá trình rồi đăng lên bảng tin Wechat, với hy vọng để bạn bè trong Wechat thấy được sẽ có ấn tượng, từ từ có thể tự tuỳ duyên mua cá phóng sanh, không sát sanh nữa . Nhưng người cũng có nói làm công đức nếu để người khác biết thì công đức sẽ bị rò rỉ, anh ấy cảm thấy có rất nhiều bạn bè đăng hình ăn hải sản sống, ăn mặn như thế là tạo nghiệp, muốn thông qua những hình ảnh phóng sanh để khơi dậy tâm từ bi của họ, xin Sư Phụ khai thị giúp con như vậy có được không ? Lư Đài Trưởng : Chỉ nhìn những bức ảnh phóng sanh, chưa chắc họ sẽ sinh tâm từ bi. Có thể chia sẻ ảnh, tốt hơn nếu viết thêm phóng sanh ăn chay tốt như thế nào, tại sao phóng sinh có thể mang lại thiện nghiệp, nuôi dưỡng tâm từ bi, tác hại, hậu qủa của s.á.t sanh ra sao.... nói những điều này nhiều sẽ tốt hơn chút, nếu không những người không tin thấy hình ảnh phóng sanh của con sẽ cảm thấy con đang lãng phí tiền bạc, những người đó họ sẽ nghĩ như vậy. Nam thính giả : Cảm tạ Sư Phụ, nghĩa là không chỉ đăng ảnh phóng sanh, mà đồng thời viết thêm một vài câu giải thích ví dụ như tại sao nên phóng sanh, sự nguy hại của sát sanh, có đúng không ? Lư Đài Trưởng : Đúng vậy Nam thính giả : Cảm tạ Sư Phụ wenda201402 21 22:15

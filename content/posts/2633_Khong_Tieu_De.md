@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.962Z
+draft: false
+url: "/2024/12/phai-lam-nao-khi-kho-khan-trong-viec.html"
+---
+
+Tiêu đề bài viết: Phải làm thế nào khi khó khăn trong việc sang nhượng cửa hàng. Nội dung chi tiết: Thính giả nam: Thưa Sư Phụ, có một bạn đồng tu với con, bạn ấy đang bị trổ nghiệp, khiến cho công việc kinh doanh cửa hàng bán đồ dùng nhà bếp của anh ấy không được tốt, bị thua lỗ và không có khả năng phục hồi. Giờ anh ấy muốn chuyển nhượng lại cửa hàng để tháo gỡ sự khó khăn đó. Anh ấy đã niệm NNN cho người cần Kinh trong cửa hàng của anh ấy, cũng như phóng sinh và chăm chỉ độ người. Vậy xin Sư Phụ từ bi khai thị cho anh ấy phải làm sao để có thể tháo gỡ khó khăn và sớm chuyển nhượng được cửa hàng? Đài Trưởng đáp: Anh ấy cần phải phát nguyện lớn. Như trước đây Thầy đã chia sẻ rất nhiều. Một người khi bị bùng phát nghiệp chướng, tức là công đức đã cạn. Vậy phải làm cách nào để có thể vượt qua được nghiệp chướng đó? Tất nhiên là phải có công đức rồi đúng không? Vậy giờ anh ấy phải làm thật nhiều công việc để có thể tạo ra công đức và một điều không thể thiếu đó là chăm chỉ niệm Kinh, niệm NNN và làm nhiều việc thiện đức. Khi có công đức rồi mới có thể tiêu trừ được nghiệp chướng của mình. Bên cạnh đó hãy nói với anh ấy: Cần phát nguyện sau khi chuyển nhượng được cửa hàng thì sẽ trích một phần để làm lợi ích cho chúng sinh. Khi có công đức rồi thì khó khăn sẽ được giải quyết dễ dàng. wenda20170602 36:14 店铺转不出去该怎么办 男听众：同修经营一个厨具店，一直亏本，苦撑了一年多，赔了不少钱。他现在想顺利地转出去，也给自己的要经者还有房子的要经者分别许了小房子，也在许愿放生、度人。师父开示一下，像他这种情况，自己运程比较差的时候苦撑着做生意，应该还要从哪方面更加努力地去做，才能把这个店转出去呢？ 台长答：许愿。过去很多人我就教他，没办法了，一直卖不出去，许愿。自己功德不够，菩萨也保护不了，那怎么办呢？自己许愿，卖出去房子，拿出百分之多少来放生、捐掉，这个都是属于做功德。所以他很快就卖出去了，就是这样。

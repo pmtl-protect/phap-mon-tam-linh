@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.567Z
+draft: false
+url: "/2024/10/neu-nam-mo-thay-ban-tho-phat-khong-tot.html"
+---
+
+Tiêu đề bài viết: Nếu nằm mơ thấy bàn thờ Phật không tốt thì có thể vừa lau Phật cụ trên bàn thờ vừa niệm Tâm Kinh Nội dung chi tiết: Wenda20200906 15:02 Thính giả nữ: Sư phụ lúc trước ở trong khai thị, Đài trưởng Lư khai thị giải đáp thắc mắc trong thư (410): “Dạy các con một phương pháp, nếu như mơ thấy bàn thờ Phật không tốt, hãy tự mình lau đi. Vừa niệm kinh vừa lau đi lau lại từng cái một, sau đó dâng lên lại là được rồi. Loại giấc mơ này, nhất định có gì đó không sạch sẽ, chẳng hạn như không rửa tay trước khi dâng hương v.v.. Hộ pháp thần có thể nhìn thấy tất cả”. Xin hỏi Sư phụ việc lau được đề cập ở đây, có phải đèn dầu, ly nước, lư hương, bình hoa đều có thể lau hay không? Lúc lau nên niệm Tâm Kinh ạ? Đài trưởng đáp: Đúng vậy.

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.844Z
+draft: false
+url: "/2025/08/khi-phong-sinh-hay-tranh-xa-nhung-noi.html"
+---
+
+Tiêu đề bài viết: Khi phóng sinh hãy tránh xa những nơi có đánh bắt , Độ người tùy duyên Nội dung chi tiết: Lư Đài Trưởng – Chuyên đề khai thị đặc sắc: Cứu sinh mạng người khác, là cứu tâm mình ( hạ) – Tầm quan trọng của việc phóng sinh 2015-03-29 7. Khi phóng sinh hãy tránh xa những nơi có đánh bắt , Độ người tùy duyên (ngày 13 tháng 7 năm 2012,Huyền nghệ hỏi đáp) Thính giả: Sư phụ, con là người Thượng Hải, sông Hoàng Phố là nước ngọt hay... có thể phóng sinh được không? Đài trưởng: Thả cá xuống sông vẫn tốt hơn là để người ta bắt và đem vào nhà hàng để chặt đầu. Thính giả: Trước đây chúng con đã từng phóng sinh, nhưng có người ở dưới sông bắt cá, nên con nghĩ đến việc thả trên thuyền, như vậy sẽ không có người bắt. Đài trưởng: Đó là một phương pháp hay, chỉ cần tránh xa họ một chút là được. Cứ bố trí một "bát quái" không để những người đó biết con cần phóng sinh, và tìm cách thả ở nơi không có người. Thính giả: Còn có thể độ hóa người khác, Chúng con phóng sinh. Một số người già hỏi: "Làm cái gì đấy?" Chúng con trả lời: "Chúng con đang phóng sinh!" cũng có người được cảm hóa. Đài trưởng: Ai cũng có lòng từ bi! Con chỉ cần nói với họ: "Ông biết không, chúng cũng đang thở , cũng rất đáng thương! Nhiều tổ tiên của chúng đã làm những điều xấu, nên mới biến thành những con thú nhỏ này." 卢台长精彩开示专题：救彼命，救己心（下）——放生的重要性 2015-03-29 7、放生尽量避开捕捞，随缘度人（2012年7月13日玄艺问答） 听众：师父，我是上海的，黄浦江是淡水还是……能不能放生？ 台长：你把鱼放了总比被人弄到餐馆里砍头好啊. 听众：我们以前放，就有人在下面捕，所以我就想到摆渡船上放，没人捕。 台长：这种都是方法，离开他们一点就好了。摆个“八卦阵”，不要让那些人知道你要放生，要想尽办法，找没人的地方。 听众：还能度化别人，我们放生，有的老人就问：“在干吗？”我们就说：“在放生呀！”也有被感化的。 台长：谁都有慈悲心的！你就告诉他：“你知道吗，它们也在喘气，也很可怜！我们有很多的祖宗做的事情不好，就变成这种小畜生啦。”

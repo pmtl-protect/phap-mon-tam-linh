@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.407Z
+draft: false
+url: "/2025/06/nhieu-nguoi-gia-tu-ca-oi-co-ich-gi-au.html"
+---
+
+Tiêu đề bài viết: Nhiều người giả tu cả đời, có ích gì đâu? Vì vậy, muốn hiểu một người, muốn người đó tu tâm, trước hết phải xem xuất phát điểm và mục đích của họ có phù hợp hay không. Nội dung chi tiết: Rất nhiều người học Phật, xuất phát điểm chỉ là để bệnh tật của người thân trong gia đình được tốt hơn, chỉ với xuất phát điểm đó, đến khi bệnh nhân trong nhà đã khỏi bệnh thì họ không tu nữa. Người thật sự có trí tuệ, hôm nay học Phật không chỉ để giúp đỡ người nhà, không chỉ để bản thân được thuận lợi, hóa giải nhiều phiền não trong cuộc sống, mà mục đích thực sự là để siêu thoát lục đạo, có thể một kiếp tu thành. Nếu mục đích và nguyện vọng cuối cùng của bạn phù hợp với nhau, thì bạn sẽ dễ dàng đạt được thành quả từ đầu đến cuối, không dễ dàng quên sơ tâm. Đây chính là điều Sư phụ muốn nói với các bạn, phải hiểu, xem xét xuất phát điểm và mục đích của họ, thì bạn sẽ biết họ có thật lòng hay không. TRÍCH : TẬP 107 - CHỨNG NGỘ THỰC TƯỚNG, ỨNG TƯỚNG DIỆU DỤNG 很多人一辈子假修，有什么用？所以要了解一个人，让这个人修心，首先要看他的出发点和目的是不是相符合。我们很多学佛人，出发点就是为了让自己家里的病人身体好，就单单这个出发点，等到他家里病人求好了，他就不修了。真正有智慧的人，今天学佛不是单单为了帮助家里人，不是单单为自己求得顺利、人间去除很多烦恼，而真正的目的是要超脱六道，能够一世修成。如果你的目的和你今天最后的愿望是相符的，那你这个人就很容易方得始终，就很容易不忘初心。这就是师父告诉你们的，要了解、要看他的出发点和目的，你就知道他是否真心了。 白话佛法视频开示｜第107集 见证实相 以相妙用 15/10/2020 | 🙏🙏🙏 Trong quá trình dịch và  chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

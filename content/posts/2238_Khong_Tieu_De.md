@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.047Z
+draft: false
+url: "/2024/11/cau-nguyen-voi-bo-tat-can-phai-co-long.html"
+---
+
+Tiêu đề bài viết: Cầu nguyện với Bồ Tát cần phải có lòng tin, Bồ Tát sẽ giúp đỡ sắp xếp và giải quyết vấn đề. Nội dung chi tiết: Giống như việc đun nước, ta không thể lúc đun lúc ngừng, quý vị cần phải kiên trì. Vì nếu Bồ Tát phù hộ quý vị , đôi khi việc các bạn cầu xin không hẳn sẽ lập tức linh nghiệm, nhưng chắc chắn sẽ linh nghiệm trong tương lai. Ví dụ hôm nay các bạn cầu xin một việc gì đó với Bồ Tát, Bồ Tát sẽ xem xét các yếu tố như công đức của bạn, thời gian của bạn, kiếp trước của bạn và nghiệp chướng của bạn, để xác định khoảng thời gian mà việc này sẽ được giải quyết. Đôi lúc việc ta cầu xin sẽ không được giải quyết ngay, nhưng Bồ Tát sẽ giúp bạn xếp nó về sau này. Vì vậy, quý vị cần phải có lòng tin, không được đánh mất lòng tin. Wenda20191025 01:15:23

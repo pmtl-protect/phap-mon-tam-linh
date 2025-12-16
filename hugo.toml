@@ -1,0 +1,7 @@
+baseURL = 'https://timkhaithi.pmtl.site/'
+languageCode = 'vi'
+title = 'Pháp Môn Tâm Linh'
+theme = 'classic-blogger'
+
+[params]
+  defaultTheme = "light"

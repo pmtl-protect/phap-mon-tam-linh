@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.782Z
+draft: false
+url: "/2025/05/bach-thoai-phat-phap-khong-uoc-tu-y.html"
+---
+
+Tiêu đề bài viết: Bạch Thoại Phật Pháp không được tự ý dịch tùy tiện, Nội dung chi tiết: Phòng thư ký Đài Phát thanh Phương Đông 20:56 Thứ 5, ngày 6 tháng 3 (17 giờ trước) Gửi tôi Kính gửi các đồng tu! Cảm ơn bức thư của quý vị, rất biết ơn tấm lòng học Phật, tu tâm, và truyền bá Phật pháp của quý vị. Bạch Thoại Phật Pháp không được tự ý dịch tùy tiện, việc dịch thuật Phật lý, Phật pháp nếu có bất kỳ sai lệch hay lỗi nào cũng sẽ tạo nghiệp, đây là việc rất nghiêm trọng, xin đừng tự ý đăng tải bất kỳ sách hay nội dung dịch không chính xác nào, kẻo tạo nghiệp. Và đối với việc này, hãy tụng đọc Lễ Phật Đại sám hối văn. Nếu là pháp bố thí trên mạng, xin quý vị tự chú ý đừng dịch sai, Đài Phương Đông không kiểm duyệt, nếu dịch sai thì quý vị tự mình sẽ có nghiệp chướng. Việc dịch sách không phải là chuyện nhỏ, không nên tùy tiện thực hiện, kẻo không như pháp mà tạo nghiệp. Một lần nữa cảm ơn tấm lòng học Phật, tu tâm, và truyền bá Phật pháp của quý vị, công đức vô lượng! Chúc quý vị tinh tấn học Phật, tu tập cả phúc lẫn huệ! Phòng thư ký Đài Phương Đông Cảm ơn 2025-03-06 东方台 秘书处 20:56 Th 5, 6 thg 3 (17 giờ trước) đến tôi 尊敬的同修您好！ 非常感谢您的来信，很感恩您发心学佛修心弘法。 白话佛法不能随意擅自翻译，其中的佛理佛法翻译有任何偏差和错误都会因此造业，这是很严重的事情，请不要擅自发布任何私自翻译的不准确书籍和内容，以免因此造业。并针对此事念诵礼佛大忏悔文。 如果是网上法布施，请您们自己注意不要翻译错误，东方台并不把关，如果翻译有错误的话，您们自己会有业障。关于书籍翻译并非小事，不建议随便操作，以免有不如法而造业。 再次感谢您发心学佛修心弘法，功德无量！ 祝您学佛精进，福慧双修！ 东方台秘书处 合十 2025-03-06

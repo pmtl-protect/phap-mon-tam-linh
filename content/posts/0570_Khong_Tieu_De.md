@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.998Z
+draft: false
+url: "/2025/06/phat-phap-ai-thua-e-cao-tu-hanh-tai-gia.html"
+---
+
+Tiêu đề bài viết: Phật pháp Đại thừa đề cao tu hành tại gia, độ nhiều người Nội dung chi tiết: Nữ thính giả: Hiện tại con không muốn lập gia đình, chỉ muốn xuất gia, đến chùa làm công quả hoặc ở chùa một thời gian, xuất gia cũng rất tốt. Đài Trưởng: Xuất gia rồi con đi độ ai? Độ các pháp sư trên núi chăng? Người ta cái nào cũng có cảnh giới cao hơn con! (Xuất gia không độ được người sao ạ?) Con đi độ cỏ trên núi đi! Chúng sinh nhiều như vậy mà con không độ. Thời mạt pháp này, chúng sinh quá nhiều, mê muội, ngu si, phải dựa vào mọi người cùng nhau độ người. Đài Trưởng dẫn mấy ngàn người lên núi thì có ích gì?! Không hiểu sao? (Con hiểu rồi ạ.) Không có trí tuệ! Suy nghĩ kỹ đi, Phật pháp Đại thừa là độ người, không phải chỉ tự tu. (Nếu đến chùa làm công quả có lẽ sẽ tinh tấn hơn, như vậy có tốt không ạ?) Cách nào cũng được, chỉ cần chư ác mạc tác, chúng thiện phụng hành là được. Wenda20140124 01:09:17 大乘佛法提倡在家修行，多度人 女听众：我现在不想成家，都想出家了，到寺庙去做义工，或者到寺庙去待一待，去出家也是比较好的。 台长答：出家你去度谁呀，去度人家山上的法师？人家个个都比你境界高 （出家度不了人啊？） 你去度山上的小草去吧，这么多的众生你不度。现在末法时期众生太多了，迷失、愚痴，靠大家在度人啊，台长带着你们几千人上山有什么用？！听不懂啊 （知道了） 没智慧！好好想想，大乘佛法是度人，不是自修 （如果到寺庙去做义工可能会精进一些，这样好不好呢？） 怎样都可以，只要诸恶莫作、众善奉行就可以了。

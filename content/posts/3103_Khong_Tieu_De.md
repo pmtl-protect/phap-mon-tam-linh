@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.271Z
+draft: false
+url: "/2024/11/ung-ghi-truoc-qua-nhieu-nnn-trong-cung.html"
+---
+
+Tiêu đề bài viết: Đừng ghi trước quá nhiều NNN trống cũng một lúc Nội dung chi tiết: Shuohua20120713 16:45 Nữ thính giả : Chào Thầy!  Con muốn hỏi hai vấn đề ạ. Đôi khi con mang ra rất nhiều NNN trống, viết sẵn tất cả " Phần Kính Tặng" ở bên trái có được không ạ ? Sư phụ trả lời: Viết “ Kính tặng ” trước là không tốt Nữ thính giả : Mỗi ngày con niệm vài tấm thì chỉ viết từng đó tấm phải không ạ? Sư phụ trả lời: Đúng rồi Nữ thính giả : Ồ , con hiểu ạ shuohua20120713  16:45 空白小房子的“敬赠”不要一次写太多 女听众：师父你好！问两个问题，我有时候拿很多空白小房子出来，左边的“敬赠”统统写好可以吧？ 台长答：“敬赠”先写上去不好（每天念几张写几张对吧？）对（噢，我知道了）

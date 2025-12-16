@@ -1,0 +1,8 @@
+---
+title: "Việc ông chủ tăng lương và phúc lợi cho nhân viên là Tài bố thí, hay chỉ là phúc đức."
+date: 2025-12-15T22:19:51.634Z
+draft: false
+url: "/2025/12/viec-ong-chu-tang-luong-va-phuc-loi-cho.html"
+---
+
+Việc ông chủ tăng lương và phúc lợi cho nhân viên là Tài bố thí, hay chỉ là phúc đức. Nam thính giả: Việc Ông chủ công ty phát thêm lương hoặc phát thêm phúc lợi cho nhân viên, Cũng tính là tài bố thí phải không ạ?Đài Trưởng đáp: Tất nhiên là tài bố thí rồi, nhưng vấn đề là loại bố thí này có giới hạn, ông ấy không có công đức, chỉ là phúc đức. Tại sao? Vì người ta giúp ông ấy làm việc, ông ấy trả thêm cho người ta một chút, thế thì người ta giúp ông ấy làm việc hăng say hơn, ÔNg chủ của Con có nhiều tiền rồi, chẳng phải là có phúc rồi sao? Nên không tính là công đức. Công đức là gì? Nếu có thể, ông chủ phát tiền, mọi người mang tiền đó đi phóng sinh, “Không cho các bạn, nhưng tôi sẽ ghi tên các bạn vào, hôm nay tôi sẽ bỏ ra 100.000 đồng để phóng sinh cho tất cả nhân viên của toàn nhà máy”, ghi đầy đủ tất cả tên của mọi người vào, như vậy ông ấy sẽ có công đức vô lượng.Nam thính giả: (Vâng, Phương pháp này của Sư phụ thật tuyệt vời. Phát tiền cho họ rồi, có thể họ sẽ mua đồ sống hoặc đồ mặn để ăn, Không tốt bằng mang đi phóng sinh.)Đài Trưởng đáp: Nếu không khai ngộ, cũng không còn cách nào. Bạn phát tiền cho họ, Chắc chắn họ sẽ không dùng để phóng sinh đâu.wenda20161021 34:01老板给员工多发工资福利是财布施，但只是福德男听众：公司老板给员工多发工资或者多发福利，也算财布施吗？台长答：当然财布施了，但问题是这个布施有限的，他不是有功德，只是福德。为什么？人家帮你做，你多给人家一点，那么人家帮你做得更卖力，你老板钱多了，不就有福了吗？就不算功德。功德是什么？有本事的话，老板发钱，大家去放生，“不给你们，把你们名字写上，我今天弄个10万块钱出来，为全厂员工放生”，把名字全部报好，他就功德无量了（是，师父说的这个方法太好了。给他们发了钱，他们也许去买活的东西吃，或者买荤的东西吃，还不如放生呢）不开悟的，没办法的。你给了他钱，他肯定不会放生的。

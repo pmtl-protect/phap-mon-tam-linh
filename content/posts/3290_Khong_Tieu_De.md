@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.975Z
+draft: false
+url: "/2025/04/nguoi-tu-tam-khong-nen-i-xem-bat-tu.html"
+---
+
+Tiêu đề bài viết: Người tu tâm không nên đi xem “Bát tự” Nội dung chi tiết: Wenda20160327A 48:55 Nam thính giả: Hiện nay rất thịnh hành việc xem “Bát tự” của nam nữ trước khi chọn ngày kết hôn, không biết về mặt huyền học thì điều này có đúng không? Đài Trưởng: Thật ra, từ thời xưa đã có việc này rồi. Việc xem “Bát tự” của nam nữ không phải để chọn ngày, mà là để xem hai người có thể thành vợ chồng hay không, điều này vào thời xưa rất có lý. Nhưng thật sự mà nói thì cũng rất dễ tổn thương người khác, bởi vì bây giờ là thời đại yêu đương tự do, nếu đi xem “Bát tự” mà không hợp, rồi chia rẽ hai người thì phải làm sao? (Đúng, đúng, đúng) Cho nên chuyện như vậy thì nên thuận theo duyên thôi. Người tu tâm thì đừng nên đi xem “Bát tự”, không có gì đáng để xem cả. Wenda20160327A 48:55 修心的人不要去排“八字” 男听众：现在流行把男女双方“八字”排一下再选日子，不知道在玄学上对不对？�台长答：其实过去古时候就有了。男女“八字”并不是选日子，男女“八字”排排，两个人能不能做夫妻，在过去，这是很有道理的。但是的确这样的话也会很伤人，因为现在是自由恋爱，如果一排“八字”，排得不好，你就把人家拆了，怎么办啊？（对对对）所以这种事情只能随缘了。修心的人不要去排了，没什么好排的。

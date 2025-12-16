@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.050Z
+draft: false
+url: "/2024/12/vi-sao-chung-ta-phai-dung-lich-duong.html"
+---
+
+Tiêu đề bài viết: VÌ SAO CHÚNG TA PHẢI DÙNG LỊCH DƯƠNG Nội dung chi tiết: SINH NHẬT ĐỐT NNN DÙNG DƯƠNG LỊCH NỮ THÍNH GIẢ: Con đã nghe Đài trưởng giảng qua, nếu một người đến Kiếp nạn quan 3-6-9, tốt nhất có thể niệm NNN số tuổi bản thân, xin hỏi Đài Trưởng nên là Ngày sinh Âm Lịch hay Ngày sinh Dương Lịch đốt NNN? ĐÀI TRƯỞNG ĐÁP: Sinh nhật của con là tổ chức theo Dương Lịch hay Âm lịch? (Dạ, Dương Lịch ạ) Được rồi, tất nhiên là ở Dượng lịch đốt rồi, đúng tuổi wenda20131201B 26:32 生日烧小房子用阳历 女听众：曾经听过台长说，如果某个人到了三六九的关，最好能送自己岁数的小房子，请问台长应该在农历生日或者在新历生日那天烧？ 台长答：你生日是过阳历还是阴历的？（阳历）好了，当然到了阳历烧了，实足的。 TAI KIẾP Ở NĂM TUỔI LẤY DƯƠNG LỊCH ĐỂ TÍNH NỮ THÍNH GIẢ: kiếp của con là tính dương lịch hay âm lịch? ĐÀI TRƯỞNG ĐÁP: toàn bộ đều là tính dương lịch (vậy chính là tuổi mụ) Không phải. Dương lịch là tuổi thực, tuổi mụ là âm lịch (con biết rồi. con mỗi tuần vẫn 4 tấm NNN, mỗi tuần lại tăng 3 tấm có được không?) Được. shuohua20131108 12:31 过劫年龄以阳历来算 女听众：自己的劫是算阴历还是阳历？ 台长答：全部都是算阳历的（那就是虚岁）不是。阳历是实足，虚岁是阴历（知道了。我每个星期还四张小房子，每个星期再加三张可不可以？）可以。 SINH NHẬT DÙNG DƯƠNG LỊCH NỮ THÍNH GIẢ: Đài trưởng, xin chào thầy! Xin hỏi thầy 1 vấn đề, 73 tuổi là 1 đại kiếp không? cần hoá 73 tấm NNN đúng không ạ? Sinh nhật là dương lịch hay là âm lịch? ĐÀI TRƯỞNG ĐÁP: Đúng, 73 tuổi, toàn bộ đều dùng dương lịch tính (trước sinh nhật dương lịch hoá rồi thì tốt rồi đúng không ạ?) Đúng rồi. wenda20141019B 13:50 生日用阳历 女听众：台长，您好！（你好）请教您一个问题，73岁是一个大劫嘛，要化73张小房子对吧？（嗯）生日是阳历还是阴历啊？ 台长答：73岁，全部算阳历的（在阳历生日以前化掉就好了对吧？）对了。

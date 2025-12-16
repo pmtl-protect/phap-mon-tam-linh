@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.521Z
+draft: false
+url: "/2025/02/mot-nguoi-tung-kinh-giup-ca-nha-tranh.html"
+---
+
+Tiêu đề bài viết: Một người tụng kinh giúp cả nhà tránh tai kiếp Nội dung chi tiết: Zongshu20200609 26:14 Nam thính giả: Chất lượng tụng kinh của con có tốt không ạ? Trong nhà chỉ có mình con niệm kinh và tu học Pháp môn Tâm linh. Sư phụ Lư đài trưởng đáp: Ồ, khá khen con đấy! Nếu con không tụng kinh, năm ngoái nhà con đã xảy ra một chuyện lớn rồi, năm nay cũng vậy. Vào tháng 3 năm nay, lẽ ra trong nhà con sẽ gặp một chuyện khá rắc rối, có thể bị lừa tiền hoặc tổn thất gì đó. Nhưng nhờ con tụng kinh mà đã hóa giải được rồi (Ồ) Cố gắng tụng kinh cho tốt, tự con nghĩ lại sẽ hiểu thôi (Dạ, cảm ơn Sư phụ!) \*\*\* 一人念经帮全家挡灾劫 Zongshu20200609 26:14 男听众：我念经的质量好吗？家里面就我自己念经，学心灵法门的。 “卢台长”答：哦，多亏你，你不念经你们家去年就有一个大事情要出了，今年也是。今年3月份的时候有一个事情，本来你们家里会比较麻烦，要被骗钱还是什么，反正要亏钱还是什么，就是因为你念经念掉的（哦）好好念了，自己想想就知道了（好的，感恩师父）

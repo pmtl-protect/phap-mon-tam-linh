@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.961Z
+draft: false
+url: "/2025/07/khai-thi-ve-nuoc-ai-bi.html"
+---
+
+Tiêu đề bài viết: KHAI THỊ VỀ NƯỚC ĐẠI BI Nội dung chi tiết: Hỏi 4: Ở nhà, ống dẫn nước máy được nối trực tiếp với máy lọc nước. Nước sau khi lọc rất sạch và có thể uống trực tiếp. Vậy có thể dùng nước này để dâng lên cúng dường chư Phật Bồ Tát không? Đáp 4: Tốt nhất là nên dùng một dụng cụ mới để hứng nước, sau đó rót riêng vào ly cúng. Không nên dùng trực tiếp ly cúng để lấy nước, như vậy là không trang nghiêm, không cung kính. 问4：家里的自来水管是直接连着净水器的，这个净水器出来的水很干净，是可以直接饮用的。是否可以直接用这个水来供奉菩萨？ 答4：最好用一个新的容器接水之后再专门倒入供杯中，不宜直接拿供杯接水，不恭敬。 Hỏi: Công ty có một máy lọc nước, nước sau khi lọc có thể uống trực tiếp, nhưng ống dẫn nước lại nằm trong nhà vệ sinh, tức là nước máy trong nhà vệ sinh được dẫn vào máy lọc. Xin hỏi, loại nước như vậy có thể dùng để cúng dường chư Phật Bồ Tát không? Đáp: Hãy mua nước khoáng để cúng dường chư Phật Bồ Tát, về phương diện này thì không nên tiết kiệm tiền. 问：公司有一个净水器，出来的水可以直接喝，但是水管是在卫生间里的，等于卫生间的自来水接到净水器里，请问，这样的水可以供菩萨吗？ 答：买矿泉水供菩萨，在这方面不要省钱。 Hỏi: Trong bếp có lắp một máy lọc nước, máy lọc đặt trong nhà vệ sinh, đầu nối thì lắp ở bếp, nước chảy ra cũng là từ bếp, giữa bếp và nhà vệ sinh chỉ cách nhau một bức tường, mà nhà vệ sinh hầu như không ai sử dụng. Như vậy, con có thể dùng nước ở bếp để cúng dường chư Phật Bồ Tát không? Đáp: Nếu trong lòng đã cảm thấy có vấn đề, thì không nên dùng nước lấy từ chỗ đó để cúng dường chư Phật Bồ Tát. Có thể mua nước khoáng, dùng nước khoáng rót ra để dâng cúng là tốt nhất. 问：厨房里装了个净水器，净水器安装在厕所里面，接口安装在厨房里，出水时也是从厨房里出，厨房跟厕所隔道墙而已，厕所几乎没人上的，那么我可以用厨房水用来供菩萨吗？ 答：如果已经觉得有问题，就不应该用这里接的水供菩萨，可以请矿泉水，用矿泉水倒出来供奉菩萨。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.632Z
+draft: false
+url: "/2024/12/phat-ngon-phat-ngu.html"
+---
+
+Tiêu đề bài viết: Phật Ngôn Phật Ngữ Nội dung chi tiết: ✦ Mối duyên giữa vợ chồng vốn là duyên, dù là thiện duyên thiện hay ác duyên, đều là duyên. ✦ Hiểu được Phật lý thì phải tùy duyên, nếu không sẽ kết ác duyên trong luân hồi. ✦ Oán kết giống như cảm cúm, học được nhẫn nhục mới có thể vượt qua tai ương. ✦ Người kiên trì tu dưỡng tâm, chắc chắn sẽ thành công, giống như người kiên trì leo núi nhất định sẽ lên đến đỉnh. Người có thể nhẫn chịu, họ nhất định sẽ thành công. Càng có thể chịu khổ, càng có thể tu thành. Fyfy-14 ✦ Một người vừa gặp chút phiền não đã rút lui, họ sẽ không thể ngộ đạo, bởi vì người ngộ đạo không bao giờ rút lui, họ có thể nhẫn nhục. ✦ Trong xã hội hiện đại, nếu không biết nhẫn nhục, thứ nhất, không thể làm việc thành công; thứ hai, từ góc độ học Phật, không thể giải thoát chính mình. ✦ Thế giới này có rất nhiều người không muốn thay đổi tính khí, không muốn thay đổi cá tính, kết quả cuối cùng chỉ là va chạm. Ví dụ, hai chiếc xe đều cứng rắn, khi va vào nhau, chắc chắn cả hai xe đều bị hư hại. Bây giờ có rất nhiều cặp vợ chồng trong nhà đều rất cứng đầu, cuối cùng không phải là ly hôn sao? fyfy-14 💞💞💞 💟忍辱精进法门 ✦夫妻冤结本是缘，善缘恶缘都是缘。 ✦懂得佛理要随缘，否则轮回结恶缘。 ✦冤结犹如伤风感冒，学会忍辱才能把劫过。 ✦坚持修心的人，一定能够成功，就像坚持爬山的人一定会爬上山顶，就像能忍耐的人他一定可以成功。越是能吃苦的人，越是能够修成。 fyfy-14 ✦一个碰到一点烦恼就退却的人，他是不会开悟的，因为开悟的人，他不会退却，他能够忍辱。 ✦现代社会如果不靠忍辱，第一，办不成事；第二，从学佛的角度来讲，根本不能解脱自己。 ✦这个世界有很多人，大家都不愿意改脾气，不愿意改性格，结果到最后硬碰硬。举个例子，两辆车都很硬，它们相撞，硬碰硬，一定双方汽车都损耗。现在很多夫妻在家里很霸气，最后不就离婚了吗？ fyfy-14

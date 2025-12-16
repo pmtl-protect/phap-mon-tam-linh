@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.339Z
+draft: false
+url: "/2025/08/hoan-thien-ban-than-giup-o-chung-sinh.html"
+---
+
+Tiêu đề bài viết: HOÀN THIỆN BẢN THÂN – GIÚP ĐỠ CHÚNG SINH Nội dung chi tiết: Tu tâm tuyệt đối không phải là phương pháp để cầu phúc báo cõi người hay cõi trời. Đừng thỏa mãn với hiện trạng, đừng thỏa mãn với phúc báo nhân thiên. Tu tâm chính là phương pháp để hoàn thiện nhân cách, hoàn thiện phẩm chất đạo đức. Tu tâm quý ở sự kiên trì, người tu tâm thì phẩm chất khác với người khác. Người tu tâm có thể nhẫn nhục, có thể chịu khổ chịu khó hơn người khác; người tu tâm biết giúp đỡ người khác, làm người tốt, hành thiện tích đức. Người không tu tâm thì chỉ lo quét tuyết trước cửa nhà mình; người tu tâm thì trong xã hội biết giúp đỡ người khác, trong gia đình biết khiêm nhường, trong công việc với đồng nghiệp thì không tranh giành, không đấu đá. Bạch thoại Phật pháp là đèn đường, Phật ngôn Phật ngữ là đèn sáng. Pháp Môn Tâm Linh là đèn tâm, Minh tâm kiến tánh báo Phật ân. 完善自身 帮助众生 修心绝对不是求人天福报的方法。不要满足于现状，不要满足于人天福报。修心就是完善人格、完善道德品质的方法。 修心贵在坚持，修心的人就是和别人的素质不一样。修心的人能够忍辱，能够比人家吃苦耐劳；修心的人能够帮助别人，做好人，行善积德。不修心的人，自扫门前雪；修心的人，在社会中会帮助别人，家庭当中谦让，同事当中不争不斗。 白话佛法是路灯， 佛言佛语是明灯。 心灵法门是心灯， 明心见性报佛恩。

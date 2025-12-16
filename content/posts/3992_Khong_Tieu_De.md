@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.776Z
+draft: false
+url: "/2025/01/nguoi-than-ang-theo-phap-mon-khac-nhung.html"
+---
+
+Tiêu đề bài viết: Người thân đang theo pháp môn khác nhưng vẫn muốn niệm ngôi nhà nhỏ Nội dung chi tiết: Người nghe nam: Con và chú của con đều quy y Phật gần như cùng lúc, vào tháng 4 năm ngoái, nhưng chú của con không theo Pháp môn Tâm linh. Tuy nhiên, chú ấy rất quan tâm đến ngôi nhà nhỏ, thỉnh thoảng cũng niệm, nhưng bình thường chú lại niệm các kinh văn khác. Vậy cách làm này có hiệu quả không ạ ? Sư phụ Lư Đài Trưởng: Con nghĩ sao? Người nghe: Con cũng thường gửi cho chú blog của ngài. Sư phụ: Con có thể gửi cho Anh ta những bài viết trên blog của Sư phụ, đặc biệt là những bài Bạch thoại Phật pháp để Anh ta đọc hoặc nghe thử. Người nghe: Con thường xuyên gửi, chú ấy rất tin tưởng vào ngôi nhà nhỏ, cảm thấy nó rất thù thắng. Sư phụ: Thật ra Anh ta đã có duyên với Phật rồi. Cứ để Anh ta làm như vậy trước, sau một thời gian, Anh ta sẽ dần dần tập trung tu tập một pháp môn duy nhất. Người nghe: Dạ, con hiểu rồi ạ. 叔叔信别的法门，也念小房子 Wenda20130531 45:05 男听众：我跟我的叔叔是前后脚信的佛，去年第3位听众 4月份，但是他信的不是心灵法门，他对咱这个小房子特别感兴趣，有时候会念小房子，但是他平时念别的经文，这样会有效果吗？ “卢台长”答：你说呢（我也一直给他发您的博客）你可以把台长博客上面的文章，一些白话佛法发给他让他看看或者听听（经常发，他很相信小房子，觉得小房子非常殊胜）他实际上已经有佛缘了。先让他这么做，以后慢慢的时间长了他就会一门精进了（好的）

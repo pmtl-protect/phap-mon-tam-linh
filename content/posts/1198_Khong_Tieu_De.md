@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.483Z
+draft: false
+url: "/2025/03/ngay-ngay-chay-cong-uc-thien-luon-luon.html"
+---
+
+Tiêu đề bài viết: Ngày ngày ăn chay, công đức thiện luôn luôn tăng trưởng Nội dung chi tiết: ♨️♨️♨️ Hỏi: Khi Phát Nguyện ăn chay trường, đã cầu xin một việc rồi, công đức đã được sử dụng rồi, còn có thể lấy lại để cầu xin việc khác không ạ? Đáp: Lúc đó đã sử dụng rồi, nhưng con ngày ngày ăn chay, hoặc là bình thường có người hỏi con tại sao ăn chay thì con nhân cơ hội đó nói với người khác, con sẽ có công đức. Ngày ngày ăn chay, không ngừng làm sâu sắc thêm công đức của mình. Vì sao ăn chay trường công đức rất lớn? Bởi vì không ngừng đang thực hiện việc ăn chay mới, đang tăng trưởng năng lượng, tăng trưởng công đức, có thể tiêu trừ rất nhiều nghiệp chướng. Ngày ngày ăn chay, công đức thiện luôn luôn tăng trưởng, cho nên nhất định phải kiên trì ăn. Hơn nữa dùng công đức ăn chay có thể hóa giải rất nhiều phiền toái nhỏ, tiêu trừ rất nhiều kiếp nạn nhỏ. ～Bảng tin blog 27 - 11 - 2020 ♨️♨️♨️ 《天天吃素，善的功德就一直在增加》 問：在許願吃全素的時候，已經求了事情，功德已經給出去了，還能拿回來求其他事情嗎？ 答：當時給出去了，但你每天在吃素，或者平時有人問你為什麼吃素的時候你趁機和別人講，你就有功德。每天吃素，不斷在加深加重自己的功德。為什麼吃全素功德很大？因為不停地在進行新的吃素，在增加能量、增加功德，可以消除很多業障。天天吃素，善的功德就一直在增加，所以一定要堅持吃。而且用吃素的功德可以化解很多的小麻煩，消掉很多的小劫。 ～2020年11月27日博客留言板 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

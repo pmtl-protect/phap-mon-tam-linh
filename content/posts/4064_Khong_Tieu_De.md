@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.941Z
+draft: false
+url: "/2024/11/van-e-ve-viec-nhung-ban-nu-neu-ang.html"
+---
+
+Tiêu đề bài viết: Vấn đề về việc những bạn nữ nếu đang trong thời kỳ kinh nguyệt có được niệm kinh, Lễ Phật không？ Nội dung chi tiết: Câu hỏi 48: Xin hỏi Đài trưởng Lư,những bạn nữ trong thời kỳ kinh nguyệt có thể niệm kinh bài tập, niệm Ngôi Nhà Nhỏ và đốt tặng Ngôi Nhà Nhỏ không? Đồng thời, có thể thắp hương và quỳ xuống bái lạy Phật, Bồ Tát hay không? Trả lời 48: 🔹Những bạn nữ nếu trong thời kỳ kinh nguyệt, họ hoàn toàn có thể niệm kinh bài tập và niệm Ngôi Nhà Nhỏ. 🔹Niệm Ngôi Nhà Nhỏ tốt nhất là vào ban ngày, vào những ngày nắng tốt , nếu trong lúc niệm có cảm giác thấy khó chịu thì có thể ngưng niệm. 🔹Nếu sau khi đã tắm rửa sạch sẽ, lúc này cơ thể được sạch sẽ thì vẫn có thể thắp hương, lễ Phật và đốt tặng Ngôi Nhà Nhỏ . 🔹Nếu không được sạch sẽ cho lắm thì vẫn có thể thắp hương, đốt tặng Ngôi Nhà Nhỏ và tốt nhất không nên quỳ lạy. ----------------------- 48、有关女性生理期时念经礼佛的问题 问48：请问卢台长，女性生理期期间可否做功课与念诵小房子以及烧小房子？同时可不可以上香、跪拜菩萨？ 答48： 🔹 女性生理期时完全可以做功课与念小房子。 🔹最好是在白天，晴天念小房子，如果一有不适就可以停止念。 🔹如果洗完澡后身体非常干净的时候，就可以上香、拜佛、烧小房子。 🔹如果不是很干净，也可以上香和烧小房子，但是最好不要跪拜。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.951Z
+draft: false
+url: "/2024/11/tai-sao-ech-lai-co-nghiep-chuong-nang_16.html"
+---
+
+Tiêu đề bài viết: Tại sao ăn ếch lại có nghiệp chướng nặng hơn Nội dung chi tiết: Nữ thính giả: Trước đây sư phụ có nói ăn thịt ếch nghiệp chướng còn lớn hơn ăn thịt gà, lý do là tại sao? Đài trưởng đáp: Bởi vì ếch là động vật có lợi, là động vật hữu ích. Còn gà thì, thật ra chỉ cho được trứng. Ếch ăn sâu bọ, và linh tính của ếch cũng khá nặng. Linh hồn của một con ếch cũng bằng với linh hồn của mấy con gà. Con có thấy ếch linh động không? Nó rất giảo hoạt, có thể nhảy trên ruộng, rất nhạy cảm, một chút chuyện nhỏ nó cũng có thể biết. Vậy nên linh hồn của nó khá lớn. Con ăn 1 con ếch, lột da nó, vậy thì nghiệp chướng còn lớn hơn giết 1 con gà ( Con đã hiểu. Cũng giống như linh tính của cá lóc cũng lớn hơn các loại cá khác, đúng không?) Đúng. Nhưng giết gà, hay giết các động vật khác đều không tốt. Đạo lý giống nhau. wenda20140817B 46:06

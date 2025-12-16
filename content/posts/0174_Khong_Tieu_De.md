@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.911Z
+draft: false
+url: "/2025/07/hoa-sen-o-ben-canh-quan-am-bo-tat-cho.html"
+---
+
+Tiêu đề bài viết: Hoa sen ở bên cạnh Quán Thế Âm Bồ Tát cho thấy có duyên sâu với Bồ Tát; chỉ những hoa sen thuần khiết mới có thể ở trong hồ sen của Quán Thế Âm Bồ Tát Nội dung chi tiết: Wenda20180304B 31:02 Hoa sen ở bên cạnh Quán Thế Âm Bồ Tát cho thấy có duyên sâu với Bồ Tát; chỉ những hoa sen thuần khiết mới có thể ở trong hồ sen của Quán Thế Âm Bồ Tát Nữ thính giả: Thưa Sư phụ, trong chương trình, Sư phụ từng nói có đồng tu có hoa sen ở trong hồ sen của Quán Thế Âm Bồ Tát, có đồng tu thì hoa sen ở phía trước hoặc phía sau hồ sen của Quán Thế Âm Bồ Tát. Con xin hỏi, hoa sen ở trong hồ với ở phía trước hay phía sau hồ sen có gì khác nhau không ạ? Đài Trưởng đáp: Không khác biệt nhiều lắm, dù sao cũng đều ở bên cạnh Quán Thế Âm Bồ Tát. (Nhưng nếu ở gần Quán Thế Âm Bồ Tát, thì có phải là có duyên rất sâu với Ngài và được Bồ Tát gia trì nhiều hơn không ạ?) Đương nhiên là tốt hơn rồi. (Vậy có nghĩa là cảnh giới tu hành của người đó rất cao, đúng không ạ?) Đúng vậy. Không nói đâu xa, chỉ nói chuyện con có thể gần gũi với Sư phụ, so với những người không thể đến gần Sư phụ, thì rõ ràng là có sự khác biệt. (Dạ, con hiểu rồi. Vậy thì, hoa sen như thế nào mới có thể ở trong hồ sen của Quán Thế Âm Bồ Tát ạ?) Hoa sen thuần khiết. (Dạ, con đã hiểu.)

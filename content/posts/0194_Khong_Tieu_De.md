@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.953Z
+draft: false
+url: "/2025/06/van-e-ve-hai-nguoi-cung-niem-mot-tam.html"
+---
+
+Tiêu đề bài viết: Vấn đề về hai người cùng niệm một tấm Ngôi Nhà Nhỏ - Hỏi Đáp Phật Học Pháp Môn Tâm Linh Nội dung chi tiết: Câu 35: Vấn đề về hai người cùng niệm một tấm Ngôi Nhà Nhỏ - Hỏi Đáp Phật Học Pháp Môn Tâm Linh Ngày 20 tháng 2 năm 2010 Câu hỏi 35: Thưa thầy, hai người có thể cùng nhau niệm một tấm Ngôi Nhà Nhỏ không? Ví dụ, con niệm Chú Đại Bi và Bát Nhã Tâm Kinh, còn chồng con niệm Vãng Sinh Chú và Thất Phật Diệt Tội Chân Ngôn, như vậy có được không? Trả lời 35: Hai người có thể cùng nhau niệm một tấm Ngôi Nhà Nhỏ. Cũng có thể cùng niệm chung một loại kinh trong Ngôi Nhà Nhỏ. Trước khi niệm, mỗi người tự tay ghi tên mình vào phần ký tên cuối tờ. Cả hai đều có công đức từ việc niệm kinh. Tuy nhiên, tốt nhất là nên tụng riêng từng bài. 35、有关两人合念一张小房子的问题——《心灵法门佛学问答 三十五》 2010-02-20 问35：卢台长您好！请问可否两人合念一张小房子？像我念《大悲咒》和《心经》，我先生念《往生咒》和《七佛灭罪真言》，可以吗？ 答35： 两个人可以合念一张小房子。也可以合念小房子上的同一种经文。 念之前，在落款处各自亲笔写上两人的名字。 两人都是有功德的。 最好是分开念。

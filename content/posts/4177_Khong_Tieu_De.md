@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.226Z
+draft: false
+url: "/2024/12/au-phong-lac-ngam-trong-giam-moi-ngay.html"
+---
+
+Tiêu đề bài viết: Đậu phộng (lạc) ngâm trong giấm mỗi ngày ăn một chút có thể hạ huyết áp, xin hỏi ngâm trong giấm nào? Cần ngâm mấy ngày? Nội dung chi tiết: Nam thính giả: Thầy có nói qua đậu phộng (lạc) ngâm trong giấm mỗi ngày ăn một chút có thể hạ huyết áp, xin hỏi ngâm trong giấm nào? Cần ngâm mấy ngày? Đài trưởng Trả lời: Giấm trắng và giấm Trấn Giang ( giấm đen) đều có thể, sau khi ngâm 3-4 ngày, màu sắc đã thấm vào trong, một ngày ăn 5-6 hạt, kiên trì ăn một tuần, huyết áp sẽ giảm xuống ngay lập tức, đây là công thức bí truyền dân gian (phải tiếp tục ăn như vậy ạ?) Đúng, tối đa mỗi ngày ăn 7 hạt, nếu huyết áp cao mà không muốn uống thuốc thì ăn cái này, dù sao vẫn tốt hơn là uống thuốc (sau khi huyết áp hạ xuống còn tiếp tục ăn không ạ?) Ăn thêm một thời gian nữa, huyết áp tương đối ổn định tính cách không còn nóng nảy , có thể từ từ ăn ít lại rồi ngưng. Ăn cái này sẽ không nghiện, rất nhiều thuốc trị huyết áp cao chỉ sợ uống vào sẽ không dừng lại được. 男听众：您说过花生泡在醋里面每天吃一点可以降血压，请问是泡在哪种醋里？需要泡几天？ 台长答：白醋和镇江醋都可以，泡个3、4天之后颜色已经浸到里边了，一天吃5、6颗，坚持吃一个星期，血压马上下来，这是民间秘方（要一直这样吃下去？）对，最多每天吃7颗，如果血压高不想吃药就吃这个，总比吃药好（血压降下来之后还继续吃吗？）再吃一段时间，血压比较平稳了性格不会暴跳了，就可慢慢少吃、不吃。吃这个不会上瘾，很多治血压高的药就怕吃了就停不下来。

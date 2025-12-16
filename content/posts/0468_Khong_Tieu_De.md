@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.651Z
+draft: false
+url: "/2025/06/tu-tam-va-tu-hanh-phai-song-hanh.html"
+---
+
+Tiêu đề bài viết: Tu Tâm và Tu Hành Phải Song Hành Nội dung chi tiết: Thính giả nữ: Thưa Thầy, Chủ nhật tuần này chúng con ở Thượng Hải có buổi gặp mặt đồng tu, mọi người cùng nhau chia sẻ tâm đắc tu học. Không biết Thầy có lời khai thị nào để con chuyển lại cho mọi người? Đài Trưởng đáp: Mong mọi người chăm chỉ niệm kinh, vì niệm kinh giúp bồi dưỡng tâm tính, nhận được sự gia trì của Quán Thế Âm Bồ Tát, khiến tâm được an hòa, mọi điều mong cầu đều được như ý. Thực ra, mọi việc của một người đều bắt nguồn từ nội tâm. Nếu tâm chưa đến thì hành vi cũng sẽ không theo. Mọi hành động đều bị chi phối bởi linh hồn. Nếu linh hồn ngày càng thuần khiết, hành vi cũng sẽ ngày càng thanh tịnh; nếu linh hồn ngày càng ô uế, những việc làm ra cũng sẽ ngày càng tệ hại. Vì thế, tu tâm và tu hành phải song hành. Hãy nhắc mọi người tu tập tinh tấn, Đài Trưởng cũng rất quan tâm đến các con.  Hy vọng mọi người dần sửa đổi những khuyết điểm của bản thân, khiến con người ngày càng trở nên ôn hòa, chớ để càng ngày càng cứng nhắc. Nếu tu tâm mà càng tu tính khí càng nóng nảy, thì việc tu tâm đó có vấn đề rồi. shuohua20110624  08:17 \*\*\*\*\*\*\*\*\*\* #修心和修行要双修并进 女听众：台长，星期天我们上海有一个同修会，大家在一起谈谈心得。不知台长对我们有什么开示，我可以告诉他们。 台长答：希望大家好好念经，因为念经陶冶情操，能得到观世音菩萨的加持，让自己心境平和，心想事成。实际上一个人所有的工作都由内心发起，如果心不到行为也不会到。任何的行为都是受控于灵魂，如果灵魂越来越纯洁，行为也会越来越纯洁；如果灵魂越来越肮脏，做出来的事情也越来越糟糕，所以修心和修行要双修并进。告诉大家好好修，台长也很关心你们，希望大家把身上的毛病修掉，把人修得越来越柔和，不要越来越硬。如果修心修到后来脾气越来越暴躁，那修心就有问题 。 shuohua20110624  08:17

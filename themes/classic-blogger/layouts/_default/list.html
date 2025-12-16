@@ -1,0 +1,20 @@
+{{ define "main" }}
+    {{ range .Paginator.Pages }}
+    <article class="post-entry">
+        <h2 class="post-title"><a href="{{ .RelPermalink }}">{{ .Title }}</a></h2>
+        <div class="post-meta">
+            <span>📅 {{ .Date.Format "02/01/2006" }}</span>
+        </div>
+        <div class="post-summary">
+            {{ .Summary | truncate 300 }}
+        </div>
+        <p><a href="{{ .RelPermalink }}" style="font-weight:bold;">Đọc thêm »</a></p>
+    </article>
+    {{ end }}
+
+    <div style="margin-top:20px; text-align:center;">
+        {{ if .Paginator.HasPrev }}<a href="{{ .Paginator.Prev.URL }}">« Trang trước</a>{{ end }}
+        <span style="margin:0 10px;">Trang {{ .Paginator.PageNumber }} / {{ .Paginator.TotalPages }}</span>
+        {{ if .Paginator.HasNext }}<a href="{{ .Paginator.Next.URL }}">Trang sau »</a>{{ end }}
+    </div>
+{{ end }}

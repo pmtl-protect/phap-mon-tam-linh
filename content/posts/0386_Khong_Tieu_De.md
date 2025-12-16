@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.445Z
+draft: false
+url: "/2025/06/cau-13-van-e-ve-nho-ong-tu-tro-niem-hoi.html"
+---
+
+Tiêu đề bài viết: Câu 13: Vấn đề về nhờ đồng tu trợ niệm- Hỏi Đáp Phật Học Pháp Môn Tâm Linh Nội dung chi tiết: Ngày 17 tháng 1 năm 2010 Hỏi 13: Kính thưa Lư Đài Trưởng, trước đây con may mắn được Đài Trưởng xem qua đồ đằng của con, Đài Trưởng nói rằng con có rất nhiều nghiệp chướng. Con biết mình cũng đã lớn tuổi nên cần nhanh chóng trả nghiệp. Xin hỏi, con có thể mời bạn bè, bạn học hoặc một vị cư sĩ quen biết giúp con cùng niệm kinh được không? Người khác giúp con niệm Ngôi Nhà Nhỏ có đạt được hiệu quả trợ niệm không? Đáp 13: Việc nhờ người khác trợ niệm là một vấn đề rất quan trọng. Nếu con nhờ được một người tốt, có tu hành giúp con trợ niệm, thì con sẽ càng niệm càng tốt. Ngược lại, nếu con nhờ phải một người xấu, không những bạn niệm không tốt mà người đó còn có thể tiêu hao hoặc cướp đi công đức của con. Ví dụ: Một ông chủ thuê một người tham tiền quản lý tài chính, cuối cùng người quản lý đó trở nên giàu có, còn ông chủ thì chẳng còn gì. Vì vậy, không thể tùy tiện nhờ người khác trợ niệm. Nếu muốn nhờ, tốt nhất nên chọn người có sức khỏe tốt, và phải hiểu rõ về người đó. Người này cần có công lực, có công đức, lương thiện, thân tâm thanh tịnh (ít nghiệp chướng), tốt nhất là người tu cùng một pháp môn. Nhờ người như vậy trợ niệm là tốt nhất. 13、请同修助念的问题——《心灵法门佛学问答 十三》 2010-01-17 问13：卢台长您好，我曾经有幸请您看过我的图腾，您告知我孽障很多。我知道自己也上了年纪要赶快还。请问，我可不可以邀请我认识的朋友、同学或一位居士帮助我一起念经。别人帮我念小房子能不能起到助念的效果？ 答13： 请人助念是一个很重要的问题，如果您请到一位有修为的好人帮助您助念，您就越念越好。 如果请到一个坏人，那您不但念不好，这个人还有可能把您的功德消掉抢去。 举一个例子：一个老板让一个贪钱的人来管账，到最后这个管财务的人钱多得不得了，而这个老板一无所有。 所以不能随便找人助念。如果找，最好是找身体比较好的人，而且一定要了解他人的底细。这个人要有功力、有功德、很善良、身上很干净（孽障少），最好是修同一法门的人，找这样的人助念最好。

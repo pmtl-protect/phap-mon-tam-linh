@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.374Z
+draft: false
+url: "/2025/05/chi-co-o-nhan-gian-tieu-nghiep-nhanh.html"
+---
+
+Tiêu đề bài viết: Chỉ có ở nhân gian tiêu nghiệp nhanh nhất, đừng phung phí thời gian Nội dung chi tiết: Hỏi: Thưa Sư phụ, có phải khi còn sống chúng ta dễ tiêu trừ nghiệp chướng hơn, sau khi chết sẽ khó tiêu nghiệp hơn không ạ? Đáp: Đúng vậy, tất nhiên là đúng. Đã thành ma rồi thì làm sao tiêu nghiệp được? Lên thiên đàng thì quá vui sướng rồi, làm sao còn nghĩ đến chuyện tiêu nghiệp? Đều không còn tinh tấn nữa, hiểu chưa? (Vì vậy mong mọi người biết trân quý thân người, tinh tấn tu học Phật pháp) Đúng vậy, chỉ có ở nhân gian mới tiêu nghiệp nhanh nhất. Không còn cách nào khác. Nhưng nhiều người chỉ đang phung phí thời gian, chứ không phải đang tiêu trừ nghiệp chướng. Wenda20181104A 17:10 \*\*\*\*\*\*\*\* 《只有在人間消業最快，切勿消磨時光》 問：請問師父，是不是活著的時候，我們的業障就容易消掉些，死了就難消了？ 答：對啊，當然對了。做鬼了，怎麼消啊？到天上去已經開心得不得了了，你說怎麼消啊？都不思進取了，明白了嗎？（所以希望大家能夠珍惜人身，能夠精進地學佛念經）對，只有人間消業最快。沒有辦法。但是很多人在消磨時光，沒有消業。 ～Wenda20181104A 17:10

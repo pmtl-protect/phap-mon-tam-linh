@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.520Z
+draft: false
+url: "/2025/05/tai-sao-noi-i-tu-co-tieu-tru-phan-lon.html"
+---
+
+Tiêu đề bài viết: Tại sao nói đi tu có thể tiêu trừ phần lớn nghiệp lực, nhưng hoàn tục sẽ tăng thêm nhiều nghiệp lực? Nội dung chi tiết: Khán giả nữ: Thầy khai thị sau khi đi tu thì hơn một nửa nghiệp chướng có thể tiêu trừ, nhưng sau khi hoàn tục thì nghiệp chướng sẽ tăng thêm nhiều hơn nữa. Con xin hỏi Thầy, “tiêu trừ hơn một nửa nghiệp lực” có phải là vì họ có nguyện lực này nên nghiệp chướng trước đây của họ sẽ tạm thời được xóa bỏ, sau đó vẫn phải tùy vào khả năng thực hiện thệ nguyện của mình. Một khi đã hoàn tục rồi, thì nghiệp lực sẽ tăng trưởng, là do họ không kiên trì thực hiện lời nguyện này nên nghiệp chướng mà họ đã được tiêu trừ trước đây sẽ trả về lại cho họ? Hay là vì hoàn tục mà nghiệp chướng sẽ tăng trưởng? Đài trưởng trả lời: Hoàn toàn chính xác, cả hai điều con nói đều bao gồm cả. Thầy lấy một ví dụ đơn giản, ví dụ người này trước đây ăn trộm đồ, bây giờ là công nhân gương mẫu, không ai còn nói rằng trước đây họ ăn trộm đồ? Không còn nữa đúng không? (Dạ) con là một công nhân gương mẫu, được người khác kính trọng, mọi người đều quý trọng con, một khi con thôi làm công nhân gương mẫu, con lại làm người bình thường, liệu người ta có tính món nợ cũ, nợ mới của con không? (Con hiểu rồi, con cảm ơn Thầy) Wenda20190818 01:18:30 ------------------ Wenda20190818 01:18:30 为何说出家可消大半业障，还俗后会增加更多的业障 女听众：师父开示，出家之后业障可以消掉一大半，但一还俗之后增加更多的业障。请问师父，“消掉一大半业障”是不是说因为你有这个愿力了，所以你之前的那些业障先暂时帮你清算掉，之后还是要看你行愿的能力。一旦还俗后，业障增加，是因为你没有坚持行这个愿，所以你之前消掉的那些业障又重新还给你？还是说因为还俗了，还俗业障就会增加？ 台长答：完全正确，你讲的两个全部都有的。我举个简单例子，比方说这个人过去偷过东西，现在做一个劳动模范了，谁还会说你过去偷东西啊？没有了吧？（嗯）你是劳动模范，受人家尊敬的，大家都把你捧得很高；当你一旦劳动模范不做了，你又像个普通人一样吊儿郎当了，人家会不会把你的老账新账一起算啊？（明白了，感恩师父）

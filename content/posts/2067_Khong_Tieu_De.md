@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.693Z
+draft: false
+url: "/2025/08/nguoi-that-su-co-tri-tue-phai-biet-nhin.html"
+---
+
+Tiêu đề bài viết: Người thật sự có trí tuệ phải biết nhìn thấu, buông bỏ Nội dung chi tiết: Lời Sư phụ: Học Phật phải học sao cho bản thân cảm thấy vui vẻ, hoan hỷ. Nếu một người thường xuyên nói chuyện thị phi, chê cái này đúng, phê cái kia sai, thì người đó đã bị chuyện thị phi trói buộc. Vì sao thầy thường nói với chư Tăng và đệ tử rằng chúng ta phải có tấm lòng rộng mở? Đối với tất cả chuyện thị phi của thế gian, không được để chúng ràng buộc mình, phải học cách để mọi việc tự nhiên đến rồi tự nhiên đi. “Dứt phiền não” chính là không nghĩ những điều không nên nghĩ, không làm những việc không nên làm, không nói những lời không nên nói, bởi vì phiền não là do nói ra, làm ra, và nghĩ ra. Người thật sự có trí tuệ, tấm lòng họ rất rộng lớn, tâm họ rất ngay chính, họ hiểu rằng: “Minh tâm mới thấy được bản tính, người ngộ mới nhận ra Bồ Đề.” Có câu: “Trên đời này không có tình yêu vô cớ, cũng không có hận thù vô cớ”, tất cả nhất định đều có liên quan đến đời trước của bạn. Cho nên, người thật sự có trí tuệ chính là người biết nhìn thấu và buông bỏ. Wenda20170709A 12:59 真正有智慧的人要看破、放下 台长语：学佛要学得自己感觉到开开心心。如果一个人经常跟人家讲是是非非，这个对了，那个错了，这个人已经被是非所缠绕。为什么我经常跟法师、跟弟子讲，我们心胸要宽阔，对人间的一切是是非非，不能被它所缠绕，要学会自然来自然去。“断烦恼”就是不要不该想的去想，不该做的去做，不该说的去说，因为烦恼是说出来的，做出来的，想出来的。真正有智慧的人，心胸非常宽阔，他的心很正，他知道“明心方见性，悟者识菩提”。有一句话，“这个世界上没有无缘无故的爱，没有无缘无故的恨”，一定是跟你的上辈子有关系。所以真正有智慧的人是要看破、放下。

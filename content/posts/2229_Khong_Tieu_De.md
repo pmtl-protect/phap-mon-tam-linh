@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.030Z
+draft: false
+url: "/2024/11/khi-trong-nha-quy-vi-co-1-quyen-sach.html"
+---
+
+Tiêu đề bài viết: Khi trong nhà quý vị có 1 quyển sách Kinh Phật là sẽ có thần Hộ Pháp bảo vệ Nội dung chi tiết: Khi trong nhà quý vị có 1 quyển sách Kinh Phật là sẽ có thần Hộ Pháp bảo vệ Khi chúng ta học Phật, tu tâm, tụng kinh, phải biết tôn trọng Phật pháp, tôn trọng kinh văn. Trước khi tụng kinh nên rửa tay sạch, các vị Bồ Tát đều biết điều này. Vì trong tâm quý vị trong sạch, vì quý vị lấy pháp của Phật làm pháp của mình, cũng có nghĩa là quý vị đã mời Bồ Tát vào trong tâm mình rồi, lấy pháp môn của Phật làm pháp môn của mình, đây chính là dung hợp giữa Phật và con người với nhau. Đây được gọi là "viên dung". ～Phát Thanh Toạ Đàm 28 當一本佛經在你家裡的時候，就有護法神在保護著 我們學佛修心念經，一定要懂得尊重佛法、尊重經文。 念經之前，要把手洗乾淨，這些菩薩都是知道的。 因為你心裡純潔，因為你視佛法為己法，也就是說，你把菩薩已經請到心裡來了，你把佛法門作為你自己的法門，這就是把佛和人融彙在一起了。 這就叫“圓融”。 ～廣播講座28

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.010Z
+draft: false
+url: "/2025/05/nam-mo-thay-con-gai-bi-bat-coc_6.html"
+---
+
+Tiêu đề bài viết: Nằm mơ thấy con gái bị bắt cóc Nội dung chi tiết: wenda20131020B 17:30 Người nghe (nữ): Một đồng tu mơ thấy đang đi dạo phố với con gái thì phát hiện con bị người ta bắt cóc. Có cuộc gọi đến nói: “Con gái của cô bị bắt cóc rồi, sẽ bị giữ trong 10 tháng.” Đồng tu hỏi: “Bắt cóc con tôi để làm gì?” Trong lòng cô nghĩ: “Có phải là muốn bán con tôi lấy tiền không?” Người kia nói: “Cũng gần như vậy.” Đồng tu lại hỏi: “Có phải là bán làm vợ, sinh con gì đó không?” Người đó đáp: “Đúng rồi, giữ nó 10 tháng, 10 tháng sau trả lại cho cô.” Đồng tu hỏi: “Tôi có thể đưa tiền gì đó được không?” Rồi đối phương cúp máy. Lư Đài Trưởng: Phải nhanh chóng tụng "ngôi nhà nhỏ", tụng xong là lập tức được thả ra. Hễ mơ thấy bị đòi tiền là cần tụng ngôi nhà nhỏ. (Phải phát nguyện tụng bao nhiêu ngôi nhà nhỏ ạ?) Nếu mơ thấy bị bắt cóc, nghĩa là vong linh đang đòi rất gấp, cần 49 ngôi nhà nhỏ. (Sau khi tụng đủ 49 ngôi nhà nhỏ, còn cần tiếp tục tụng thêm không?) Không còn vấn đề lớn nữa, không cần tụng tiếp, việc này coi như đã giải quyết rồi. wenda20131020B 17:30 梦见女儿被绑架 女听众：同修梦到跟女儿出去逛街，发现女儿被人家绑架了。电话打过来跟她说：“你女儿被绑架了，要绑架十个月。”同修问他：“把我女儿绑架去干嘛？”她心里在想：是不是要把我女儿卖钱？那个人就说差不多是这个意思。同修就问他：“是不是卖给人家做老婆生小孩之类的？”那人说：“就是这个样子，绑架她十个月，十个月后还给你。”同修说：“能不能给你钱什么的？”然后对方就把电话挂掉了。 台长答：赶快念小房子，小房子一念之后马上就把她放掉了。凡是要钱的都是要小房子（要许愿多少张小房子？）如果要绑架了，说明这个灵性要得蛮急的，给49张（49张这拨许完之后，后续还要跟进吧？）没什么大问题了，用不着跟进的，这事情就解决了。

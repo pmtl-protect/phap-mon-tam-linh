@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.275Z
+draft: false
+url: "/2025/06/ngoi-nha-nho-tich-luy-co-bi-gioi-han.html"
+---
+
+Tiêu đề bài viết: Ngôi nhà nhỏ tích lũy có bị giới hạn thời gian hay không: Nội dung chi tiết: Wenda20160603 01:20:55 – Thính giả nữ hỏi: Kính chào Sư phụ! Ngôi nhà nhỏ tich lũy nếu có ghi ngày tháng thì việc bảo quản có bị giới hạn thời gian không ạ? Lư Đài Trưởng đáp: Không có đâu, 5 năm, 10 năm cũng không sao cả. (Nhưng nếu mình viết ngày tháng lên, ví dụ như ngày 30 tháng 10 năm 2015 chẳng hạn?) Cũng không có vấn đề gì lớn, khi địa phủ thu nhận loại ngôi nhà nhỏ này thì họ không để ý đến ngày tháng đâu. \*\*\* Màu chấm đỏ trên ngôi nhà nhỏ tích lũy bị nhạt có ảnh hưởng đến hiệu quả không: Wenda20190419 47:18 – Thính giả nữ: Con xin hỏi Sư phụ, chấm đỏ trên ngôi nhà nhỏ tích lũy nếu bị nhạt màu thì có ảnh hưởng đến hiệu quả không ạ? Lư Đài Trưởng đáp: Không ảnh hưởng. \*\*\* Ngôi nhà nhỏ có bị mất giá không Wenda20160605A 08:34 Thính giả nữ hỏi: Xin hỏi, nếu chúng con tụng những ngôi nhà nhỏ để tích lũy, rồi cất giữ suốt 10 năm, 20 năm, thì những ngôi nhà nhỏ đó có bị mất giá không ạ? Lư Đài Trưởng đáp: Không đâu. Ngôi nhà nhỏ chỉ mất giá nếu bản thân con tụng không tốt; còn nếu con tụng tốt thì đương nhiên sẽ không bao giờ mất giá cả. \*\*\* Wenda20160603 01:20:55 自存小房子有没有时间限制 女听众：师父您好！自存小房子如果写上日期，保存有没有时间限制？ 台长答：应该没有，五年、十年都没问题的（但是如果把日期写上，比如说2015年10月30日这样子？）应该没什么大问题的，地府收这种小房子的话，这个时间他不管的。 \* Wenda20190419 47:18 自存小房子的红点颜色变淡会否影响效果 女听众：请问师父，自存小房子的红点颜色变淡了，会对效果有影响吗？ 台长答：不会。 \*\* Wenda20160605A 08:34 小房子是否会贬值 女听众：请问，如果我们念的自存小房子存了10年、20年，小房子会不会贬值？ 台长答：不会。小房子是你本身念得不好就贬值了；你念得好的话，当然永远不会贬值。

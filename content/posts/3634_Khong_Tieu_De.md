@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.876Z
+draft: false
+url: "/2024/10/bat-buoc-van-phai-ong-thoi-co-tieng.html"
+---
+
+Tiêu đề bài viết: SÁCH KINH CỦA PMTL BẮT BUỘC PHẢI CÓ TIẾNG TRUNG Nội dung chi tiết: Xin chào đồng tu kính mến! Vô cùng cảm ơn thư gửi đến của bạn, vô cùng cảm ơn bạn đã phát tâm hoằng Pháp học Phật tu tâm. Dựa theo khai thị của sư phụ, đối với kinh văn dùng các ngôn ngữ khác ( không phải là tiếng Trung) bắt buộc vẫn phải đồng thời có tiếng Trung mới được. Tên gọi chuyên dùng của kinh sách và Pháp môn Tâm Linh không được tự ý cải sửa, bắt buộc phải đúng lý đúng pháp. Pháp môn Tâm Linh yêu nước thương dân, tuân thủ luật pháp, khi hoằng pháp độ người không được tự ý thay đổi tên và những từ ngữ chuyên dụng của Pháp môn, nếu không sẽ không đúng pháp. Tu tập theo Pháp môn Tâm Linh phải tôn sư trọng đạo, y giáo phụng hành. Chỉ cần đúng lý đúng pháp giới thiệu Pháp môn Tâm Linh là được. Một lần nữa cảm ơn bạn đã phát tâm hoằng pháp tu tâm học Phật, công đức vô lượng! Chúc bạn học Phật tinh tấn, phước huệ song tu ! Ban thư ký đài Đông Phương \_()\_ 2024-08-03

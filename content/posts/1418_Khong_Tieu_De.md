@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.051Z
+draft: false
+url: "/2025/03/phat-nguyen-so-luong-phong-sinh-mot-con.html"
+---
+
+Tiêu đề bài viết: Phát nguyện số lượng phóng sinh, một con cá lớn không bằng mấy con cá nhỏ Nội dung chi tiết: Nữ thính giả : Sư phụ trước đây khai thị vấn đề số lượng phóng sinh, một con cá lớn tương đương với phóng sinh mấy con cá nhỏ. Nếu đã phát nguyện phóng sinh bao nhiêu con cá, không nói cá lớn hay cá nhỏ, vậy phóng sinh là cá lớn, có thể theo một con cá lớn bằng mấy con cá nhỏ như vậy tính toán không ạ? Một con cá lớn thông thường có thể tính mấy con cá nhỏ ạ ? ☀️ Đài Trưởng đáp: Không thể như vậy hỗn loạn tính toán, đây là vấn đề khái niệm. Ví dụ như, con phóng sinh một con cá lớn bằng công đức hai con đến ba con cá nhỏ, nhưng không đại diện cho số lượng của nó đâu. 🌻 (Nếu phát nguyện số lượng, vẫn cần theo số lượng phóng sinh tương đối như lý như pháp) ☀️ Đúng. Vậy liền phóng sinh cá nhỏ. Lấy ví dụ đơn giản, cô ở tiểu học đây nói: “Con muốn cứu ba người.” Kết quả cô cứu ra một người lớn, cô nói bằng ba người. Cô cứu ba người sao? Không tượng trưng cho… 🌻 (Thực tế vẫn cứu một người. Cảm ơn Sư phụ từ bi khai thị, đệ tử hỏi vấn đề này quá ngu si rồi) ✨✨✨ Wenda20180128A 09:25 ☀️ 许愿放生的数量，一条大鱼不等于几条小鱼 🌻 女听众：师父以前开示过放生的数量问题，一条大鱼相当于放几条小鱼的数量。如果已经许愿放生多少条鱼，没有说大鱼还是小鱼，那么放生的是大鱼，可以按照一条大鱼等于几条小鱼这样算吗？一条大鱼一般可以算几条小鱼？ ☀️ 台长答：不能这么混算，这个是概念性问题。比方说，你放一条大鱼等于两条到三条小鱼的功德，但是并不代表它的条数啊（如果许愿了条数，还是得按条数来放比较如理如法）对。那就放小的鱼好了。举个简单例子，你在小学这里讲：“我要救三个人。”结果你救出了一个大人，你说等于三个人。你救了三个人吗？不代表……（其实还是救了一个人。感恩师父慈悲开示，弟子问这个问题太愚痴了） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

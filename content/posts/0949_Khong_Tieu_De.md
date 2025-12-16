@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.884Z
+draft: false
+url: "/2025/05/mau-khong-tot-tren-nguoi-co-vong-linh.html"
+---
+
+Tiêu đề bài viết: Máu không tốt, trên người có vong linh Nội dung chi tiết: Zongshu20180303 05:15 – Nam thính giả: Thưa sư phụ, xin thầy xem giúp một người nam sinh năm 1987, tuổi Mão. Xin xem não bộ của anh ấy, gương mặt có hơi lệch một chút. Lư Đài Trưởng: Người này tuổi còn trẻ nhưng máu huyết không tốt (đúng vậy), huyết áp toàn thân đều cao, có giãn tĩnh mạch, vùng thắt lưng không tốt, tim đập nhanh, tính khí nóng nảy, giấc ngủ không yên. Ta thấy người này thật sự khá phiền phức. Chỉ số huyết sắc tố cũng không tốt (vậy phải giải quyết thế nào ạ?). Thứ nhất, tụng nhiều Tâm Kinh, tụng với tâm thái thư giãn; Thứ hai, uống nhiều nước, vì người có tính khí nóng nảy là do nhiệt quá, cần uống nhiều nước để điều hòa. Một cái nồi đang rất nóng, muốn làm nguội thì phải làm sao? Chính là nhờ nước, liên tục thêm nước vào (cần tụng bao nhiêu ngôi nhà nhỏ?). Tụng 102 ngôi nhà nhỏ. Trên người có vong linh, một bên mắt hơi lồi ra. Con hãy hỏi anh ấy, trong người thân hay bạn bè có ai từng qua đời vì bệnh tim không. Có một người trung niên hoặc lớn tuổi đang theo anh ta (cần phóng sinh bao nhiêu?). Phóng sinh 180 con cá. Zongshu20180303 05:15 血液不好，身上有灵性 男听众：师父您好。1987年属兔的男的，看他的脑子，他的脸稍微有点歪。 台长答：年纪不大，血液不好（对）整个身上的血压都高，静脉曲张，腰也不好，心脏跳得快，脾气比较急，睡眠不好。我看他真的蛮麻烦的。血色素也不好（那要怎么解决呢？）第一，多念心经，放松地念；第二，多喝水，因为人的脾气暴躁，太热，全部都要喝水的，靠水来调节。一个很热的锅子，靠什么能够凉下来？靠水，不断地加水（他要念多少小房子？）小房子102张。身上有灵性，一个眼睛有点爆出来的。你去问他，他们家里亲戚朋友中有没有一个人死于心脏病的。一个中老年人在他身上（放生多少？）180条鱼。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.352Z
+draft: false
+url: "/2025/05/van-e-su-dung-nen-tang-ung-dung-e-bo.html"
+---
+
+Tiêu đề bài viết: Vấn đề sử dụng nền tảng ứng dụng để Bố Thí Pháp Nội dung chi tiết: Nữ thính giả : Thưa Thầy. Hiện nay có một số sư huynh dùng nền tảng ứng dụng để bố thí pháp, sau đó đăng lên trang cá nhân, WeChat… để độ người mới. Nền tảng này không phải của cá nhân mà có nhiều tác giả khác nhau. Dưới bài viết mà sư huynh đăng tải, sẽ hiển thị một số bài viết nổi bật khác. Có sư huynh sau khi theo dõi nền tảng này đã thấy bài của các tác giả khác có đăng ảnh không đứng đắn, dù không nằm trực tiếp dưới bài pháp bố thí của sư huynh đó. Xin hỏi, việc này có như lý như pháp không? Có thể tiếp tục dùng nền tảng này để độ người và bố thí pháp không? Con Cảm ân Thầy. Đài Trưởng đáp: Nếu đây không phải là hành vi cá nhân của họ, cũng không phải hành vi bố thí pháp… thì cũng cần xem những bức ảnh đó là loại hình ảnh gì. Nếu đã hoàn toàn vượt quá giới hạn, thì việc đăng bài bố thí pháp lên nền tảng như vậy có phải là có chút bất kính với thần linh không? Không có cách nào, khu rừng này thực sự quá lớn… wenda20170205B 17:50 用平台软件法布施的问题 女听众：师父，您好。现在有的师兄用平台软件法布施，之后发到自己朋友圈、微信等，从而度新人。这个平台并非是个人平台，有很多其他作者。在师兄发布文章下面会有一些别的热门文章，有的师兄关注了这个平台，看见其他作者的文章有一些不雅照片，不是直接在法布施师兄的文章下面。请问，这样是否如理如法？能否继续用这个平台度人，进行法布施？感恩师父。 台长答：如果这个不是他个人的行为，不是法布施的行为……那也要看这些照片是什么照片的，如果已经完全出格了，那你说你把法布施文章放在这种平台上，你是不是有点亵渎神灵啊？没办法，真是树林子大了…… 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

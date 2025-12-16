@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.709Z
+draft: false
+url: "/2024/11/niem-kinh-khi-i-du-lich-va-o-trong.html"
+---
+
+Tiêu đề bài viết: Niệm kinh khi đi du lịch và ở trong khách sạn Nội dung chi tiết: Hỏi về cách tụng kinh khi đi du lịch và ở trong khách sạn Câu hỏi 142: Thưa thầy Lư Đài Trưởng , khi chúng con đi công tác hay du lịch nơi khác thì nên tụng kinh bài tập như thế nào? Đáp 142: Sau khi xuống máy bay hoặc các phương tiện giao thông khác, đến nơi, trước tiên trong tâm hãy thỉnh an Bồ Tát ở địa phương này : "Con XXX xin thỉnh an đến tất cả chư Phật, Bồ Tát và các chư vị thần tiên ở nơi này. Xin gia hộ cho con XXX bình an thuận lợi." Sau khi ở trong khách sạn, đầu tiên hãy niệm “Chú Đại Bi” bốn phía theo chiều kim đồng hồ, “Cầu xin Đại Từ Đại Bi Quán Thế Âm Bồ Tát gia hộ cho con bình an” (khi niệm Chú Đại Bi không được có ý niệm chiến đấu với linh giới), sau đó có thể niệm kinh bài tập và tụng kinh trong phòng . Nói chung, trường khí của khách sạn tương đối phức tạp, tốt nhất là không nên tụng “Tâm Kinh” và “Vãng Sanh Chú” trong khách sạn. Trước khi đi có thể nói với Bồ Tát là tụng hai bài kinh bài tập này trước hoặc tụng bù sau khi về nhà. Nếu tình huống quá khẩn cấp, cũng có thể tụng “Tâm Kinh” và “Vãng Sanh Chú” trong khách sạn, nhưng tốt nhất nên tụng vào ban ngày, tránh tụng vào ban đêm. Dù bận rộn đến đâu, ít nhất mỗi ngày cũng phải niệm kinh, dù chỉ niệm “Chú Đại Bi” vài biến cũng được. Nếu tụng Ngôi Nhà Nhỏ trong chuyến đi, có thể ghi lại số biến (lần) kinh đã niệm, sau đó về khách sạn chấm vào Ngôi Nhà Nhỏ. Nói chung không thích hợp để đốt những Ngôi Nhà Nhỏ trong khách sạn, ngoại trừ những trường hợp đặc biệt. —— Trích từ "Hỏi Đáp Phật Học Pháp Môn Tâm Linh “ Câu 142 2012-03-06

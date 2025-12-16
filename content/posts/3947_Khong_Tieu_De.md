@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.668Z
+draft: false
+url: "/2025/01/khong-nen-cam-ung-hay-thien-inh-khi.html"
+---
+
+Tiêu đề bài viết: Không nên cảm ứng hay thiền định khi niệm kinh Nội dung chi tiết: Người nghe nữ: Một đồng tu muốn hỏi Sư phụ. Khi niệm bài kinh Lễ Phật Đại Sám Hối Văn, có đồng tu sử dụng phương pháp này: thời gian niệm lễ Phật từ 8 đến 10 phút, thậm chí lâu hơn, trong khi niệm thì cố gắng cảm nhận ý nghĩa của kinh văn, nhưng không cưỡng ép. Hiện tại, khi niệm, họ cảm thấy có dòng khí nóng chảy qua. Xin hỏi làm như vậy có được không? Sư phụ: Không nên, không nên cảm ứng. Cảm ứng dễ bị sai, vì nếu cảm ứng không tốt thì có thể bị vong linh nhập thân. Nhiều người cảm ứng sai, con nghĩ rằng tất cả những gì từ cõi âm đều là năng lượng chính đáng sao? Có người trong lúc niệm kinh lại cứ thiền định kiểu như: “A Di Đà Phật, xin Ngài phù hộ cho con trúng xổ số này được không?” Vì bản thân con hỏi chuyện xổ số đã là sai rồi, làm sao Bồ Tát đến được? Lúc đó quỷ nhỏ sẽ đến, nó sẽ bảo con: “Bạn có thể mua, hãy mua thêm đi.” Kết quả, tất cả đều thua hết. Cờ bạc, những thứ như vậy vốn dĩ không nên đề cập với Bồ Tát! con làm sao biết được? Hiểu chưa? (Người nghe): Dạ, con hiểu rồi. Con cảm ơn Sư phụ đã khai thị! 念经时不要感应或冥想 Wenda20150703 18:05 念经时不要感应或冥想 女听众：同修想问师父，现在念礼佛大忏悔文有同修采取这种方法：礼佛时间八分钟到十分钟，甚至更长，在念的时候试图去感受经文的含义，不是强求的，他现在念的时候有丝丝的热气在流动。请问可不可以这样念？ 台长答：不要，不要去感应。感应会感应错的，因为感应得不好的话有灵性上身的。很多人感应错了呢？你以为冥界里边给你的都是正能量啊？有的人就是，不停地在念经的时候冥想，“啊呀，菩萨，您保佑我，看看我这个彩票能不能买”。因为你本身问彩票已经错了，所以菩萨怎么会来？那鬼来了，小鬼来了么就“你可以买的，你赶快要多买”。好了，全部输掉。赌博，你本身这种东西就不应该跟菩萨提的！你怎么知道啊？明白了吗？（好，明白。感恩师父开示！）

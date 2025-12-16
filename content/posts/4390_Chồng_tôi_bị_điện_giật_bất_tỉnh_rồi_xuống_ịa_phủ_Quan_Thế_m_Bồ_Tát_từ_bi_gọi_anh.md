@@ -1,0 +1,8 @@
+---
+title: "Chồng tôi bị điện giật bất tỉnh rồi xuống Địa phủ, Quan Thế Âm Bồ Tát từ bi gọi anh ấy trở về nhân gian"
+date: 2025-12-15T22:19:51.878Z
+draft: false
+url: "/2025/12/chong-toi-bi-ien-giat-bat-tinh-roi.html"
+---
+
+Cảm ân Nam Mô Bổn Sư Thích Ca Mâu Ni! Cảm ân Đại Từ Đại Bi Cứu Khổ Cứu Nạn Quảng Đại Linh Cảm Quan Thế Âm Bồ Tát Ma Ha Tát! Cảm ân Mười Phương Tam Thế Nhất Thiết chư Phật Bồ Tát cùng Long Thiên Hộ Pháp! Cảm ân Sư phụ! Cảm ơn các Sư huynh đệ! Tôi bắt đầu học Phật và niệm kinh từ năm 2016, vì trước đó tôi từng bị sẩy thai nhiều lần, muốn siêu độ cho các con. Tôi nghe nói người ăn chay trường thì niệm kinh chất lượng hơn, nên tôi đã phát nguyện ăn trường chay, sau đó lại phát nguyện không ăn trứng nữa. Trước đây tôi làm việc ở thành phố khác, mỗi sáng 6:30 phải ra khỏi nhà, 7:40 tối mới về đến nhà. Buổi trưa chỉ có 30 phút ăn cơm, thời gian rất eo hẹp. Nếu muốn phóng sinh thì chỉ có thể tranh thủ buổi sáng. Trước khi đi làm tôi đến chợ mua cá phóng sinh, nơi ấy thường có sương mù dày đặc, đi trên đường không nhìn rõ người đối diện, đi xe đạp rất khó khăn. Tôi biết ơn Bồ Tát gia trì, mỗi lần tôi đều bình an đến nơi bán cá, mua cá khỏi lưỡi dao, rồi vội vàng đến bờ sông phóng sinh. Vì thời gian quá gấp nên con chỉ đổ cá xuống sông rồi lại vội trở về để kịp đi làm. Vì vội vàng nên việc phóng sinh của con chưa được trọn vẹn theo nghi thức, đúng ra phải phóng sinh khi thời tiết tốt và làm theo đầy đủ các bước. Sau đó nhân duyên đầy đủ, tôi trở về quê tìm được công việc mới, có thời gian niệm kinh và phóng sinh. Tôi vô cùng biết ơn Bồ Tát.

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.363Z
+draft: false
+url: "/2025/02/khi-nguoi-khac-cong-kich-ban-hay-mim.html"
+---
+
+Tiêu đề bài viết: Khi người khác công kích bạn, hãy mỉm cười và bao dung. Nội dung chi tiết: Điều đó không sao cả. Hãy mỉm cười đáp lại sự mỉa mai của người đời, thử nghĩ xem bây giờ ai mà không mỉa mai? Đôi khi chúng ta phải bao dung trước những hiểu lầm, sai lầm của người khác, không nên nóng vội , Nhiều người khi làm việc gì cũng vội vã, điều đó thật mệt mỏi. 🌷Có những việc không nên nóng vội, Bạn phải chịu đựng sự sỉ nhục và không thay đổi, dù điều đó có sai, Ngay cả khi ai đó buộc tội bạn một cách sai lầm, bạn cũng đừng bào chữa cho mình. ~20160917 New York

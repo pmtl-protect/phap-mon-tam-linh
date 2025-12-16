@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.828Z
+draft: false
+url: "/2025/01/co-nen-thap-huong-au-nam-vao-dip-tet.html"
+---
+
+Tiêu đề bài viết: Có nên thắp hương đầu năm vào dịp Tết Dương lịch hay không? Nội dung chi tiết: Trước đây tôi chưa từng nói với mọi người, nhưng thực ra điều này là hoàn toàn có thể. Vì sao? Ngày đầu tiên của năm mới, theo truyền thống trong lòng người dân Trung Quốc, hoặc cả những người Hoa ở hải ngoại, bất kỳ một ngày lễ nào cũng đều có mối liên hệ với các dịp lễ trên trời. Ngày đầu tiên của năm mới chính là thời điểm thích hợp để thắp nén hương đầu tiên tại nhà. Bạn hỏi thì tôi nói với bạn thôi. Tất nhiên, nó không náo nhiệt như Tết Âm lịch, nhưng thực tế đây cũng là ngày đầu tiên, và việc thắp hương đầu năm vào ngày này cũng mang ý nghĩa lớn. Việc thắp hương đầu năm vào dịp Tết Dương lịch có thể mang lại sự thuận lợi trong nhiều khía cạnh của cuộc sống theo lịch dương. Còn đối với Tết Âm lịch, việc thắp hương vào ngày mùng 1 cũng có tác động rất lớn đối với cả “âm giới” và “dương giới”. Nói cách khác, nếu bạn thắp hương vào cả ngày đầu năm Dương lịch lẫn Âm lịch, chẳng phải đó là sự hài hòa, cân bằng giữa cả hai thế giới hay sao? (Wenda20121216A 34:32) 《逢元旦是否可以燒頭香》 過去沒有跟大家講過，但是實際上這個應該是可以的，為什麼？新年新氣象的第一天，你知道凡是在我們中國人的心中，或者在海外人心中，是一個節日的話，總會跟天上的節有關係。新年的頭一天是應該在家裡燒頭香的，你問到了我就告訴你們，當然不像中國人過年這麼熱鬧，實際上它也是頭一天，也是燒頭香的，在元旦燒頭香，可以給你帶來陽曆很多事情的順利。那麼陰曆燒頭香，年初一燒頭香，對中國人來講，對陰界和陽界都會產生很大的影響，也就是說，如果你陰曆的第一天和陽曆的第一天都燒頭香的話，那不是陰陽雙收嗎？ ～Wenda20121216A 34:32

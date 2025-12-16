@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.602Z
+draft: false
+url: "/2025/01/ba-ieu-kien-e-en-uoc-bo-tat-ao.html"
+---
+
+Tiêu đề bài viết: Ba điều kiện để đến được Bồ Tát đạo Nội dung chi tiết: Các con hãy ghi nhớ, ba điều kiện có thể đến được cõi Bồ Tát: ✨Thứ nhất, căn cơ; ✨Thứ hai, tu vi; ✨Thứ ba, nguyện lực. Hôm nay ta đã nói cho các con nghe rồi, thực ra đây cũng là thiên cơ, ba điều kiện này thiếu một điều nào cũng không được. Thứ nhất, đại nguyện. Rất nhiều người tu Phật tu đến sau này không có nguyện lực, “Chào bạn chào bạn, ta vẫn tu như vậy”, loại người này không thể lên được. Thứ hai, tu vi hiện tại. Bây giờ các con phải tu theo lẽ phải theo pháp, không được có chút nào lơ là, không được lui bước, không được thấy chết mà không cứu. Trước kia người ta nói “Tự mình quản lý tốt bản thân mình”, đó gọi là tu hành tốt sao? Ta nói cho các con biết, thấy chết mà không cứu chính là một tội, thấy nhiều người như vậy chịu khổ, các con không phát tâm, các con không phải là người, các con sẽ không tu được đến Bồ Tát, bởi vì các con không có tâm từ bi. Căn cơ, căn cơ của các con không tốt, kiếp này các con không thể lên được, mãi mãi không thể lên được. ✨✨✨ Wenda20170312A 06:53 《到菩薩道的三個條件》 你們記住了，三個條件可以到菩薩界： 第一，根基； 第二，修為； 第三，願力。 我今天已經講給你們聽了，其實這也是天機，三個缺一不可。 第一個，大願。很多人學佛學到後來沒願力的，“你好你好，我還是這樣修”，這種人上不去。 第二個，現今的修為。你現在要如理如法地修，不要有絲毫懈怠，不能有退轉，不能見死不救。過去人家說“我自己管管好自己”，這叫好好修行嗎？我告訴你，見死不救就是一個罪，看見這麼多人受苦，你沒有發心，你這個人就不是人，你就修不到菩薩，因為你沒有慈悲心。根基，你的根基不好，你這輩子上不去的，永遠上不去的。 ——Wenda20170312A 06:53

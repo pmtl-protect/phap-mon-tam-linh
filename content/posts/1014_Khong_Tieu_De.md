@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.056Z
+draft: false
+url: "/2025/08/hien-mau-co-uoc-tinh-la-lam-cong-uc_3.html"
+---
+
+Tiêu đề bài viết: Hiến máu có được tính là làm công đức không? Nội dung chi tiết: wenda20120115 68:35 Nữ thính giả: Hiến máu có được tính là việc làm có công không? Sư Phụ trả lời: vấn đề này có nhiều điều cần chú ý. Đầu tiên, hiến máu có tốt không? Cứu người là tốt. nếu như sử dụng ở 1 phương diện khác thì đó không phải việc tốt. Thứ hai, hiến máu có liên quan đến tình trạng bên trong cơ thể người đó. Nếu như người đó có nhiều máu hoặc có sức khỏe tốt. hiến một ít máu thì không có vấn đề. Nếu vốn dĩ cơ thể người đã đó không tốt mà còn hiến máu thì cơ thể càng yếu hơn. Con nói xem có công đức không? Bản thân con cũng không thể bảo vệ được chính mình, làm sao được gọi là công đức? Con nói hiến máu là tốt. Đúng. Vậy con có biết cơ thể này là ai cho con không? Tinh cha huyết mẹ phải không? Con đem mọi thứ vốn có trên cơ thể chính mình đi cho người ta, bản thân con không đủ. Có phải là con bất hiếu với cha mẹ không? Vậy có công đức không? Nữ thính giả: dạ không. Sư Phụ trả lời: Đây chính là đạo lý. Con phải chăm sóc tốt cho bản thân trước, rồi mới giúp đỡ người khác, khi đó mới gọi là có công đức. Còn nếu bản thân con chưa tốt mà đi giúp người khác, nói không chừng giúp còn tệ hơn. wenda20120115 68:35 《献血算不算做功德》 女听众：献血算不算功德？ 师父答：这里边就有讲究了。第一，献血是不是好？救人就是好，如果用到其他方面，那就不是个好事情了。第二，献血跟人的底蕴有关系，如果这个人血多或者身体很好，献点血没有问题。如果这个人身体本身就很不好，一献血身体更虚弱了，那你说有没有功德？你自己都不能保护好自己，你说怎么叫功德？你说献血是好，对。那么你知道身体是谁给你的？父精母血对不对？你把人体本身应该拥有的东西给人家了，你自己没有了，你是不是不孝顺父母啊？这有功德吗？（没有）就是这道理啊，你要在自己好了之后去帮助人家，才有功德。你自己都还没有好，你去帮助人家，说不定帮坏掉了呢。

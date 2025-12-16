@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.354Z
+draft: false
+url: "/2025/01/tai-sao-mot-so-nguoi-khong-tin-phat_26.html"
+---
+
+Tiêu đề bài viết: Tại sao một số người không tin Phật, không thờ thần mà vẫn được sinh lên thiên giới, trong khi những người thờ Phật, thờ thần lại xuống địa ngục. Nội dung chi tiết: Zongshu20200820 30:07￼ 🪷Tại sao một số người không tin Phật, không thờ thần mà vẫn được sinh lên thiên giới, trong khi những người thờ Phật, thờ thần lại xuống địa ngục.🪷 📥 Thính giả nữ: Thưa Sư phụ, con chào Ngài. Con muốn hỏi về một người đã qua đời, bà tên là Lý Quý Anh. 🪷Sư phụ: Con niệm bao nhiêu Ngôi nhà nhỏ cho bà ấy rồi? 📥 Thính giả nữ: Hơn 20 tờ ạ. 📤 Sư phụ: Bà ấy không dựa vào Ngôi nhà nhỏ của con, bà ấy tự mình lên rồi, rất giỏi. 📥 Thính giả nữ: Bà ấy lên rồi ạ? 📤 Sư phụ: Ừ, bà ấy ở thiên giới, còn gần với Bồ Tát nữa. 📥 Thính giả nữ: A? Con muốn hỏi, nguyên nhân gì khiến bà ấy được như vậy? Khi còn sống bà ấy không tin Phật cũng không thờ thần, tại sao lại như vậy ạ? 📤 Sư phụ: Nhiều người thờ Phật, thờ thần, tại sao vẫn xuống địa ngục? Cần xem họ là người tốt hay người xấu. Nếu con là người xấu, thờ Phật cũng vô ích, vẫn là kẻ xấu thờ Phật. Nếu con là người tốt, dù không thờ Phật thì ít nhất con cũng có thể tái sinh hoặc được lên cõi trời. Quan trọng là bản chất của con là người tốt hay người xấu. Nếu con là người xấu, dù có thờ Phật mà vẫn làm điều xấu, chẳng phải con vẫn xuống địa ngục sao? 📥 Thính giả nữ: Đúng ạ. Con cảm ơn Sư phụ. Zongshu20200820 30:07 《為何有人不信佛拜神卻往生天界，有人拜佛拜神還下地獄》 📥 女聽眾：師父，您好。想問一個亡人，李桂英（給她唸多少小房子了？）20多張。 📤 台長答：她不靠你的小房子，她自己上去了，很厲害的（她上去了？）嗯，她在天界，而且還靠近菩薩（啊？我想問她是什麼因果，她生前不太信佛也不拜神的。為什麼呢？） 很多人拜佛拜神，為什麼還下地獄？看人是好人壞人的。你是個壞人，拜佛都沒用，還是個壞人拜佛；你是個好人，就是沒拜佛的話，你至少可以投胎、可以到天道。要看你本質是個好人壞人的，如果是壞人，你拜了佛還要做壞事，不照樣下地獄？ （是。感恩師父）

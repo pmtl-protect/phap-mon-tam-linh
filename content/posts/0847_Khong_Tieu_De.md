@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.687Z
+draft: false
+url: "/2025/05/ua-be-bi-pha-thai-sau-khi-uoc-sieu-o.html"
+---
+
+Tiêu đề bài viết: Đứa bé bị phá thai, sau khi được siêu độ rồi đầu thai lại thì sẽ có nhân duyên như thế nào với người mẹ? Nội dung chi tiết: Wenda20111127 25:57 Nam thính giả hỏi: Thông thường nếu siêu độ nhiều hơn một chút cho đứa trẻ bị phá thai thì cũng có thể giúp nó được đầu thai, vậy sau khi đầu thai rồi, liệu nó có còn quan hệ nhân quả gì với người mẹ hoặc gia đình không ạ? Lư Đài Trưởng trả lời: Có, câu hỏi này của cậu rất hay, nhất định là có. Nếu nó đầu thai lại, thì nhất định sẽ đầu thai vào gần thân thích của người mẹ. Sau đó, người mẹ sẽ đặc biệt thích người này, rồi lại mang nợ người ấy, không ngừng cho tiền người ấy, thậm chí có người còn rơi vào mối tình "tình yêu chênh lệch tuổi tác", yêu đương chẳng hạn. Tại sao có người phụ nữ lại đặc biệt thích một người đàn ông nào đó? Thực ra, đó chính là đứa con bị phá thai trước đây của cô ấy, cô ấy mang nợ nó, rồi cuối cùng bị người đó bỏ rơi, đau khổ đến mức sống không nổi, thậm chí tự tử vì hắn — thực chất là đang trả nợ đấy. Hiểu chưa? (Hiểu rồi, trong đó còn có quan hệ đòi nợ – trả nợ.) Đúng vậy, giống như vậy đó. \*\*\* 打胎的孩子超度后投胎跟母亲会有什么样的缘分 摘自 Wenda20111127 25:57 节选（原文链接） 男听众：一般打胎的小孩超度多一点也是能够投胎的，投胎之后会不会还跟母亲或者家族有什么因果关系啊？ 台长答：有，你这个问题问得很好，绝对会有。他要是再投胎的话，他一定会投在他母亲的亲戚附近，然后呢这个母亲就特别喜欢这个人，然后就欠他，不停地给他钱，甚至有些人还会老少恋，恋爱啊，为什么有些人，女的会特别喜欢这个男的？实际上就是她打胎的孩子，欠他的，然后到时被他甩了她痛不欲生，为他自杀，实际上就是还债了，明白了吗？（明白，这里面还有讨债还债的关系）一样。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.657Z
+draft: false
+url: "/2025/02/mot-thanh-nien-tung-noi-voi-ai-truong.html"
+---
+
+Tiêu đề bài viết: Một thanh niên từng nói với Đài Trưởng: “Con rất khổ sở, con rất phiền não.” Nội dung chi tiết: Đài trưởng nói với anh ta: “Con phiền não, con đến bệnh viện xem thử, con sẽ không phiền não nữa.” Anh ta nói: “Con đã nhìn thấu nhân gian, con không muốn sống nữa.” ✨ Đài trưởng nói: “Con đến nghĩa địa đi dạo một vòng, con sẽ biết tại sao người ta phải sống. Con hôm nay còn sống, chứng tỏ con vẫn là người có Phúc” Hãy nghĩ đến người khác, hãy nhìn lại chính mình, tự nhiên con sẽ hiểu được, cuộc đời không đạt được gì cuối cùng sẽ đón nhận sự bi thương. Hãy học cách nghĩ thông suốt, quen với việc nghĩ thông suốt, xem mọi việc xảy ra ở nhân gian là điều bình thường, phải quen với việc mất mát, cũng phải quen với việc đạt được, điều này gọi là bình tĩnh trước vinh nhục. ✨✨✨ Ngày 27 tháng 8 năm 2017, buổi khai thị tại Đại hội hoằng pháp vạn người “Một vành đai, một con đường” Kuala Lumpur. Malaysia ☀️ 一个年轻人曾经跟台长说: “我很痛苦,我很烦恼。” ✨ 台长告诉他:“你很烦恼, 你到医院去看一看,你就不会烦了。” 他说:“我对人间看穿了,我不想活了。” ✨ 台长说:“你到坟上去走一走, 你就知道人为什么要活着。 你今天还活着,说明你还是有福之人。” 想一想别人,看一看自己, 你自然就会懂得, 一无所得的人生迎接的是最后的悲伤。 学会想得通,习惯想得通, 把人间发生的一切,看成是正常的, 要习惯于失去,也要习惯于得到, 这就叫宠辱不惊。 ✨✨✨ 2017年8月27日吉隆坡“一带一路”万人弘法解答会开示 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.543Z
+draft: false
+url: "/2025/04/van-e-tho-phung-hai-tuong-quan-am-bo-tat.html"
+---
+
+Tiêu đề bài viết: Vấn đề thờ phụng hai tượng Quán Thế Âm Bồ Tát Nội dung chi tiết: Wenda20150802B 35:48 Nữ thính giả: Đệ tử vừa thay bàn thờ mới, trên đó có thờ Quán Thế Âm Bồ Tát, trong đó có một tượng Bạch Y Quan Âm mà con thỉnh từ trước, một tượng Quán Thế Âm Bồ Tát của Đài Đông Phương, và chính giữa là Đức Phật Thích Ca Mâu Ni. Con đặt tượng Quán Thế Âm của Pháp môn Tâm Linh bên trái Đức Phật, còn tượng Bạch Y Quan Âm bên phải, như vậy có đúng không? Lư Đài Trưởng: Được, như vậy là đúng. (Con có cần thỉnh an riêng từng vị không? Hình như là trước tiên con thỉnh an Quán Thế Âm Bồ Tát của Pháp môn Tâm Linh, sau đó mới thỉnh an Quán Thế Âm Bồ Tát mà con đã thỉnh về nhà từ trước, có đúng không?) Cách nào cũng được. (Vậy có cần phân biệt rõ ràng không, hay có thể thực hiện cùng một lúc?) Hãy nhớ rằng, chỉ cần phân biệt rõ giữa Thần, Tiên với Phật và Bồ Tát là được. Miễn là không thờ chung Thần và Phật, hoặc Tiên và Bồ Tát thì không vấn đề gì. (Vậy hai tượng Quán Thế Âm Bồ Tát với hình tượng khác nhau có thể đặt cùng nhau không?) Không sao cả, có thể đặt cùng nhau. (Ồ, vậy là không cần phải tách ra nữa. Con xin cảm ơn Sư phụ!) \*\*\* 供奉两尊观世音菩萨像的问题 Wenda20150802B 35:48 女听众：弟子刚换新的佛台，有供奉观世音菩萨和自己之前请的白衣观世音菩萨，还有东方台的观世音菩萨，释迦牟尼佛就供奉在中间对吗？心灵法门的观世音菩萨，弟子就供在释迦牟尼佛的左手边，白衣观音供奉在释迦牟尼佛的右手边可以吗？ “卢台长”答：可以的（必须是不同的请安方式吗？好像说先跟心灵法门的观世音菩萨请安，然后又跟弟子家里的观世音菩萨请安，是这样吗？）一样，都可以（要分开吗？还是一起？）记住，只要神和佛和菩萨分开就可以了，仙和神，和菩萨和佛分开就可以了（是两尊不同形象的观世音菩萨可以一起……）没关系的（哦，不用分开了。感恩师父）

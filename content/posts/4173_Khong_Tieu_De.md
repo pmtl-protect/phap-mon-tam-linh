@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.218Z
+draft: false
+url: "/2024/12/khi-co-tai-hoa-co-dung-cong-uc-e-tieu.html"
+---
+
+Tiêu đề bài viết: KHI CÓ TAI HỌA, CÓ THỂ DÙNG CÔNG ĐỨC ĐỂ TIÊU NGHIỆP CHƯỚNG, TRẢ NỢ TRƯỚC RỒI MỚI TÍCH LŨY SAU Nội dung chi tiết: Hỏi: Trong việc hoằng pháp độ người, con thường gặp phải một số sư huynh làm rất nhiều công đức, nhưng khi gặp đại nạn lại không muốn lấy công đức ra dùng để tiêu nghiệp, muốn giữ lại công đức để sau này về trời. Xin Sư phụ khai thị. Trả lời: Ví dụ đơn giản, nếu ngày hôm nay quý vị có tiền, cần duy trì các chi tiêu sinh hoạt hàng ngày của gia đình mình phải không? Nếu bây giờ quý vị ăn không đủ no mặc không đủ ấm, ốm đau khắp người, quý vị nói: “Tôi để dành sau này làm việc khác”, đến nổi cái thân của quý vị không còn nữa, thì sao quý vị có thể làm những việc khác? Quý vị tiết kiệm nó cuối cùng để mua một chiếc quan tài à? Quý vị phải ăn no trước đã, hiện tại nghiệp mới cần tiêu trước, nghiệp cũ cũng phải tiêu, đương nhiên quý vị không thể tiết kiệm, tiết kiệm là khi nhà có dư. Quý vị không có dư dả, vong linh đang theo đuổi quý vị mỗi ngày, và tất cả các tổ hợp kinh điển Ngôi Nhà Nhỏ mà quý vị đọc đều được tích lũy lại… Đây là nơi con nợ mỗi ngày đến cửa của quý vị, quý vị tiết kiệm tất cả số tiền kiếm được, để cuối cùng quý vị bị người khác chặt đứt tay rồi. Wenda20171124 18:25 有劫难时可用功德消业障，先还债再储存 女听众：在弘法度人中经常碰到，有的师兄做了很多功德，遇到很大的劫难也不肯拿出来用于消除业障，想保留着用作将来回天的资粮。请师父开示一下。 台长答：举个简单例子，你今天有钱，家里正常的开销要维持吧？（嗯）如果你现在吃不饱穿不暖，浑身都是病，你说“我以后留着还要做其他事情”，你连身体都没了，你还能做什么其他事情？你留着最后就是买棺材啊？你要先吃饱，现在新业要先消掉，旧业也要消，你当然不能攒存了，攒存是家里有盈余的情况下。你没有盈余，灵性天天追着你，你念出的小房子又全部存起来……就是这里天天要债的上门，你把赚的钱全部存起来，最后你被人家把手都砍掉了。

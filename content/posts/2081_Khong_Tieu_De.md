@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.719Z
+draft: false
+url: "/2025/02/nen-sieu-o-ua-be-bi-pha-thai-cang-som.html"
+---
+
+Tiêu đề bài viết: Nên siêu độ đứa bé bị phá thai càng sớm càng tốt, càng trì hoãn càng nợ nhiều Nội dung chi tiết: Nữ thính giả: Có một đồng tu năm nay bản mệnh, phạm Thái Tuế, hiện tại cô ấy mỗi ngày ở nhà niệm Ngôi nhà nhỏ, niệm kinh, không đi làm. Trước đây khi mới học Phật cô ấy đã niệm 600 tấm Ngôi nhà nhỏ cho đứa bé bị phá thai, nhưng gần đây khi niệm kinh ngủ thiếp đi cô ấy thấy một vài đứa trẻ như đang xếp hàng nhận thứ gì đó, mơ thấy những đứa trẻ khác nhau, đứa thì chỉ bằng bàn tay, đứa thì không mặc quần áo… Cô ấy muốn hỏi thầy, đây có phải là cô ấy cần phải tiếp tục niệm kinh cho những đứa bé bị phá thai không ạ? ☀️ Đài Trưởng: Chắc chắn rồi. Con cần phải nhớ, càng trì hoãn càng nợ nhiều, nó không có lãi suất sao? Lãi suất này chính là sự oán hận của đứa trẻ đối với con, con đã hại chết nó, linh hồn của nó chỉ cần một ngày chưa đầu thai, nó sẽ bám theo con, hiểu chưa? 🌻 (Dạ Hiểu , con sẽ tiếp tục niệm. Cảm ơn thầy) ☀️【打胎孩子要盡早超度，越拖欠得越多】 ✨✨✨ Wenda20200719 22:43 🌻 女聽眾：有一個同修今年本命年、犯太歲，她現在每天都是在家念小房子、念經，都沒有上班。她之前剛學佛時就已經念了600張的組合給打胎的孩子， 但是最近她念經睡著的時候看到了幾個孩子好像在排隊領什麼，有夢到不同的孩子，有的只有巴掌大，有的沒穿衣服……她想請問師父，這個是她還需要給打胎的孩子念經文組合嗎？ ☀️ 台長答：肯定的。你要記住了，拖得越久，欠得越多，它沒有利息的？這個利息就是孩子對你的恨，你把他打死了，他的靈魂只要哪一天沒有投胎，他就盯住你，明白了嗎？（明白了，就接著念。感恩師父） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.986Z
+draft: false
+url: "/2025/08/oan-gia-sau-nang-thi-nen-tung-giai-ket.html"
+---
+
+Tiêu đề bài viết: Oan gia sâu nặng thì nên tụng Giải Kết Chú để hóa giải như thế nào? Nội dung chi tiết: Nữ thính giả Vào thời mạt pháp, nghiệp chướng bùng phát rất nhanh, oan gia giữa người với người cũng rất sâu. Xin hỏi Sư phụ, làm sao để phán đoán khi nào thì nên tụng Giải Kết Chú nhiều hơn, khi nào thì nên tụng Ngôi Nhà Nhỏ cho những người cần kinh (oan gia trái chủ)? Đài trưởng Rất đơn giản. Nếu hai người đã có bất đồng ý kiến, thì trước tiên hãy tụng Giải Kết Chú. Nếu tụng Giải Kết Chú không hiệu quả, thì phải tụng Ngôi Nhà Nhỏ. Cũng giống như việc đầu tiên là xoa bóp, bấm huyệt. Nếu không được thì phải tiêm, không được nữa thì uống thuốc, rồi nếu vẫn không được thì phải phẫu thuật. Luôn là quy trình như vậy (Tức là ưu tiên tụng Giải Kết Chú trước ạ?). Đương nhiên rồi, tụng Giải Kết Chú là giải quyết việc nhỏ. Con đừng xem những chuyện này là lớn. Nếu không hóa giải được oan gia thì lúc đó sẽ đến Ngôi Nhà Nhỏ (Con đã hiểu, con cảm ơn Sư phụ đã chỉ dạy). Trong quá trình con dịch và chia sẻ nếu có gì chưa đúng lý, đúng pháp xin chư Phật, Bồ Tát,Long thiên hộ pháp , Sư phụ từ bi tha thứ cho con wenda20141205 07 03 冤结深应如何念经化解 女听众 末法时期业障爆发得很快 人和人之间的冤结也很深 请问师父如何判断应该是多化解冤结 还是多念要经者的小房子 台长答 那很简单了 如果两个人已经有意见了 先念化解冤结的 化解冤结不行的话 就是小房子了 总归是先给你推拿推拿 按摩按摩 不行的话么就是打针 再不行么去吃药 再不行么开刀 总归是这个程序啊 就是以先念化解冤结的为主 那当然了 化解冤结是小的啊 你不要把这些事情来当一个大的 冤结化解不掉的话就小房子来了啊 明白了 感恩师父开示

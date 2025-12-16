@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.565Z
+draft: false
+url: "/2025/08/ngoi-nha-nho-hoa-giai-thai-tue-co-ot.html"
+---
+
+Tiêu đề bài viết: Ngôi nhà nhỏ hóa giải Thái Tuế có thể đốt chia đợt Nội dung chi tiết: Wenda20180223 47:06 Nam thính giả: Thưa Sư phụ, gần đây chúng con nói về hóa giải Thái Tuế, cần đốt một lần 27 tờ nnn. Có một số đồng tu thắc mắc, có thể gần đây niệm nnn nhiều, không thể một lần đốt hết 27 tờ, vậy có thể chia ra đốt không? Đài Trưởng: Đốt 7 tờ một lần là tốt nhất, 3 tờ hoặc 7 tờ đều được (Tức là đối với Thái Tuế, 27 tờ cũng có thể chia ra đốt, có phải không?) Đương nhiên. Có thể dùng công đức pháp hội để hóa giải Thái Tuế năm sau trước không? 79. Huyền Nghệ Vấn Đáp 20180629 4. Wenda20180629 34:38 Nữ thính giả: Thưa Sư phụ, có thể dùng một phần công đức pháp hội để hóa giải Thái Tuế năm sau trước được không ạ? Đài Trưởng: Được (Thưa Sư phụ, nên cầu nguyện thế nào?) "Cầu Quán Thế Âm Bồ Tát đại từ đại bi, dùng công đức pháp hội của con tên... để tiêu trừ tam lục cửu kiếp của con." Đều có thể nói (Hóa giải Thái Tuế cũng có thể nói vậy phải không ạ?) Được. Wenda20180223 47:06 犯太岁的小房子可分批烧送 男听众：师父，最近我们说犯太岁菩萨，一次性烧27张小房子。有的师兄想问，可能最近念的小房子比较多，一次性烧不了27张，可不可以分开升呢？ 台长答：7张7张升最好，3张、7张都好（就是针对犯太岁菩萨，27张也可以分开升，是不是？）那当然。 79. 玄艺问答20180629 4. Wenda20180629 34:38 可否用法会功德提前化解明年的太岁 女听众：请问师父，能不能用法会的一部分功德提前化解明年的太岁呢？ 台长答：可以的（请问师父，怎么祈求呢？）“求观世音菩萨大慈大悲，能够用我某某某法会的功德消除我三六九劫。”都可以讲（化解太岁也可以这么说的，对吧？）可以。

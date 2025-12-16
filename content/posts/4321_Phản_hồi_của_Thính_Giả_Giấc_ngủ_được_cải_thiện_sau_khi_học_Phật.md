@@ -1,0 +1,8 @@
+---
+title: "Phản hồi của Thính Giả: Giấc ngủ được cải thiện sau khi học Phật."
+date: 2025-12-15T22:19:51.684Z
+draft: false
+url: "/2025/12/phan-hoi-cua-thinh-gia-giac-ngu-uoc-cai.html"
+---
+
+Phản hồi của Thính Giả: Giấc ngủ được cải thiện sau khi học Phật. Nữ Thính Giả: Đài Trưởng, con muốn chia sẻ một chút, trước khi con học Pháp Môn Tâm Linh, con có vấn đề về giấc ngủ, sau khi con tu Pháp Môn Tâm Linh, giấc ngủ đã được cải thiện, con có thể ngủ được rồi. Cảm ơn Đài Trưởng! Đài Trưởng đáp: Tức là trước khi con học Phật, tâm linh của con thường bất an, buồn phiền, không buông bỏ được, sau khi học Pháp Môn Tâm Linh một thời gian ngắn, bây giờ tâm linh con đã buông xả rồi, đúng không? Học đến bây giờ ngày càng vui vẻ hơn rồi. Nữ Thính Giả: (Con có nhờ Đài Trưởng xem Đồ Đằng, Đài Trưởng nói trên người con có Vong Linh nên ảnh hưởng đến giấc ngủ, bây giờ đã tốt hơn rồi). Đài Trưởng đáp: Bây giờ đã tốt hơn rồi, vậy chính là do học Phật, niệm kinh, tâm tính con bây giờ cũng tốt hơn trước một chút rồi. Nữ Thính Giả: (Hì hì…) Đài Trưởng đáp: Đừng để giọng nói nhỏ nhẹ của con đánh lừa, con có thể rất to tiếng khi tức giận. Nữ Thính Giả: (Hì hì…) Đài Trưởng đáp: Tất cả chỉ là giả vờ. Con phải thay đổi những thói hư tật xấu của mình, hiểu không? Nữ Thính Giả: (Vâng, đúng đúng đúng. Cảm ơn Đài Trưởng, cảm ơn Quán Thế Âm Bồ Tát). Đài Trưởng đáp: Tạm biệt. wenda20141031 43:38 听众反馈学佛后睡眠改善 女听众：台长，我想分享一下，我还没学心灵法门之前，睡眠有问题，我修心灵法门过后睡眠有改善了，能够睡了。谢谢台长！ 台长答：就是你没有学佛之前，你的心灵经常地纠结、难过、放不下，学了心灵法门很短的时间，你现在心灵就放下了，对不对啊？学到现在越来越开心了（我给台长看过图腾，台长说我身上有灵性，所以影响睡眠，现在好一点）现在好一点了，那么就是学佛、念经，你现在脾气也比过去好一点了（呵呵）你别看你讲话声音这么轻，发起脾气来很响啊（呵呵……）都会装啊，一定要改毛病，听得懂吗？（好，对对对。谢谢台长，谢谢观世音菩萨）再见。

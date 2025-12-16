@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.537Z
+draft: false
+url: "/2025/02/van-e-ve-viec-cau-xin-bo-tat-gia-tri.html"
+---
+
+Tiêu đề bài viết: Vấn đề về việc cầu xin Bồ Tát gia trì Nội dung chi tiết: wenda20150320  21:27 Vấn đề về việc cầu xin Bồ Tát gia trì 🪷🙏🏻 📞Thính giả nữ: Đồng tu hỏi có thể cầu xin như thế này không ạ: “Bồ Tát gia trì cho con có trí huệ vô lượng, ánh sáng vô lượng, giác ngộ vô lượng, năng lượng chính niệm vô lượng.” Cầu xin như vậy có được không ạ? Có phải cần rất nhiều công đức không? 🪷Lư Đài Trưởng: Con phải nhớ, chỉ nói bằng miệng thì vô ích. Nói hay đến đâu cũng vô ích, không có năng lượng thì có ích gì chứ? Bản thân con phải có năng lượng, khi nói ra thì mới phát ra năng lượng. Nếu con không có năng lượng, chỉ nói bằng miệng thì có ích gì? (Đồng tu muốn hỏi rằng khi niệm Ngôi nhà nhỏ, có thể cầu xin như vậy để tâm được tĩnh lặng, niệm Ngôi nhà nhỏ được tốt hơn không?) Con nói gì cũng được, quan trọng nhất là bản thân con phải thực hành, phải có năng lượng. (Nếu có năng lượng rồi, cầu xin như vậy có cần nhiều công đức không ạ?) Đương nhiên là cần rồi. (Vậy thôi con không cầu xin nữa, giữ công đức lại thì hơn.) Đúng rồi, vốn dĩ đã không có nhiều, cầu xin là mất hết đó. (Con cảm ơn Sư phụ!) wenda20150320  21:27 有关祈求菩萨加持的问题 女听众：同修问可不可以这样祈求：菩萨加持超无量觉悟、无量的光明﹑无量的智慧、无量的正能量。这样求可不可以？是不是用很多功德？ 台长答：你记住了，嘴巴讲没用的。讲得再好没用的，没有能量有什么用啊？你自己本身要有能量，这么讲才会有能量出来啊。你没有能量，嘴巴里讲有什么用啊？（同修想问念小房子的时候可不可以这样求，把心静下来，念小房子能够好一些啊？）你讲什么都可以，最主要问题你自己要做到，要有能量（要是有能量，他求这个是不是要用很多功德？）那当然了（还是不要求了，把功德留着吧）对了，本来就不多，一求都求光了（感恩师父！）

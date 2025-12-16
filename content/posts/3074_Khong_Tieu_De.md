@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.162Z
+draft: false
+url: "/2025/04/neu-khong-niem-kinh-tra-no-chi-co-dung.html"
+---
+
+Tiêu đề bài viết: Nếu không niệm kinh trả nợ chỉ có thể dùng thân xác trả nợ, thời mạt pháp phải tinh tấn. Nội dung chi tiết: Thính giả: xin hỏi Đài Trưởng lời sau đây có phải là lời khai thì của sư phụ không? “nếu không muốn niệm kinh, còn có cách nào khác để trả nợ cho những nghiệt chướng vong linh đó không? Vậy chỉ có chịu đựng thôi, con không niệm kinh thì sẽ bị bệnh, bệnh tật cũng là trả nợ, cơ thể đau chỗ này, nhức chỗ kia, những điều đó đều là đang tiêu nghiệt chướng, khi chết đi cũng là trả nợ, hơn nữa khi chết sẽ bị các oan hồn đến kéo đi, rất đau đớn. Nếu con có kiên trì niệm kinh, khi chết sẽ không đau đớn , con cũng thăng thiên rồi. Bây giờ con phải suy nghĩ rõ ràng, con muốn trả nợ bằng xác thể hay trả bằng niệm kinh? Thời mạt pháp các con chỉ có tinh tấn, hơn nữa phải nhanh chóng, không nghiêm túc để tiến bộ thì sẽ thụt lùi.” Đài Trưởng: là lời khai thị của sư phụ. Dùng thân xác để trả nợ là không trả hết được, có những món nợ dù làm trâu làm ngựa mấy trăm kiếp cũng trả không hết. Lư Đài Trưởng khai thị giải đáp thư thắc mắc (phần 153) 不念经只能用肉身还债， 末法时期要精进 。 问：请问如下是台长的开示吗？“　“如果不想念经，　还有其他什么方法来还那些灵性的孽障，　那就是受啊，　你不念经你就生病，　生病也是还债，身上东痛西痛，这些也是在消孽障，　死的时候实际上还债了，　而且死掉时要碰到那些鬼来拉，　很痛苦。　你如果坚持念经，　死的时候就不痛苦了，你都上去了。　现在你得想清楚，　你愿意用肉体还，还是用念经还？末法时期你们只有精进而且要快，　不好好的进步就是倒退。” 台长答：是师父开示。　肉体还债是换不完的，　有些债务做牛做马几百世也换不完的。

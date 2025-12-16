@@ -1,0 +1,8 @@
+---
+title: "Nghiệp chướng dưới 10% thì sẽ sinh vào đạo nào?"
+date: 2025-12-15T22:19:51.655Z
+draft: false
+url: "/2025/12/nghiep-chuong-duoi-10-thi-se-sinh-vao.html"
+---
+
+Nghiệp chướng dưới 10% thì sẽ sinh vào đạo nào? Nam thính giả: Sư phụ, trước đây Sư phụ từng khai thị rằng nếu nghiệp chướng dưới 10% thì chắc chắn sẽ siêu thoát khỏi lục đạo (Đúng vậy). Vậy nếu nghiệp chướng trong khoảng 5% đến 10%, thì sẽ được sinh vào đạo nào trong Tứ Thánh Đạo? Đài Trưởng đáp: Thông thường, nếu nghiệp chướng dưới 10%, về cơ bản là đã lên được trên rồi, tức là thoát khỏi lục đạo rồi. Sau khi thoát khỏi lục đạo, Căn cứ vào nghiệp lực của bản thân Con, căn cứ vào bản thân con đã tu hành trong quá khứ, tu theo pháp môn nào, sẽ đến các đạo khác nhau. Lúc này không còn nhiều hạn chế, chủ yếu phân biệt giữa Tiểu thừa và Đại thừa. Nếu con lên được nhờ cứu người, chủ yếu dựa vào việc học Phật và cứu người, thì thông thường con sẽ đến Bồ Tát đạo hoặc Phật đạo. Nếu con lên được nhờ bản thân tự tu, hoàn toàn tự kiểm soát bản thân, tuân thủ nghiêm ngặt các giới luật, giữ gìn sự trong sạch,không làm điều gì sai trái, tư duy , ý niệm rất sạch sẽ, thì về cơ bản con sẽ đến Thanh Văn đạo hoặc Duyên Giác đạo. Shuohua20170901 05:14 业障10%以内会进入哪个道 男听众：师父，您以前开示过，业障比例低于10%一定会超脱六道（对）那在5%～10%以内是进入四圣道的哪一个道呢？ 台长答：一般的，10%以内，基本上就是上去了，就是脱离六道了。脱离六道之后，根据你自己的业力，根据你过去的修为，修哪个法门的，就会到不同的道。这已经没有太多的禁忌了，主要是分小乘和大乘：你如果是救人上去的，主要靠的是学佛救人，那你一般都是到菩萨道和佛道；如果你靠自己自修上去的，完全是管住自己，严守戒律，非常守自己的贞节，不乱来，思维啊，意念啊，如果很干净，那你基本上能到声闻道、缘觉道。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.945Z
+draft: false
+url: "/2025/03/con-luon-luon-nghi-ve-mat-chanh-niem.html"
+---
+
+Tiêu đề bài viết: Con luôn luôn nghĩ về mặt chánh niệm, nghĩ về mặt tích cực, con sẽ vui vẻ, cõi tịnh độ ở trong lòng con, đúng vậy không nào ? Nội dung chi tiết: ♨️♨️♨️ Sư Phụ nói với Quý Vị, trong lòng nếu có chánh niệm, nhân gian chính là cõi tịnh độ từ bi. Một người sẵn lòng giúp đỡ người khác, chưa từng vì bản thân, ngày ngày đi giúp đỡ người khác, ai cũng thích người đó, ai cũng muốn nhìn thấy người đó, người đó không ngừng giúp đỡ người này giúp đỡ người kia, ai cũng thích người đó, vậy chẳng phải con đang sống trong một vùng đất tịnh độ sao? Chuyện nhỏ xíu cũng khiến con tức giận, cần phải biết không được tức giận. Người ta nói ta gầy, ngàn vàng khó mua được gầy lúc già; người ta nói ta béo, béo là phúc khí đấy, có gì không tốt? Người nào có phúc khí mà không béo? Ta có nhiều phúc khí đấy. Con luôn luôn nghĩ về mặt chánh niệm, nghĩ về mặt tích cực, con sẽ vui vẻ, cõi tịnh độ ở trong lòng con, đúng vậy không nào ? ～Bạch thoại Phật pháp 10-15《Tự tin dựa vào chánh niệm》 ♨️♨️♨️ 師父告訴大家，心中若有正念，人間就是慈悲的淨土。一個願意幫助別人，從來不為自己，天天去幫助別人的人，大家都喜歡他，大家都願意看到他，他不停地幫助這個，幫助那個，誰都喜歡他，那你不就是生活在一片淨土上嗎？一點點小事都會讓你生氣，要知道不能生氣啊。 人家說我瘦，千金難買老來瘦；人家說我胖，胖是福氣啊，有什麼不好？哪個有福氣的人不胖？我多有福氣啊。你總是把它往正念上想，往好的地方想，你就開心了，淨土就在你的心中，對不對？ ～白話佛法 10-15《自信靠著正念》 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

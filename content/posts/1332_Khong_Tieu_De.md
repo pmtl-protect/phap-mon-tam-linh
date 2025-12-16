@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.756Z
+draft: false
+url: "/2025/01/chi-niem-ngoi-nha-nho-ma-khong-niem.html"
+---
+
+Tiêu đề bài viết: Chỉ niệm Ngôi nhà nhỏ mà không niệm kinh bài tập cho người sống thực vật có được không Nội dung chi tiết: Wenda20140509 01:27:36 Người nghe nữ: Anh trai của một đồng tu năm ngoái bị tai nạn giao thông, hiện giờ là người sống thực vật, phải dựa vào thức ăn lỏng qua ống dẫn để duy trì sự sống. Cô ấy nên niệm kinh bài tập và Ngôi nhà nhỏ như thế nào cho anh ấy? Anh trai cô ấy vừa qua sinh nhật 33 tuổi vào tháng Một năm nay. Đài Trưởng đáp: Đã là người sống thực vật rồi, đây chính là quả báo. Về cơ bản, hồn của anh ấy đã bị kéo xuống dưới để chịu hình phạt. Chỉ là dương thọ của anh ấy vẫn chưa hết, nên vẫn chịu khổ ở nhân gian, nhưng linh hồn đã bị kéo xuống dưới. Trường hợp như vậy rất khó cứu. (Nếu cô ấy chỉ niệm Ngôi nhà nhỏ mà niệm kinh bài tập, có được không?) Niệm không đủ để tỉnh lại, trừ khi thông qua Bồ Tát để xuống địa phủ… Anh ấy có nguyện lực lớn lao nào không? Con thử nhìn những người bị giam trong ngục xem, họ đều rất đáng thương, dường như không nói gì. Nhưng nếu con thấy cảnh họ giết người, lừa đảo thì sẽ khác. Họ đã lừa người đến mức nào, đã làm hại người khác ra sao. Khi họ làm điều ác, không còn cách nào khác. Thần Hộ Pháp đều nhìn thấy hết những điều này. Dù từ bi, nhưng cũng không thể không tính đến những việc họ đã làm \*\* 为植物人只念小房子不念功课可以吗 Wenda20140509 01:27:36 女听众：同修的哥哥去年遇车祸，目前是植物人，必须靠流质液体从饲管喂食。他应如何为这个念功课和念小房子呢？他哥哥今年一月刚过33岁的生日。 “卢台长”答：已经是植物人了，这个是报应了，基本上魂已经拉到下面去惩罚了。只不过让他阳间里还受着，因为他阳寿未尽，但是人的魂已经拉下去了。所以像这种情况，这种人很难救了（如果他光念小房子不做功课，行吗？）念不醒的，除非通过菩萨到地府去……他有什么大的愿力？你去看看关在监狱里的人，他们都蛮可怜的，好像不讲话，你没看他杀人那种样子，你没看他骗人那种样子，把人家骗得……你看看他坏的时候，没有办法。护法神都看得见他们这些，慈悲的话，就不去计较他们这些事情。 \*

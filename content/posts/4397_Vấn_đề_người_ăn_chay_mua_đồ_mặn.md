@@ -1,0 +1,8 @@
+---
+title: "Vấn đề người ăn chay mua đồ mặn"
+date: 2025-12-15T22:19:51.899Z
+draft: false
+url: "/2025/12/van-e-nguoi-chay-mua-o-man.html"
+---
+
+Wenda20121014A 05:46 Hỏi: Người lo việc nội trợ trong nhà, nếu bản thân họ ăn chay, bình thường nếu đi mua sắm, mua đồ mặn về thì có bị nghiệp chướng bám thân không ạ? Đáp: Nếu không phải là mua đồ sống thì sẽ đỡ hơn. (Ồ.) Chắc là sẽ không đâu. Chỉ là từng miếng từng miếng, vì chưa phải ăn chay trường hoàn toàn mà, nên mua một chút cũng được. (Nếu là người ăn chay trường hoàn toàn mà làm như vậy thì không tốt lắm phải không ạ?) Đương nhiên tốt nhất là không nên làm như vậy. Thực ra nếu đã làm rồi thì nghiệp chướng này cũng sẽ không lớn lắm. Wenda20121014A 05:46 Hỏi: 一般在家里主持家务的，他本身假如是吃素的，平时如果去shopping、买东西，买荤的东西会不会有孽障上身啊？ Đáp: 买的不是活的就好一点 （噢） 应该不会的，一般这么一块块一点点，没有完全吃素嘛，买一点也是可以的 （如果完全吃素的人这样做就可能不太好？） 当然最好不要这么做，实际上做了，这个业障不会太大的。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.123Z
+draft: false
+url: "/2024/11/giai-ket-chu-co-tac-dung-hoa-giai-ac.html"
+---
+
+Tiêu đề bài viết: Giải Kết Chú có tác dụng hóa giải ác duyên Nội dung chi tiết: (1) Kiên trì niệm thông 《Giải Kết Chú》để hóa giải ác duyên, mới có thể duy trì thiện duyên Shuohuo 20-01-2012 🔹Thính giả: Vợ chồng không hòa thuận nên tụng kinh gì? 🔸Đài trưởng : Niệm Giải Kết Chú và niệm Tâm Kinh cho đối phương. 🔹Thính giả: Niệm Giải Kết Chú càng về sau càng thấy ghét đối phương, sao lại như vậy ? Con không dám niệm nữa. 🔸Đài trưởng : Điều này có nghĩa là ác duyên dần dần được tiêu trừ, và chỉ còn lại thiện duyên. Không thể không niệm nó, đây là trải qua một quá trình, giống như trước kia con chưa đi khám bệnh, con nói "Bác sĩ ơi, tôi đau quá, có thể giúp tôi khám được không ?", bác sĩ đến khám cho con và sau đó sẽ tiêm cho con, \[thì con nói\] “Bác sĩ, lúc đầu tôi không cảm thấy đau, tại sao ông giúp tôi tiêm thì bị đau lại rồi?" nhưng khi tiêm xong thì về sau sẽ không đau nữa . 🔹Thính giả: Nếu cho rằng có đối phương thì con không chắc là có không, vì anh ta thường xuyên ở bên ngoài rượu chè be bét, xã giao rất nhiều, không biết bên ngoài anh ta có ai không, chuyện này con có thể niệm Giải Kết Chú không? 🔸Đài trưởng : Hoàn toàn có thể niệm. Trích từ Hôn nhân & tình cảm (Tập1) 4. 解结咒具有化解恶缘的效果 (1)坚持念诵解结咒化解恶缘,才能保有善缘(2012 年 1月20日《直话直说》 听众:夫妻之间感情不好应该念什么经? 台长:念解结咒,念心经给对方。 听众:解结咒念到最后感觉越来越讨厌对方,这怎么回事?我不敢念了。 台长:这是恶缘慢慢去掉,然后剩下来才有善缘。不 能不念的,这有一个过程,就像你从前没去看病之前,你 说“医生啊我痛得不得了,你帮我看看好吗”,人家医生 来帮你看了,接下来帮你打针了,“医生啊我本来还没那 么痛呢,你帮我打针怎么痛起来了啊”。那打完针以后就 不痛了嘛。 听众:如果对方,我也不确定有没有那个,因为他经 常在外面花天酒地,应酬比较多,我也不知道他在外面有 没有人,这个我能不能念解结咒呢? 台长:完全可以念。

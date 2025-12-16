@@ -1,0 +1,117 @@
+{{ define "main" }}
+<article class="post-entry">
+    <h1 class="post-title">{{ .Title }}</h1>
+    <div class="post-meta">
+        <span>📅 Đăng ngày: {{ .Date.Format "02/01/2006" }}</span>
+    </div>
+    
+    <hr style="border:0; border-top:1px solid #eee; margin:20px 0;">
+
+    <div id="reader-controls">
+        <select id="voice-select" class="reader-select">
+            <option value="female">👩 Giọng Nữ</option>
+            <option value="male">👨 Giọng Nam</option>
+        </select>
+        <select id="rate-select" class="reader-select">
+            <option value="1">👤 Vừa</option>
+            <option value="1.2">🐇 Nhanh</option>
+            <option value="0.8">🐢 Chậm</option>
+        </select>
+        <button id="speak-btn" class="reader-btn">🔊 Đọc ngay</button>
+        <button id="stop-btn" class="reader-btn">⏹️ Dừng</button>
+        <div id="reader-status" class="reader-status">Sẵn sàng</div>
+    </div>
+
+    <button id="copy-btn" class="copy-rich-btn">
+        <svg class="copy-icon" viewBox="0 0 24 24"><path d="M19 3h-4.18C14.4 1.84 13.3 1 12 1c-1.3 0-2.4.84-2.82 2H5c-1.1 0-2 .9-2 2v14c0 1.1.9 2 2 2h14c1.1 0 2-.9 2-2V5c0-1.1-.9-2-2-2zm-7 0c.55 0 1 .45 1 1s-.45 1-1 1-1-.45-1-1 .45-1 1-1zm2 14H7v-2h7v2zm3-4H7v-2h10v2zm0-4H7V7h10v2z"/></svg>
+        <span>Copy bài viết</span>
+    </button>
+
+    <div class="post-body" id="post-content">
+        {{ .Content }}
+    </div>
+</article>
+
+<script>
+document.addEventListener('DOMContentLoaded', function() {
+    const contentDiv = document.getElementById('post-content');
+    
+    // --- 1. XỬ LÝ COPY ---
+    document.getElementById('copy-btn').addEventListener('click', function() {
+        const btn = this;
+        const originalHtml = btn.innerHTML;
+        
+        // Tạo vùng tạm để copy (giữ định dạng HTML)
+        const tempDiv = document.createElement('div');
+        tempDiv.innerHTML = `<h1>{{ .Title }}</h1>` + contentDiv.innerHTML;
+        tempDiv.style.position = 'fixed'; 
+        tempDiv.style.left = '-9999px';
+        document.body.appendChild(tempDiv);
+        
+        const selection = window.getSelection();
+        const range = document.createRange();
+        range.selectNodeContents(tempDiv);
+        selection.removeAllRanges();
+        selection.addRange(range);
+        
+        try {
+            document.execCommand('copy');
+            btn.classList.add('copied');
+            btn.innerHTML = '<span>Đã xong!</span>';
+            setTimeout(() => {
+                btn.classList.remove('copied');
+                btn.innerHTML = originalHtml;
+            }, 2000);
+        } catch(e) { alert('Lỗi copy'); }
+        
+        document.body.removeChild(tempDiv);
+    });
+
+    // --- 2. XỬ LÝ ĐỌC VĂN BẢN (Text-to-Speech) ---
+    const speakBtn = document.getElementById('speak-btn');
+    const stopBtn = document.getElementById('stop-btn');
+    const rateSelect = document.getElementById('rate-select');
+    const voiceSelect = document.getElementById('voice-select');
+    const statusTxt = document.getElementById('reader-status');
+
+    if (typeof responsiveVoice !== 'undefined') {
+        speakBtn.addEventListener('click', function() {
+            let text = contentDiv.innerText;
+            // Làm sạch văn bản giống trong Blogger XML
+            text = text.replace(/https?:\/\/[^\s]+/g, ' ')
+                       .replace(/[:;\-\–\_]/g, ", ")
+                       .replace(/[\"\'\(\)\[\]\{\}\<\>]/g, " ")
+                       .replace(/[\r\n]+/g, ".")
+                       .replace(/\.{2,}/g, ".");
+
+            const rate = parseFloat(rateSelect.value);
+            const pitch = voiceSelect.value === 'male' ? 0.8 : 1;
+
+            speakBtn.style.display = 'none';
+            stopBtn.style.display = 'flex';
+            statusTxt.innerText = 'Đang đọc...';
+
+            responsiveVoice.speak(text, "Vietnamese Female", {
+                rate: rate, 
+                pitch: pitch,
+                onend: resetReader,
+                onerror: resetReader
+            });
+        });
+
+        stopBtn.addEventListener('click', function() {
+            responsiveVoice.cancel();
+            resetReader();
+        });
+
+        function resetReader() {
+            speakBtn.style.display = 'flex';
+            stopBtn.style.display = 'none';
+            statusTxt.innerText = 'Sẵn sàng';
+        }
+    } else {
+        statusTxt.innerText = 'Lỗi tải giọng đọc';
+    }
+});
+</script>
+{{ end }}

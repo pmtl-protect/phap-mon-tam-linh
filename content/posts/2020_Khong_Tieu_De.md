@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.605Z
+draft: false
+url: "/2024/11/sau-khi-mang-thai-tuyen-giap-trang.html"
+---
+
+Tiêu đề bài viết: Sau khi mang thai tuyến giáp trạng không khoẻ làm sao để tránh việc đứa trẻ bị ảnh hưởng Nội dung chi tiết: Sau khi mang thai tuyến giáp trạng không khoẻ làm sao để tránh việc đứa trẻ bị ảnh hưởng ------“Vấn đáp huyền học” ngày 12 tháng 6 năm 2015 Thính giả: Đồng tu này hai năm trước mắc bệnh cường giáp nặng, đã được Sư phụ xem qua đồ đằng, sau khi niệm xong NNN mà sư phụ khai thị, thể trạng và diện mạo của cô ấy đều cải thiện, và không cần tái khám. Nhưng hiện giờ cô ấy đã mang thai, bác sĩ kiểm tra nói tuyến giáp không tốt, có thể ảnh hưởng đến não bộ của thai nhi. Đồng tu hiện rất lo lắng, vì đang mang thai 6 tháng rồi. Xin hỏi Sư phụ, làm thế nào để tránh việc đứa trẻ bị ảnh hưởng? Đài trưởng: Trước hết, sau khi niệm kinh, diện mạo cải thiện không có nghĩa là cô ấy đã hoàn toàn khỏi bệnh, mà chỉ cho thấy một phần nào đó đã chuyển biến tốt. Vì là con người, trong quá trình mang thai, cô ấy vẫn có nhiều hành vi không như lý không như pháp, nên nghiệp chướng chưa hoàn toàn được tiêu trừ. Trong trường hợp này, bây giờ đã như vậy rồi, chỉ còn cách thứ nhất là đến bác sĩ kiểm tra, xem có cách điều trị nào mà không ảnh hưởng đến việc sinh con; thứ hai là thành tâm cầu xin Quán Thế Âm Bồ Tát, mong Bồ Tát ban đêm đến giúp cô ấy chữa bệnh. 怀孕后甲状腺不好如何避免孩子受影响 ——2015 年 6 月 12 日《玄艺问答》 听众:同修两年前患有严重的甲亢，请师父看过图腾，念完师父开示的小房子后，她整个人的素质、相貌 都变好了，也没有再复查。但是她现在怀孕了，医生检 查出来说甲状腺不好，会影响胎儿的大脑。同修现在很 紧急，目前怀孕 6 个月，请问师父，如何避免孩子受影 响呢? 台长:首先她在念经之后相貌变好了，并不代表她 完全好，相貌变好说明她局部在转好。她是人，她在怀孕过程当中，她在做人当中还是有很多不如理不如法的 事情，所以并不代表她完全能去除她的业障。像这种事 情，现在已经这样了，只能第一看看医生，在保证不打胎的情况下怎么治疗;第二，自己好好求观世音菩萨， 晚上来帮她治一下。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.183Z
+draft: false
+url: "/2025/02/ve-van-e-mua-ban-giua-cac-ong-tu.html"
+---
+
+Tiêu đề bài viết: VỀ VẤN ĐỀ MUA BÁN GIỮA CÁC ĐỒNG TU Nội dung chi tiết: 🌻 Hỏi 3: Bản thân con kinh doanh sản phẩm dưỡng sinh, thỉnh thoảng đồng tu bị bệnh, con liền tặng cho họ dùng. Sau vài lần, họ nhất quyết muốn trả tiền, con chỉ thu giá vốn. Làm như vậy có đúng pháp không? ☀️ Đáp 3: Cách làm này không đúng pháp. Nếu thật lòng vì đồng tu, thì cứ tặng miễn phí cho họ dùng, như vậy mới thực sự là không liễm tài ; cuối cùng, dù nói chỉ thu giá vốn, nhưng vẫn là thu tiền của người khác, chẳng phải là “câu cá” sao? Xưa kia cũng có chuyện này, thân thể bạn không tốt, người ta trước tiên cho bạn một miếng cao dán lên, rồi hỏi bạn có khá hơn không? Bạn nói khá hơn rồi, lần sau họ sẽ đòi tiền. Không được như vậy. Bất kể đối phương có đề nghị trả tiền hay không, để họ tự mua, con không được tặng, nếu tặng tức là con biến tướng “ mưu cầu” lại thu tiền rồi , như vậy không tốt. Họ biết sản phẩm này rồi tự đi mua, không liên quan gì đến con, thì con không tính là liễm tài. ✨✨✨ Lư Đài Trưởng Giải Đáp Thắc Mắc Qua Thư (281) 22/01/2019 问3：我本身是经营养生产品的，有时候同修生病了，我就送给他吃，几次之后他坚持要给我钱，我也只收进货价格的钱。这样做如理如法吗？ 答3：这种做法不如法。如果是真心为同修好，就一直免费给他吃，就真的是不敛财；你到最后说只收进货价，你还是收别人钱了，你不是“钓鱼”吗？古时候就有，你身体不好，他先给你一块膏药贴上，然后问你好一点了吗？你说好一点了，他下次就要钱了。不可以的。不管对方提出来要，让他自己去买，你不能给他，你给了就是你变相地把他“钓”上来之后再收钱，就不好。他知道这产品就自己去买，跟你没关系，你就不算敛财。 卢台长来信解答（二百八十一）2019-01-22 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

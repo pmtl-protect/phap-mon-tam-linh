@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.492Z
+draft: false
+url: "/2025/03/hoc-phat-nhat-inh-phai-co-muc-tieu-muc_21.html"
+---
+
+Tiêu đề bài viết: Học Phật nhất định phải có mục tiêu, mục tiêu phải đặt cao Nội dung chi tiết: ☎️Hỏi: Sư phụ đã khai thị, hoằng pháp phải có nguyện lực, phát nguyện độ người phải bước đi vững chắc, có thể nói ra một số lượng độ người, và lấy đó làm mục tiêu để nỗ lực. Xin hỏi Sư phụ: Có một mục tiêu toàn lực dốc sức đi hoằng pháp độ người và không có mục tiêu toàn lực dốc sức, về kết quả có khác nhau không? 🌈Đáp: Con nói xem? Một chiếc xe ô tô đổ đầy xăng, mời một tài xế có 30 năm kinh nghiệm lái xe, nhưng không biết lái đi đâu; một người khác đi lái xe, anh ta biết phải lái đến đâu... làm sao có thể không có mục tiêu? Đời người không có mục tiêu giống như ruồi không đầu đâm loạn đụng bừa. Học Phật nhất định phải có mục tiêu. Mục tiêu của con đặt ở đâu, có người học Phật nói "Tôi trước tiên niệm cho tốt ở nhân gian, gia đình", đó cũng là một mục tiêu; đối với chúng ta thì không giống vậy, tối hôm nay chúng ta ngồi ở đây, đại khái hơn một nửa đều hy vọng sau này có thể siêu xuất lục đạo. Cho nên hy vọng mục tiêu phải đặt cao, như vậy tín tâm mới đủ, con mới tinh tấn nỗ lực. ——Lư Đài trưởng 2016 tháng 8 Malaysia Penang hoằng pháp giải đáp hội (5) 《學佛一定要有目標，目標要定得高》 問： 師父開示過，弘法要有願力，許願度人要腳踏實地，可以講出一個度人數量，並以此為目標去努力。請問師父：有一個目標全力以赴去弘法度人和沒有目標全力以赴，在結果上是否有不同呢？ 答： 你說呢？一輛汽車油加滿了，請了個司機有30年的開車經驗，但是不知道往哪裡開；另一個人去開車，他知道要開到哪裡……怎麼可以沒有目標？人生沒目標就像無頭蒼蠅一樣亂撞亂碰。學佛一定要有目標。你的目標定在哪裡，有的人學佛說「我先把人間、家裡念念好」，那也是一個目標；像我們就不一樣了，今天晚上我們坐在這裡的，大概一半以上都是希望以後能夠超出六道的。所以希望目標要定得高，那麼信心才會足，你才會精進地努力。 ——盧台長2016年8月馬來西亞檳城弘法解答會（5）

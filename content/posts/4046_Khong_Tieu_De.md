@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.896Z
+draft: false
+url: "/2025/03/tu-tich-tru-chu-ai-bi-co-nang-luong-rat.html"
+---
+
+Tiêu đề bài viết: Tự tích trữ Chú Đại Bi có năng lượng rất lớn, gặp việc trọng đại có thể đốt Nội dung chi tiết: Wenda20151227A 50:14 Thính giả nam hỏi: … Sư phụ từng nói rằng kinh bài tập hằng ngày giống như ăn cơm, Ngôi Nhà Nhỏ để tiêu trừ nghiệp chướng, còn Kinh văn tự tu giống như lương hưu. Có đồng tu hỏi rằng nếu đã tự tích trữ hơn một nghìn biến Chú Đại Bi và Bát Nhã Tâm Kinh, thì có thể đốt vào những ngày bình thường không? Sư phụ đáp: Có thể, nếu con gặp việc trọng đại thì có thể đốt. (Thính giả: Nhưng có đồng tu khi cơ thể vẫn bình thường, lại đốt hơn một nghìn biến Chú Đại Bi và Bát Nhã Tâm Kinh, đến khi đốt tờ thứ hai với hơn một nghìn biến Chú Đại Bi thì toàn thân đổ mồ hôi. Xin sư phụ từ bi khai thị, làm vậy có ổn không?) Chuyện này mà còn không hiểu sao? Toàn thân đổ mồ hôi là do năng lượng quá mạnh! Con có biết khi nào thầy mới đốt không? Đó là khi thầy chuẩn bị tổ chức nhiều buổi pháp hội liên tiếp, lo lắng thể lực bị tiêu hao nghiêm trọng, lúc đó mới đốt để tăng cường năng lượng. Cần lưu ý cả sức khỏe thể chất, đồng thời khi đốt Chú Đại Bi, năng lượng sinh ra sẽ rất lớn. Người này lại tự nhiên “bùm” một cái đốt hơn một nghìn biến Chú Đại Bi m, đương nhiên sẽ đổ mồ hôi! Năng lượng của Chú Đại Bi lớn lắm đấy, giờ thì hiểu chưa? (Thính giả: Hiểu rồi, sư phụ!) Wenda20151227A 50:14 自存大悲咒能量很大，碰上大事可以烧 男听众：……师父说过功课就像吃饭，小房子消业障，自存的小房子是养老金。有同修问自存经文一千多遍的大悲咒和心经平时可以烧送吗？�台长答：可以的，你碰见大事就可以烧了（但是有同修在身体没有不适的的情况下，烧了一千多遍的大悲咒和心经，烧完第二张一千多遍的大悲咒，该同修全身出汗。请师父慈悲开示这样可以吗？）这还不懂啊，全身出汗就是太厉害了，能量太厉害了。师父什么时候烧，知道吧？我开法会，要准备去开好几场法会了，怕体力严重透支。一个身体上要注意，还有就是要烧大悲咒，一烧之后能量就很大。他这种就是平平白白地“啪”一千多遍大悲咒一烧，当然出汗了啊，大悲咒的能量大得不得了啊。现在还不知道啊？（知道了，师父！）

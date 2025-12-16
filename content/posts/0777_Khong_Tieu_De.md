@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.533Z
+draft: false
+url: "/2025/05/khong-nen-tu-bien-soan-cau-khan-nen.html"
+---
+
+Tiêu đề bài viết: KHÔNG NÊN TỰ BIÊN SOẠN CÂU KHẤN . NÊN CHUYỂN LỜI KHAI THỊ CỦA SƯ PHỤ CHO ĐỒNG TU Nội dung chi tiết: Hỏi: Có vài vị sư huynh luôn phát tâm giúp người nhà niệm kinh, phóng sinh. Họ thường nhắn tin hỏi con làm sao cầu nguyện mà không bị gánh nghiệp. Con có nói sơ qua cho họ, nhưng họ nhờ con viết thành văn bản để họ dùng. Xin Sư phụ chỉ dạy, cách viết như dưới đây có được không? “Con xin cảm ân Nam Mô Đại Từ Đại Bi Quán Thế Âm Bồ Tát. Con và xxx đời này làm người một nhà là do nhân duyên. Hiện nay người đó mắc bệnh, con là nhục thể phàm thai, năng lực có hạn, nhưng con học theo tâm từ bi của Bồ Tát, xin vì người đó niệm N tấm ngôi nhà nhỏ và phóng sinh N con cá. Xin cảm ân Bồ Tát từ bi gia trì thêm năng lượng cho con. Cũng xin Bồ Tát gia hộ cho người đó khai mở trí tuệ, có thể tự mình niệm kinh trả nợ nghiệp. Nghiệp nợ của người đó xin để chính người đó tự trả.” Đáp: Không nên làm như vậy, không nên tự mình hướng dẫn người khác như thế, vì không biết lúc nào sẽ chạm đến nhân quả của người ta. Có thể tình cờ nói đúng một lần, nhưng nếu làm thường xuyên sẽ dễ sinh tâm ngạo mạn. Nên chuyển lời khai thị của Sư phụ cho đồng tu. 问：有几位师兄一直发心在帮家人念经，放生。经常会发消息问我怎么祈求不会背业。我会大概讲一下，她们让我打成文字发给她们，请指点是否可以？如下：“感恩南无大慈大悲观世音菩萨，某某今世与我XX成为一家人也是缘分所致。他现在生病生，我XX肉体凡胎量能有限，但我学菩萨慈悲，为他念N张小房子和放N条鱼。感恩观世音菩萨慈悲能够帮助我增加能量。也请观世音菩萨加持某某开智慧能够他自己念经还债。某某的业债由他本人自己还。” 答：不要这样做，不能自己去这样指导人家，哪天不知道就会动人因果了，偶尔做对了一次，但是长期这样就会贡高我慢。要把师父的开示发给同修。

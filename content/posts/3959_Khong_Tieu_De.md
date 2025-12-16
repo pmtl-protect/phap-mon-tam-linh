@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.691Z
+draft: false
+url: "/2025/10/la-mot-cu-si-lam-nao-e-tu-tam-thanh.html"
+---
+
+Tiêu đề bài viết: Là một cư sĩ làm thế nào để tu tâm thanh tịnh tốt hơn? Nội dung chi tiết: Giải Đáp thắc mắc qua thư 143 ( 17/01/2017 ) Câu Hỏi 49 Hỏi: Là một cư sĩ làm thế nào để tu tâm thanh tịnh tốt hơn? Ví dụ: 1. Tu vô tướng bố thí; 2. Quên đi những ký ức tốt và không tốt, không chấp trước vào ký ức. Ngoài ra có thể tu tốt hơn bằng cách nào nữa không ? Đáp: Phải buông bỏ, chuyện đã qua đừng luôn giữ trong lòng, đã qua thì cho qua, thời thơ ấu từng được giải thưởng gì, nhưng bây giờ lớn lên rồi mọi thứ đều đã qua. Người tinh tấn nỗ lực sẽ tăng trưởng tâm thanh tịnh, luôn cảm thấy mình chưa đủ, liền không ngừng tinh tấn, sẽ được thanh tịnh, một người luôn khiêm tốn dễ dàng tiếp thu ý kiến của người khác, sẽ dễ dàng thanh tịnh lại, cảm thấy mình cái gì cũng đủ rồi, tốt rồi, thì khó mà tiếp thu ý kiến quan điểm của người khác, khó mà thanh tịnh. Trong Phật pháp nói chính là tiêu trừ tâm cống cao ngã mạn. 来信解答一百四十三 20170117 问49 问：作为居士如何更好地修清净心？例如：1、修无相布施；2、忘掉好的和不好的经历的记忆并且不去执著回忆。除此之外还可以怎样更好的去修？ 答：要放下，过去的事情不要总是放在心中，过去就过去了，儿童时代得过什么奖，但是现在大了一切都过去了。精进努力的人就会增长清净心，总是觉得自己不够，就不断精进，就会清净，一个人一直谦虚容易接受别人的意见，就容易清净下来，觉得自己什么都满了好了，就难以接受别人的意见观点，难以清净。佛法上讲就是消除贡高我慢之心。 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

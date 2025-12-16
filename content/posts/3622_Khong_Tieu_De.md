@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.849Z
+draft: false
+url: "/2025/02/mo-thay-treo-len-cho-cao-roi-nga-xuong.html"
+---
+
+Tiêu đề bài viết: MƠ THẤY TRÈO LÊN CHỖ CAO RỒI NGÃ XUỐNG Nội dung chi tiết: wenda20141214B 59:25 Nữ thính giả: Trong giấc mơ, Trương Tam và Lý Tứ cùng nhau cố gắng leo lên một ngọn núi. Họ leo đến một nơi có một tòa kiến trúc cao giống như tháp sắt. Trương Tam trong lòng rất sợ hãi nhưng vẫn cố gắng trèo lên, còn Lý Tứ cũng rất sợ, giống như bị chứng sợ độ cao. Trương Tam nói với Lý Tứ: "Cậu nhìn xem, tôi cũng sợ, nhưng nếu không trèo lên thì chúng ta sẽ rơi xuống." Nói rồi, Trương Tam kéo Lý Tứ lên. Nhưng khi Lý Tứ vừa được kéo lên chưa đứng vững đã ngã xuống, sau đó đứng dưới đất ói mửa. Xin hỏi Sư phụ, giấc mơ này có ý nghĩa gì ạ? Sư phụ: Rất đơn giản, Trương Tam đang giúp đỡ Lý Tứ, nhưng nghiệp chướng trên người Lý Tứ quá nặng, không thể giúp được, nên bị rơi xuống. (Ồ, Lý Tứ cũng từng mơ thấy mình bay trên trời, nhưng lại rất sợ độ cao. Giấc mơ đó có ý nghĩa gì ạ? ) Rất đơn giản, vốn dĩ là người từ trời giáng xuống, vẫn còn một chút năng lực. Nhưng vì lâu nay không độ người, không chịu tu tâm dưỡng tính, nên bây giờ đã mất đi năng lực này, rất nhanh sẽ không thể quay trở lại được nữa. (Trước đây, khi anh ấy độ người, anh ấy bị gánh nghiệp, nên rất sợ hãi.) Hãy chăm chỉ niệm kinh đi! -------------------------------- wenda20141214B 59:25 梦见爬上高处后摔下去了 女听众：张三梦到和李四一起吃力地向山上爬坡，他们爬到一个地方，有一个很高的铁塔一样的建筑。张三心里很害怕，但是也使劲爬上去了，李四也很害怕，就像是得了恐高症。张三对李四说：“你看，我也怕，但是爬不上来咱们就掉下去了。”说着把李四拉了上来。李四被拉上来以后还没有站稳就摔下去了，然后站在下面呕吐了起来。请问师父，这梦代表什么意思？ 台长答：很简单，张三在帮助李四，李四身上业障太重，帮助不了，摔下去了，自己业障太重（哦。李四也是那几天梦到自己在天上飞，但是也特别害怕恐高。这个梦是什么意思？）很简单，本来是天上下来的，还有一点点功能。但是因为长期的不度人、不好好修心，现在已经没有这个功能了，他很快就回不上去了（他之前度一个人的时候背业，他特别害怕）好好念经吧。

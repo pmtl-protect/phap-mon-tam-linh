@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.795Z
+draft: false
+url: "/2025/05/thang-van-khuyen-ao-co-giup-tang-cuong.html"
+---
+
+Tiêu đề bài viết: Thăng Văn Khuyên Đạo có thể giúp tăng cường duyên Phật Nội dung chi tiết: Wenda20140815 43:22 Nam thính giả: Một số người không có duyên với Phật pháp, nếu làm Thăng Văn Khuyên Đạo cho họ, có phải là giúp tăng cường duyên Phật cho họ không? Đài Trưởng: Đương nhiên rồi. Nếu người đó vốn không có duyên Phật, mà bạn ra sức gia trì duyên Phật cho họ, thì dần dần họ sẽ có duyên. Bởi vì "mọi người đều có Phật tính", họ vốn có chút căn cơ, nhưng do huệ mạng bị tổn hại hoặc không thấy được ngũ uẩn giai không, nên sinh ra nhiều tạp niệm, bị nhiễm bởi ngũ dục lục trần thế gian. Lúc này, nếu bạn không ngừng khuyên họ học Phật, giúp họ hiểu Phật pháp, thì dần dần họ sẽ trở thành người có duyên với Phật. Điều này hoàn toàn chính xác. (Vâng ạ.) Wenda20140815 43:22 劝导升文可以帮助加强佛缘 男听众：有的人没有佛缘，如果通过做劝导升文是不是就等于把佛缘给他加强了？�台长答：当然了，如果这个人本来没佛缘的，你拼命地给他加持佛缘，这个人当然就会有佛缘了。因为“人人具有佛性”嘛，他有佛性这是他有一点点根基，他把他的慧命已经毁了或者照不到他的五蕴皆空了，所以这个时候他有很多的杂念，受到人间五欲六尘的染着，所以这个时候你就可以给他不断加强佛法的教育，让他懂得什么叫佛法，这个时候他就变成有佛缘的人了，这个完全正确（好的）

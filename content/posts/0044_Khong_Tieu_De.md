@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.590Z
+draft: false
+url: "/2025/07/ung-suy-nghi-lung-tung.html"
+---
+
+Tiêu đề bài viết: Đừng Suy nghĩ lung tung Nội dung chi tiết: Đừng suy nghĩ lung tung Wenda20130118 01:10:40 Nữ thính giả hỏi: Con có một người bạn học, quen nhau đã lâu, cùng học chung khoảng nửa năm. Gần đây cô ấy nghỉ học ba tuần rồi quay lại học tiếp. Trong kỳ nghỉ, con có đến nhà cô ấy chơi, khi vừa bước vào nhà thì đột nhiên cả người con cảm thấy lạnh buốt. Lúc đó con bất chợt hỏi về chồng cô ấy, thì cô ấy nói chồng vừa mới mất. Sau đó cô ấy còn nói thật ra vốn không định cho con biết, nhưng vì con hỏi nên cô ấy mới kể. Về đến nhà, con cứ cảm thấy người mình lạnh lạnh mãi. Lư Đài trưởng trả lời: Phải cẩn thận đấy, cô ấy có thể đã bị vong linh nhập rồi. Có thể con và gia đình cô ấy có mối duyên khá đặc biệt. ( Dạ không, con chỉ là bạn học với cô ấy thôi ạ.) Vậy thì con đừng suy nghĩ nhiều nữa. Sau khi về nhà con còn thấy lạnh không? (Sau khi về nhà con tụng kinh xong thì thấy đỡ lạnh hơn rồi ạ.) Vậy là được rồi, đừng suy nghĩ nữa là tốt. Không sao đâu. (Dạ.) Đừng nghĩ ngợi gì nữa nhé. (Dạ.) Được rồi. ( Xin Sư phụ cảm ứng giúp con về bàn thờ Phật ở nhà có đúng pháp không ạ? Cách con sắp xếp như vậy có được không?) Thông thường Sư phụ không xem, nhưng tạm được, vẫn có thể chấp nhận được. (Dạ, con cảm ơn Sư phụ.) Được rồi, tạm biệt con. \*\*\* 不要胡思乱想 Wenda20130118 01:10:40 女听众：我有个同学跟她认识了很久了，在一起读书大概有半年多。最近她休息三个星期后倒回来读书，放假的时候我到她家去，进到她家里面我突然间整个身子发冷，突然间问起她先生，她说她先生刚刚走了。后来她说她本来她不想让我听的，但是我问起了她才告诉我。后来我回家了，身子老是凉凉的。 “卢台长”答：要当心的，她已经有灵性上身了，可能你跟她家里关系特别好（没有，我跟她只不过是同学之交）那你不要去想。你回到家里还凉不凉啊？（回到家念完经以后就没那么凉了）好了，不要去想就好了，没事的（噢）不要去想（噢）好了（请台长跟我感应一下佛台好吗？我这样子摆可不可以呢？如不如法？）一般不看的。还可以，可以的（好的，那谢谢台长）好，再见。

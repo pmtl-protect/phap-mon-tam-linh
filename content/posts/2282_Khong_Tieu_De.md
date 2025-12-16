@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.160Z
+draft: false
+url: "/2025/08/chuyen-vo-chong-khong-co-loi-cho-viec_1.html"
+---
+
+Tiêu đề bài viết: Chuyện vợ chồng không có lợi cho việc kéo dài tuổi thọ Nội dung chi tiết: Chuyện vợ chồng không có lợi cho việc kéo dài tuổi thọ Trích “Chương trình Hỏi Đáp Huyền Nghệ” ngày 27-10-2013 - https://lujunhong2or.com/精彩开示专题：夫妻生活的注意事项/ Thính giả : Trước đây con từng mơ thấy Sư phụ nói với con rằng làm chuyện vợ chồng sẽ  bị giảm thọ. Đài Trưởng : Con nghĩ là giả sao? Thính giả : Con biết là thật mà, những điều Sư phụ nói trong mơ đều là thật. Đài Trưởng : Hoa nở một lần rồi tàn nhanh, hay là không nở vội, từ từ nở rồi từ từ tàn — cái nào lâu hơn? Các nhà khoa học từ lâu đã làm thí nghiệm về chuyện này. Chuyện đó mỗi lần làm đều tổn hại rất nhiều đến thân thể. Tại sao nhiều người lại chết sớm? Ngày xưa hoàng đế nào mà sống thọ? Ba cung sáu viện bảy mươi hai phi tần, ngươi có bao nhiêu tinh khí thần mà chịu nổi? Thính giả : Vậy điều Sư phụ nói trong mộng là muốn con phải đặc biệt cẩn thận đúng không ạ? Đài Trưởng : Đương nhiên rồi, thầy đã vào giấc mơ nhắc con, mà con còn không cẩn thận sao? Thính giả : Nhưng mà con đã lập gia đình rồi mà… Đài Trưởng : Ít một chút là được, đâu có bắt con phải hoàn toàn không có. 夫妻之事并不利于延年益寿（2013-10-27玄艺问答） 听众梦到台长告诫夫妻之事不利于延年益寿。台长开示，生命像花一样开得快凋零得也快。人一生宝贵的精气神是有限的，夫妻之事做一次会消耗很多精气神，所以不要纵欲过度。 听众： 我上次梦见师父跟我说做夫妻这种事情会减寿的。 台长： 你以为假的？ 听众： 我知道是真的，师父在梦中说的都是真的。 台长： 花开一次谢得快，还是不开、慢慢地开谢得快？科学家早就做过这方面的实验了，这种事情做一次的话人会伤很多身体的。很多人为什么死得早？过去哪个皇帝死得不早？三宫六院七十二妃，你有多少精气神？ 听众：您在梦中跟我说我是不是要特别当心呀？ 台长：那当然了，我已经到梦中提醒你，你还不当心啊？ 听众：因为我结婚了嘛…… 台长：少一点就可以了，不是让你一定要完全没有。

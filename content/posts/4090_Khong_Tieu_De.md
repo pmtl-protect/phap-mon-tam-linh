@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.035Z
+draft: false
+url: "/2024/11/muon-dut-duyen-ket-hon-sinh-con-can.html"
+---
+
+Tiêu đề bài viết: Muốn dứt duyên kết hôn sinh con cần niệm Chú Giải Kết và Ngôi Nhà Nhỏ Nội dung chi tiết: wenda20161030B 01:53 Thính giả nữ: Một đồng tu mơ thấy một cặp vợ chồng người Tây đang cãi nhau, người đàn ông rất kích động, cầm súng chĩa vào một đứa trẻ, và vô tình bắn chết đứa trẻ đó. Thầy đáp: Giấc mơ tiền kiếp. Hãy bảo họ đặc biệt cẩn thận, nếu vợ chồng họ hiện tại còn cãi nhau, một trong số họ chắc chắn là con của họ (Họ chưa kết hôn) Chưa kết hôn, thì điều đó nghĩa là sau này nếu họ thế này. Anh ấy có thể sắp sinh con (Anh ấy đã phát nguyện không kết hôn) Điều đó nghĩa là anh ấy đã dứt duyên này. Muốn dứt duyên này cần niệm Chú Giải Kết, và còn phải niệm NNN (NNN viết cho con cái, hay viết cho người cần kinh của anh ấy?) Viết cho người cần kinh của chính anh ấy, vì trong kiếp này anh ấy không muốn để người khác đến đòi nợ, không sinh con để không gặp oan gia trái chủ, anh ấy phải niệm NNN để dứt nợ.

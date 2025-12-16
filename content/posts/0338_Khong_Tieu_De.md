@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.336Z
+draft: false
+url: "/2025/06/cau-30-van-e-ve-ot-phao-ngay-tet-hoi-ap.html"
+---
+
+Tiêu đề bài viết: Câu 30: Vấn đề về đốt pháo ngày Tết - Hỏi Đáp Phật Học Pháp Môn Tâm Linh Nội dung chi tiết: Ngày 12 tháng 2 năm 2010 Hỏi 30: Thưa thầy, Tết Nguyên Đán sắp đến, xin hỏi thầy ý nghĩa của việc đốt pháo trong dịp Tết là gì? Đáp 30: Nói chung, đốt pháo trong dịp Tết là một điều tốt. Đốt pháo có thể xua đuổi ma quỷ, tăng dương khí và ngăn chặn những điều không tốt vào nhà. Vào dịp Tết, nếu đốt pháo trước 12 giờ đêm là để trừ bỏ cái cũ, còn nếu đốt sau 12 giờ đêm là để đón cái mới. 30、过年放鞭炮的问题——《心灵法门佛学问答 三十》 2010-02-12 问30：台长您好！春节将至，请问台长春节放鞭炮的意义是什么呢？ 答30： 过年放鞭炮总的来说是好的。 放鞭炮可以驱鬼、增阳气、防止不好的东西到家里来。 过年的时候，在十二点前放是除旧，过了十二点再放是迎新。

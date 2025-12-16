@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.465Z
+draft: false
+url: "/2025/03/co-phong-sinh-nhung-con-ca-nho-dung-lam.html"
+---
+
+Tiêu đề bài viết: Có thể phóng sinh những con cá nhỏ dùng làm mồi câu không? Nội dung chi tiết: wenda20131117A 48:22 Có thể phóng sinh những con cá nhỏ dùng làm mồi câu không? Thính giả nữ: Thưa Sư phụ, những con cá nhỏ bị bán làm mồi câu, chúng con mua để phóng sinh có được không ạ? Đài Trưởng đáp: Tất nhiên là được. —----------------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. —----------------------------------- wenda20131117A  48:22 可以放生当鱼饵的小鱼吗 女听众 ：请问师父，一些小鱼被卖去当鱼饵的，我们去买来放生好不好？ 台长答 ：当然可以。

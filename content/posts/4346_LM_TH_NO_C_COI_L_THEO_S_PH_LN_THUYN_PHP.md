@@ -1,0 +1,8 @@
+---
+title: "LÀM THẾ NÀO ĐỂ ĐƯỢC COI LÀ THEO SƯ PHỤ LÊN THUYỀN PHÁP"
+date: 2025-12-15T22:19:51.743Z
+draft: false
+url: "/2025/12/lam-nao-e-uoc-coi-la-theo-su-phu-len.html"
+---
+
+Wenda20170609 01:46 Nữ thính giả: Làm thế nào để được coi là theo Sư phụ lên thuyền pháp? Là theo Sư phụ học Pháp Môn Tâm Linh, phát nguyện ăn trường chay, hay nhất định phải bái sư rồi, mới có thể được coi là theo Sư phụ lên thuyền pháp ạ? Sư phụ đáp: Mấy điều kiện đó đều phải làm. Lên thuyền pháp trước hết phải phát nguyện, niệm kinh, phóng sinh, thực ra phóng sinh đã bao gồm ăn chay rồi, người thường xuyên phóng sinh, còn đi ăn mặn nữa không? Còn đi sát sinh nữa không? Thực ra phóng sinh chính là khơi dậy lòng từ bi của con người, là khái niệm này. Vậy thầy hỏi bạn, bạn bắt đầu học Phật, lễ Phật rồi, theo Sư phụ tu rồi, có phải đã lên thuyền pháp rồi không? Sư phụ hoằng dương là pháp gì? Là Phật pháp, vậy bạn theo Sư phụ cùng tiến bước trên con đường hoằng pháp, có phải đã lên thuyền pháp rồi không? Bạn tưởng còn phải thật sự đi làm một cái thuyền à? (Cảm ơn Sư phụ, con hiểu rồi) Wenda20170609 01:46 怎样才算跟着台长上法船 女听众：怎么样才算是跟着师父上法船？是跟着师父学了心灵法门，许愿吃长素，或是一定要拜师了，才能够算是跟着师父上法船吗？ 台长答：几个情况都要做的。上法船首先要许愿、念经、放生，其实放生就包含着吃素了，经常放生的人，还会再去吃荤的吗？还会去杀生吗？其实放生就是启发人的慈悲心，是这个概念。那么我问你，你开始学佛、拜佛了，跟着师父修了，是不是已经上法船了？师父弘扬的是什么法？是佛法，那么你跟着师父一起在弘法道路上前进，是不是上法船了？你以为还要真的去弄个船啊？（感恩师父，明白了）

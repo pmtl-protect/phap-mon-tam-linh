@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.884Z
+draft: false
+url: "/2025/06/chet-khong-nham-mat-la-do-oan-khi-tren.html"
+---
+
+Tiêu đề bài viết: Chết không nhắm mắt" là do oán khí trên người không thể hóa giải Nội dung chi tiết: Nam thính giả: Có câu gọi là "chết không nhắm mắt", trong nhân tướng học có giải thích gì không ạ? Sư phụ:"Chết không nhắm mắt" là do trong lòng còn một luồng oán khí, luồng khí này đọng lại ở vùng ngực. Khi một người có oán khí tích tụ trong lòng, mắt họ sẽ mở to. Con thấy người tức giận mắt có mở to không? ( Dạ có ạ.) Người ngủ mà không tức giận thì nhắm mắt ngủ ngon, còn người còn tức tối, nằm trên giường mà vẫn giận thì mắt có mở không? (Dạ có ạ.) "Chết không nhắm mắt" nghĩa là luồng khí này không tiêu tan được, nên chết rồi mắt vẫn mở, trông rất đáng sợ. Vì vậy, người ta thường dùng tay vuốt mắt cho họ nhắm lại. (Người chết không nhắm mắt có oán khí như vậy, chắc chắn không thể đi đến nơi tốt đẹp rồi ạ?) Đương nhiên rồi! Trên người có oán khí không hóa giải được thì chắc chắn phải đọa xuống. Luồng khí đó chỉ đẩy họ xuống dưới, làm sao bay lên được? Nhiều người nói "Ta chết không nhắm mắt" – tức là chết trong phẫn uất. Nhưng không nhắm mắt thì sao? Con có làm tổn thương ai được không? Tổn thương duy nhất chính là bản thân con mà thôi! Wenda20161113B 11:12 “死不瞑目”是身上有怨气化解不了 男听众：有句话叫“死不瞑目”，在玄学上有什么说法吗？ �台长答：死不瞑目就是心里有一股怨气，这股怨气一直堵在他的心口，当一个人有一股怨气堵在心口的时候，他的眼睛睁得很大。你看生气的人眼睛睁得大不大？ (大） 睡觉的人，他不气的话，他就把眼睛闭起来睡觉；想不通的人，睡在床上还生气的人，是不是眼睛睁着？ (是的） 死不瞑目就是说这股气消不了，所以死了眼睛也睁着，很吓人的，所以有人把他眼睛用手这么撸一下，把它合起来 （死不瞑目的人有这种怨气，肯定不能上好的地方了？） 那当然，身上有怨气化解不了，肯定下去了，这股气只能把他往下吹，哪会往上跑？很多人说“我死不瞑目”，就这么气死了。你不瞑目又怎么样呢？你给人家造成什么伤害了？唯一的伤害就是你自己啊！ Wenda20161113B 11:12

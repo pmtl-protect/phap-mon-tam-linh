@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.682Z
+draft: false
+url: "/2025/08/thien-toan-la-gi.html"
+---
+
+Tiêu đề bài viết: Thiên toán là gì ? Nội dung chi tiết: Wenda20200501 51:22 Nam thính giả: Chúng ta thường nói một câu: “Nhân toán không bằng thiên toán”, vậy “thiên toán” này có phải chỉ nhân quả không? Đài Trưởng đáp: “Thiên toán”, là ở trên trời, do Ngọc Hoàng Đại Đế quản lý. Bởi vì con là người học Phật, học Bồ Tát, thì sẽ do Bồ Tát, Thiên quan, và Hộ pháp thần quản lý. Hộ pháp thần không quản được nữa thì giao cho Thiên quan quản; Thiên quan cũng không quản nổi thì giao cho quan dưới Địa phủ quản lý. Nghe hiểu không? (Hiểu rồi) Ví dụ đơn giản nhé, con là một cán bộ, cán bộ phạm sai thì trước tiên tổ chức sẽ quản lý con, tổ chức không quản nổi thì giao cho quần chúng giám sát, quần chúng cũng không giám sát được thì giao cho cơ quan chấp pháp có liên quan. (Hiểu rồi ạ) Wenda20200501 51:22 “天算”是指什么 男听众：我们经常说的一句话“人算不如天算”，这个“天算”指的因果吗？�台长答：“天算”，天上，玉皇大帝管着的。因为你是学佛的人，学菩萨的人，就由菩萨和天官、护法神管着。护法神管不了了，就交给天官管；天官管不了就交给地府官管了。听得懂吗？（明白了）举个简单例子，你是个干部，干部犯错误，组织上先管你，组织上管不了就交给群众监督，群众监督再管不了，就把你交给有关执法机关了（明白了）

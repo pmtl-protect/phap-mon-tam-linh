@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:51.548Z
+draft: false
+url: "/2025/12/ong-vat-sau-khi-chet-co-phai-xuong-ia.html"
+---
+
+Tiêu đề bài viết: Động vật sau khi chết có phải xuống Địa phủ thẩm xét hay không? Nội dung chi tiết: Động vật sau khi chết có phải xuống Địa phủ thẩm xét hay không? Wenda20141214A 05:00 Nam thính chúng: Thông thường con người sau khi vãng sinh đều phải xuống Địa phủ để trải qua sự thẩm xét rồi mới quyết định đi đâu. Vậy còn động vật ở đường súc sinh thì sao? Ví dụ như rùa, cá, hay gấu trúc… cũng phải xuống Địa phủ để thẩm xét như vậy không ạ? 男听众：一般人往生后都要到地府经过审判之后才决定去处，那畜生道的动物也是吗？比如乌龟和鱼，还有大熊猫之类，也是这样去审判？ “Lư Đài Trưởng” đáp: Việc này không cần. Chúng sẽ trực tiếp đầu thai lại, làm rùa thì tiếp tục thành rùa, làm cá thì tiếp tục thành cá, v.v. Vì sao? Vì trong đầu chúng chỉ có một ý niệm: “Tôi là rùa, tôi là rùa.” Nên đời sau lập tức rơi vào đường rùa đó, tức là đầu thai vào đường súc sinh. Một con ngựa cũng vậy, chỉ nghĩ “Tôi là ngựa, tôi là ngựa.” Giống như con người chúng ta, cứ nghĩ “Tôi là người, tôi là người”, thì đời sau sẽ đầu thai làm người — chính là khái niệm này. Động vật không còn tự tánh, vô tự tánh — nghĩa là chúng không biết mình thật sự là ai, không có ý niệm như loài người nữa. Chúng chỉ biết: “Tôi là chó, tôi là heo, tôi là dê.” Cho nên đời sau rất nhanh sẽ đầu thai đúng vào loài dê, loài heo… như chính ý niệm của chúng. “卢台长”答：这个用不着的，这个就直接再投胎，再投乌龟、再投鱼什么的。为什么呢？因为它们脑子里的意识只有“我是乌龟，我是乌龟”，它下辈子马上就到乌龟那个道去了，到畜生道去了；一匹马“我是马，我是马”；就像我们人一样的，“我是人，我是人”，你下辈子就投人了，是这个概念。因为动物已经没有自性了，无自性了，也就是说它根本不知道它是谁了，它已经没有人的那种意念了，它只知道“我是狗、我是猪、我是羊”，就是这样，所以它下辈子很快就投到羊了。

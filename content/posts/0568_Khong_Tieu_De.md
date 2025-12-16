@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.994Z
+draft: false
+url: "/2025/06/to-chuc-cuoi-chay-la-mot-cong-uc-lon.html"
+---
+
+Tiêu đề bài viết: Tổ chức cưới chay là một công đức lớn Nội dung chi tiết: Khán giả nữ: Thưa Sư Phụ, một đồng tu xin hỏi, ngoài việc con trai tổ chức tiệc kết hôn chay,còn phải chú ý điều gì nữa không? Đài trưởng trả lời: Nếu con trai kết hôn , ăn chay sẽ là một công đức vô cùng lớn và không có gì phải mất mặt cả. Rất đơn giản, vì khách đến tiệc cưới biết con ăn chay, sẽ tôn trọng con vì con là người tốt bụng và không sát sanh, nên đây không phải là vấn đề lớn. Nếu con cảm thấy có lỗi với mọi người về phương diện ăn chay này, thì cứ tặng quà cho khách mời ( Dạ được. Phòng mới có cần niệm một ít Ngôi nhà nhỏ không ?) Nếu có thể niệm một chút Ngôi nhà nhỏ cho  phòng mới là tốt nhất. Thông thường thì không cần niệm nhiều, 7 tấm được rồi. (Vậy có cần phải niệm Giải kiết chú không? Vì không biết đó là oan kết hay gì đó.) Ồ, Giải kiết chú phải được trì tụng mỗi ngày. Không có vấn đề gì cả, chỉ là chúng ta cần phải niệm ngôi nhà nhỏ cho phòng mới trước. Không phải sau khi kết hôn mới niệm (Có một đồng tu mới ở đây , và hôm nay cô ấy rất phát tâm lại bái sư phụ . Xin Sư phụ nói vài câu với cô ấy được không ) uhm 🌎wenda20130412 01:13:18 Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con 🙏🙏🙏 ⭐️辦婚禮吃素餐是很大的功德⭐️ 女聽眾：師父，有一個同修想問，兒子結婚除了素餐之外還需要注意什麼嗎？ 台長答：兒子結婚的話，吃素對他來講是一個非常大的功德，沒有什麼覺得丟臉的。很簡單，因為來的嘉賓知道你是吃素的，他們還會尊敬你，因為你是一個善良的人，你是一個不殺生的人，所以這個沒有什麼大問題，如果覺得吃的方面好像有點對不起人家，就送點禮物吧，再送點禮物給人家吧（好的，那新房要不要念點小房子？）新房如果能夠念點小房子是最好的，一般的用不著念很多，7張就可以了（那要不要再念點解結咒呢？因為也不知道是冤結還是怎麼）噢，那解結咒每天要念的。沒有什麼問題，就是新房要提早念，不是到了結了婚之後再念（有一個新同修在這裡，她今天也是很發心來拜一下，請師父給她說兩句好嗎？）嗯。 🌎wenda20130412  01:13:18

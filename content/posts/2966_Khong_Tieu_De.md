@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.854Z
+draft: false
+url: "/2025/08/ca-phong-sinh-bi-nguoi-ta-bat-lai-co.html"
+---
+
+Tiêu đề bài viết: Cá phóng sinh bị người ta bắt lại có còn công đức không? Nội dung chi tiết: 9. Cá phóng sinh bị người ta bắt lại có còn công đức không? (2013-11-10 – Huyền Nghệ Hỏi đáp ) Thính giả: Nếu nói cá chúng con phóng sinh xong, bị bắt và bị người khác ăn,, vậy thì công đức có còn không? Đài Trưởng: Thực ra phóng sinh không nhất định Con phải cứu được Chúng, rất khó mà cứu được hoàn toàn! Nhờ Con đã cứu sống chúng, Chúng sống được thêm một năm, nửa năm hay vài tháng rồi cũng sẽ chết. Thực ra phóng sinh chính là giải thoát cái tâm của bản thân mình, là tâm từ bi của con! Con có thể cứu được mấy con cá ? Quan trọng là một loại tâm từ bi. Tâm từ bi có thể cảm động trời đất, vì vậy bản thân Con đã có công đức rồi. Lư Đài Trưởng – Chuyên đề khai thị đặc sắc: Cứu sinh mạng người khác, là cứu tâm mình ( hạ) – Tầm quan trọng của việc phóng sinh 2015-03-29 卢台长精彩开示专题：救彼命，救己心（下）——放生的重要性 2015-03-29 9、放生的鱼被人捕了还有功德吗（2013年11月10日玄艺问答） 听众：如果说我们放生的鱼再给人家捕去吃的话，那这个功德还会有吗？ 台长：实际上放生并不是你要真正救得到它，很难救的嘛！因为你就是把这条鱼救活了，它活一年半年、几个月就死了。实际上放生就是放自己的心，你的慈悲心啊！你能救几条鱼？主要是一种慈悲心。慈悲心能感动天地，那么你自己就有功德了

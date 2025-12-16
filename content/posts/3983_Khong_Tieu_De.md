@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.757Z
+draft: false
+url: "/2025/10/trong-long-rat-minh-bach-rat-vui-ve.html"
+---
+
+Tiêu đề bài viết: Trong lòng rất minh bạch rất vui vẻ, chính là Tâm Quang Minh. Nội dung chi tiết: Trong lòng rất minh bạch rất vui vẻ, chính là Tâm Quang Minh. Quý vị nghĩ thoáng, quý vị rất minh bạch, Quý vị đối với mọi việc đều rất an tĩnh, quý vị không bận tâm đến mọi thứ ở nhân gian, đây chính là Quang Minh Thanh Tịnh Chi Tâm. Người muốn chiếm lợi của người khác, là không có tâm quang minh; người cả ngày đố kỵ người khác căm hận người khác, người đó sẽ không thanh tịnh. Người thật sự thông minh, mới có được tâm thanh tịnh và tâm quang minh. Tâm Quang Minh là có thể tha thứ cho người khác, còn tâm thanh tịnh là có thể kiểm soát chính mình. Người có tâm quang minh không bận tâm đến điều gì, người khác muốn chiếm lợi của họ, họ cứ để người khác chiếm lợi, đối với họ mà nói không có tổn thất gì. Người khác mắng họ một câu, người khác lấy nhiều hơn một chút, đối với họ thì có tổn thất gì chứ? Sư Phụ Khai Thị Cho Đệ Tử 1《Tâm Chúng Sinh Khó Điều Phục, Phật Pháp Khó Được Nghe》 弟子开示一《众心难调佛法难闻》 心里很明白很开心，就是光明心。你想得开，你很明白，你什么事情都很安静，你不在乎人间的一切，这就是光明清净之心。想占人家便宜的人，是没有光明心的；整天嫉妒人家恨人家的人，他不会清净的。真正聪明的人，才会有清净心和光明心。光明心是能够原谅人家，而清净心是能够控制自己。有光明心的人什么都无所谓，人家要占他便宜，他就让人家去占便宜，对他而言没有什么损失。人家骂他一句、人家多拿一点，对他又有什么损失呢？ Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

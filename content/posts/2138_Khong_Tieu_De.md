@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.835Z
+draft: false
+url: "/2025/02/van-e-tho-phat-khi-luan-phien-o-hai-noi.html"
+---
+
+Tiêu đề bài viết: Vấn đề Thờ Phật khi luân phiên ở hai nơi khác nhau Nội dung chi tiết: Nữ thính giả : Thưa Sư Phụ, Nhà con ở Nam Kinh có Bàn Thờ Phật, hiện tại con đang ở Úc, tháng 1 sẽ về nước, về hai ba tháng lại qua đây. Con muốn thỉnh Bồ Tát Quan Âm Đường về nhà, về ba tháng, vậy mấy tháng nữa con không ở nhà, có thể thỉnh không ạ? ☀️ Đài Trưởng đáp: Rất đơn giản, Ta dạy con một phương pháp là được. Bảo con của con chụp ảnh tượng Phật ở đây, in thành khổ A4, về nhà đặt vào khung ảnh để Thờ, thắp hương, cúng nước, hoa quả. Khi rời đi, dọn hết lư hương, bàn hương, rồi gói ảnh Quan Thế Âm Bồ Tát cẩn thận, để ở nhà con ở Nam Kinh, đến đây tiếp tục Thờ. 🌻 (Vậy ảnh có mang về không ạ?) ☀️ Ảnh không cần mang về, để ở Nam Kinh. Vì ở đây con đã có Bàn Thờ Phật , chỉ là chụp ảnh về, giống như ở Úc Lễ Phật vậy. 🌻 (Khi gói lại có cần niệm kinh không ạ?) ☀️ Không cần, đặt ngang là được, không cần đặt dọc. 🌻 (Dạ con hiểu ạ, cảm ơn Đại Từ Đại Bi Quan Thế Âm Bồ Tát! Cảm ơn Đại Từ Đại Bi Lư Đài trưởng! Sư phụ nhất định phải giữ gìn sức khỏe) ☀️ Cảm ơn con , không có vấn đề gì. ✨✨✨ shuohua20131108 15:08 ☀️ 两地轮流居住如何供佛的问题 🌻 女听众：我南京家里供有佛台，我现在在澳大利亚，1月份要回去，回去两三个月又要过来。我想把观音堂的菩萨请回去，回来三个月，那么几个月又不在家，能不能请啊？ ☀️ 台长答：很简单，教你个方法就好了。叫你孩子把你这里的佛像拍个照片，放成A4大小，回到家拿个镜框供在那里，烧香、供水、水果。等离开时，把香炉、香台全部撤了，然后把观世音菩萨照片包包好，放在你们南京的家里，到这里来继续供（那相片是不是再带回来？）相片不要带回来，放在南京。因为你这里已经有佛台了，只不过把照片拍回去，就像在澳大利亚拜佛一样的（包起来的时候要不要念经？）用不着，横过来就可以，不要竖起来（好的，感恩大慈大悲观世音菩萨！感恩大慈大悲卢台长！您一定要保重身体）谢谢，没问题。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

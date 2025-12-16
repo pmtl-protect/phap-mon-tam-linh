@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.813Z
+draft: false
+url: "/2025/02/lien-quan-en-ngoi-sao-tren-au-ca-loc-va.html"
+---
+
+Tiêu đề bài viết: Liên quan đến ngôi sao trên đầu cá lóc và cá chép Nội dung chi tiết: Nam thính giả: Đài Trưởng nói cá lóc và cá chép trên đầu đều có ngôi sao, đặc biệt là cá lóc trên đầu có bảy ngôi sao, cá chép trên đầu cũng có ngôi sao, Ngôi sao này là cái gì? Đài Trưởng không phải nói chúng con không thể nhìn thấy, chỉ có đài trưởng mới có thể nhìn thấy sao. Lư đài trưởng đáp: Bảy ngôi sao này là đang nói đến bảy cái này đều là điểm kết nối với thế giới bên ngoài, Chúng ta gọi là Ngôi sao. Ví dụ nói, trên đầu của Bồ Tát không phải cũng có Mạn Đà La sao? Một cái vòng tròn ánh sáng, nhưng đó không phải là ngôi sao. Nhưng ánh sáng này được tạo thành bởi cái gì? Là được ngôi sao tạo thành. Màn hình led của tivi được tạo thành từ các điểm sáng tạo thành màn hình led lớn. Bảy ngôi sao này cũng chỉ là 7 điểm sáng nhỏ. (Vậy nghĩa là 2 loại cá này cũng đặc biệt có thần thông) Đúng. 2 loại cá này con không được giết chúng, nếu giết, nó căn bản có thể báo thù, hơn nữa nó có thể quấn lấy ý thức của con, đây là loại động vật có linh cảm khá mạnh. Ví dụ cũng giống con chó, nếu con giết nó cũng sẽ có hậu quả nặng nề, có rất nhiều con chó có thể trực tiếp đầu thai thành người. Wenda20121223A 05:53 ----------------------------- wenda20121223A  05:53 关于鲤鱼和黑鱼头上的星 男听众 ：台长说黑鱼跟鲤鱼头上都有星，特别是黑鱼头上七颗星，鲤鱼头上也有星，这个星是什么东西？台长不是说我们看不见、台长能看见嘛。 台长答 ：七颗星是指七个跟外界接触的一个光点，我们称为星。比方说，菩萨头上不是有坛城吗？一个圆的光环，它不是星。但是光环是由什么组成的呢？是由星组成的。一个电视机的荧光屏是由光点组成的才成为整个一个大的荧光屏。七颗星只不过七个小光点（那说明这两种鱼也特别有灵通）对，这两种鱼你不能杀它，杀了它之后，它基本上就会报复的，而且在你意识当中它会缠住你的，就是灵感比较强的动物，比方说像狗，你杀它的话就很厉害了，很多狗能直接投人的。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.681Z
+draft: false
+url: "/2025/08/niem-kinh-khi-nao-nen-quan-tuong-quan.html"
+---
+
+Tiêu đề bài viết: Niệm kinh khi nào nên quán tưởng Quan Thế Âm Bồ Tát Phật quang phổ chiếu Nội dung chi tiết: Hỏi: Về việc niệm kinh, khi nào nên quán tưởng Quan Thế Âm Bồ Tát Phật quang phổ chiếu? Xin Đài Trưởng chỉ dạy thêm chi tiết. Có phải bất cứ lúc nào cũng thích hợp làm như vậy không? Đáp: Điều này có thể dạy cho các bạn, không sao cả. Việc quán tưởng Quan Thế Âm Bồ Tát Phật quang phổ chiếu tốt nhất là khi niệm Đại Bi chú. Trước tiên, nhìn lên khoảng không trên trời trong vài giây để giúp đầu óc trống rỗng, sau đó chắp tay và bắt đầu niệm Đại Bi chú. Bởi vì bạn vừa mới nhìn thấy ánh sáng, và ánh sáng ấy vẫn còn trên người bạn, khi niệm Đại Bi chú, hãy cảm nhận đây chính là Phật quang của Quan Thế Âm Bồ Tát. Ánh sáng này sẽ tỏa ra rồi biến đổi, trở thành một loại Phật quang đi vào thân thể bạn, khiến bạn cảm thấy rất ấm áp. Khi bạn nhìn ánh sáng, sau đó nhắm mắt lại, đến khi mở ra sẽ cảm thấy rất sáng. Thực tế là ánh sáng đó đã đi vào trong đầu óc bạn rồi. Bạn sẽ cảm thấy như Quan Thế Âm Bồ Tát đang dùng nhành dương liễu rưới Phật quang phổ chiếu cho mọi người. Tâm bạn sẽ rất tĩnh, đầu óc trống rỗng, ánh sáng rất sáng. Hãy nhớ, khi ánh sáng rất sáng thì đầu óc cũng sẽ trống rỗng. 20150119 – Malaysia, Sabah Pháp Hội --- Trong quá trình con dịch và chia sẻ Pháp, nếu có điều gì sai sót, không đúng Lý, đúng Pháp, con xin Chư Phật, Chư Bồ Tát, chư vị Hộ Pháp từ bi th a thứ cho con.

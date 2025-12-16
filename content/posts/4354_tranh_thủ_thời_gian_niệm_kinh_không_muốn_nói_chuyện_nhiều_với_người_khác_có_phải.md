@@ -1,0 +1,8 @@
+---
+title: "tranh thủ thời gian niệm kinh, không muốn nói chuyện nhiều với người khác, có phải là ngạo mạn không? Làm sao để đối đãi một cách viên dung?"
+date: 2025-12-15T22:19:51.762Z
+draft: false
+url: "/2025/12/voi-vang-tranh-thu-thoi-gian-niem-kinh.html"
+---
+
+Vội vàng tranh thủ thời gian niệm kinh, không muốn nói chuyện nhiều với người khác, có phải là ngạo mạn không? Làm sao để đối đãi một cách viên dung? 抓紧时间念经不愿和别人多说话，是傲慢吗？如何圆融对待 Hỏi: Có một đồng tu học rất ít nói, cảm thấy thời gian niệm kinh quá quý giá, không muốn tán gẫu với những người hay nói nhiều. Điều này thường khiến những người hay nói cảm thấy bạn ấy kiêu ngạo. Thưa sư phụ, làm thế nào để giải quyết vấn đề này một cách viên dung? 问: 同修话很少，觉得念经的时间太宝贵了，不愿意和那些话很多的人搭讪，这样往往会让那些话多的人觉得他傲慢。请问师父，如何圆融地处理这个问题？ Đáp: Con đến chùa mà xem, tại sao nhiều pháp sư, sư thầy đang niệm kinh ở đó, con nói chuyện với họ, họ không đáp lời con, bởi vì họ biết thời gian niệm kinh của họ rất quý giá. Có một số người căn bản chưa vào cửa chùa, cứ đến nói chuyện nhiều với pháp sư, điều đó trở thành quấy rầy pháp sư. Cũng giống như chúng ta, người học Phật, nhiều người miệng không ngừng niệm, nhiều người khác lại không ngừng nói chuyện với con, con nói con có trả lời họ không? Họ không biết điều đó. Vì vậy cần nhớ, điều đó cũng không hẳn là ngạo mạn, con có thể dùng một phương pháp: khi đang niệm kinh mà họ nói chuyện với con, con chỉ có thể ra dấu tay nói với họ: "Tôi đang niệm kinh". 答: 你到庙里去看，为什么很多法师、和尚在那里念经，你和他讲话他不理你的，他知道他念经时间宝贵。有些人根本还没入门，去和法师讲很多，就变成骚扰法师了。就像我们学佛人一样，很多人嘴巴里不停地念，很多人就不停地跟你讲，你说你会回答他吗？他不知道。所以要记住，也不算是傲慢，你可以用一个方法：在念经的时候他跟你讲话，你只能打手势告诉他：“我在念经”。 Buổi Hỏi Đáp Hoằng Pháp của Lư Đài Trưởng tại Jakarta, Indonesia năm 2018 (3) 卢台长2018年印度尼西亚•雅加达弘法解答会（3）

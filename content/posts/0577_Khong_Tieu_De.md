@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.013Z
+draft: false
+url: "/2025/06/van-e-lien-quan-en-viec-trong-nha-co.html"
+---
+
+Tiêu đề bài viết: Vấn đề liên quan đến việc trong nhà có thờ tượng Phật khác, tụng kinh và đốt ngôi nhà nhỏ để cầu nguyện. Nội dung chi tiết: Wenda20130224A 28:31 Nữ thính giả hỏi: Gần đây con mới bắt đầu học theo Pháp Môn Tâm Linh, trước đây con tu theo pháp môn khác. Trong nhà con hiện đang thờ tượng Phật của pháp môn khác, vậy khi con đốt ngôi nhà nhỏ, có nên cung kính xưng niệm danh hiệu Nam Mô Đại Từ Đại Bi Quán Thế Âm Bồ Tát không? Có thể nói như vậy trước các tượng Phật khác được không? Lư đài trưởng trả lời: Nhà con có tượng Quán Thế Âm Bồ Tát không? ( Dạ chưa có ạ.) Vậy thì con mau chóng thỉnh một tôn tượng Quán Thế Âm Bồ Tát là được rồi. ( Vậy thờ hai vị Phật có được không ạ?) Ba vị, bốn vị cũng được, nhưng đừng quá nhiều. Bây giờ nếu con học theo Pháp Môn Tâm Linh của thầy, thì thỉnh thêm tượng Quán Thế Âm Bồ Tát là được rồi. Phải nhớ kỹ, Bồ Tát không hẹp hòi như người phàm trần đâu. Ba vị Tây Phương Tam Thánh là ai? Có Quán Thế Âm Bồ Tát không? (Dạ có ạ.) Con nghĩ A Di Đà Phật giống như con sao? Gọi tên chư tôn khác mà Ngài lại không vui à? Haha. Dùng tâm phàm phu mà nhìn Bồ Tát, vĩnh viễn chỉ thấy được góc nhìn phàm phu của mình thôi. 家里供奉别的佛像，念经烧小房子祈求的问题 Wenda20130224A 28:31 女听众：我最近才开始学心灵法门，之前是修别的法门的。我家里供奉了别的佛像，那么我在烧小房子的时候，是不是应该要讲恭请南无大慈大悲的观世音菩萨之类的吗？对着别的佛像可以这样讲吗？ “卢台长”答：你有没有观世音菩萨像？（还没有）那你赶快请一尊观世音菩萨就可以了（供奉两尊佛可以吗？）三尊四尊都可以，但是不能太多，你现在如果跟台长学习心灵法门，再放上观世音菩萨像就好了。要记住，菩萨不会像人间这么小气的，西方三圣哪三圣啊？有没有观世音菩萨啊？（有的）你以为阿弥陀佛是你啊？叫了人家他还不开心啊？呵呵。诶，用人间的人看菩萨，永远看出来是人间的人。

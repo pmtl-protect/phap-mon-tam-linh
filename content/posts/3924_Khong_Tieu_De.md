@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.620Z
+draft: false
+url: "/2025/01/tren-nguoi-co-vong-linh-tinh-khi-khong.html"
+---
+
+Tiêu đề bài viết: Trên người có vong linh, tính khí không tốt, nếu thực sự muốn giúp cha mẹ thì nên niệm Kinh Nội dung chi tiết: ☎️Nữ thính giả: Sư phụ, Chúc mừng năm mới 📞:(Chúc mừng năm mới). ☎️:Chúc Sư phụ thân thể khỏe mạnh. Con muốn hỏi cho người sinh năm 1948, tuổi Tí, xem sức khỏe,Trên người có vong linh không ạ? 📞:Đài Trưởng đáp: Trên người có vong linh, ở trên cột sống, Hãy cẩn thận, đốt sống cổ không tốt ☎️:(Đúng ạ. Mẹ của con tính khí không tốt lắm, nhưng bản chất bà ấy là người rất tốt) 📞:Mẹ của con tính khí không tốt, và bà ấy cũng không phải là người tốt lắm. Bởi vì, nếu một người mẹ cả ngày cáu giận mắng chửi con cái, người mẹ này cũng là người khó tiếp nhận giới hạn của bản thân ☎️:(Khi Con nhìn thấy mẹ của con nóng giận, trong lòng rất buồn, bà ấy là mẹ của con). 📞:Vẫn còn rất nhiều ông bố bà mẹ hãy cho vào đi, ghi nhớ này, hãy giúp họ niệm kinh, con thực sự phải cứu họ, phải niệm kinh ☎️:Ồ，Con sẽ giúp mẹ của con niệm 📞:Không niệm Kinh, còn chỉ nhìn bà ấy buồn cũng không có tác dụng gì ☎️:(Vâng, Cảm ân Sư Phụ, Mẹ của con cần bao nhiêu tờ Ngôi Nhà nhỏ?) 📞:65 Tờ ☎️:( Phóng sinh bao nhiêu ạ?) 📞:2500con Zongshu20200125 08:17 身上有灵性，脾气不好；真正帮助父母就念经 女听众：师父，新年好（新年好）祝师父身体健康。我想问一下1948年的，属鼠，看身体，身上有没有灵性？ 台长答：身上有灵性，在脊柱上面。要当心，颈椎不好（对。我妈妈脾气不是很好，但是人很好）你妈妈脾气不好，就是人也不是太好。因为一个母亲整天发脾气骂孩子的话，这个母亲也是属于比较不太受自己的境界约束的（我看到我妈妈发脾气，心里很难过，她是我的妈妈）还有很多爸爸妈妈还抓进去呢。记住了，要帮他们念经，你真的要救他们，要念经（嗯，我帮妈妈念）不念经，你看到她难过也没用啊（是，感恩师父。我妈妈要多少张小房子？）65张（放生多少？）2500条。 Trong quá trình dịch nếu có gì chưa đúng lý đúng pháp xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con. 🙏

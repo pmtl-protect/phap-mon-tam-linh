@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.567Z
+draft: false
+url: "/2024/11/mo-thay-ien-thoai-in-ra-thong-tin-ve.html"
+---
+
+Tiêu đề bài viết: Mơ thấy điện thoại in ra thông tin về sức khỏe và mang thai Nội dung chi tiết: 🌻Nữ thính giả: Một đồng tu mơ thấy mình ở bãi biển và điện thoại của cô ấy bị sóng biển cuốn đi. Lúc đó, điện thoại in ra một xấp tài liệu, dường như là về vấn đề sức khỏe của cô ấy, và trang cuối xuất hiện bốn chữ lớn "Phật Đà điểm hóa," bảo cô ấy đi khám Đông y và cho biết vào tháng 8 năm nay cô ấy sẽ mang thai. Trong thực tế, đồng tu này do vấn đề sức khỏe nên chưa có con và đang dành nhiều thời gian để niệm kinh, cầu Bồ Tát và cầu con. Do không hòa thuận với chồng, hai người đã sống xa nhau hơn một năm nhưng chưa ly hôn. Đồng tu muốn hỏi sư phụ, liệu đây có phải là một giấc mơ dự báo không? Giấc mơ này có phải là điềm báo cô ấy sẽ mang thai? ☀️ Đài Trưởng đáp: Đều có khả năng. Ít nhất thì thứ nhất, cần chú ý đến sức khỏe. (Có khả năng đây là dự báo cô ấy sẽ mang thai, đúng không ạ?) Nhất định là vậy. (Dạ. Hiện giờ cô ấy đang niệm kinh để hóa giải mối quan hệ với chồng.) Đúng rồi, tiếp tục hóa giải. ✨✨✨Wenda20170806A 32:58 梦见手机打印出有关健康和怀孕的信息 女听众：一个同修梦到在海边，她手机被海水冲走了。这时候手机就打印出一叠材料，好像是告诉她健康方面的事情，最后一页出现四个大字——佛陀点化，让同修去看中医，并告诉同修在今年的8月份会怀孕。现实中同修因身体问题没有孩子，也在花大量的时间念经，求菩萨，求子。因为与先生不开心，分开一年多了，但是没有离婚。同修想问师父，这是不是预示的梦？梦里点化她要怀孕？ 台长答：都有可能。至少第一个，身体要当心（有可能是预示她以后会怀孕，是吗？）一定的（好的。她现在和先生的关系不是太好，在念经化解和先生的关系）对，继续化解。

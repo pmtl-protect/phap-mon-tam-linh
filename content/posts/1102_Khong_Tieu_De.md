@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.259Z
+draft: false
+url: "/2024/12/sinh-nhat-ngay-ngay-ong-chi-co-to-chuc.html"
+---
+
+Tiêu đề bài viết: Sinh nhật ngay ngày Đông chí, có thể tổ chức sinh nhật không? Nội dung chi tiết: Nữ thính giả: Đồng tu có ngày sinh nhật ngày âm lịch ngay ngày Đông Chí. Xin hỏi đồng tu có thể tổ chức ngày sinh nhật ngay ngày Đông chí không ạ \*\*\* Đài trưởng đáp: Ngày Đông Chí tốt nhất là không tổ chức sinh nhật. nếu ăn mặn, con chắc chắn sẽ gặp xui xẻo • Nữ thính giả: nếu đồng tu mời bạn bè đi ăn chạy thì sao ạ. \*\*\* Đài trưởng đáp: Ăn chay thì không sao. Wenda20191117 11:35

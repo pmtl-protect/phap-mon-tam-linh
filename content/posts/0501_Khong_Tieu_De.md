@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.768Z
+draft: false
+url: "/2025/06/do-nhan-duyen-qua-bao-gi-ma-khien-nguoi.html"
+---
+
+Tiêu đề bài viết: Do Nhân duyên quả báo gì mà khiến người đầu thai thành Rùa (ba ba) ? Nội dung chi tiết: Do Nhân duyên quả báo gì mà khiến người đầu thai thành Rùa (ba ba) ? Shuohua20180629 07:35 ----------------------------- Người nghe: Thưa Thầy Lư, Do Nhân duyên quả báo gì khiến người đầu thai thành Rùa (ba ba)? Thầy Lư trả lời: Đó là vì tuổi thọ họ còn khá dài, tức là trong kiếp người, tuổi thọ của người đó vẫn còn nhiều. Con hãy xem những Người mà không làm hại người khác nhưng khi sống lại chỉ lo cho bản thân mình, họ rất ích kỷ. Thêm vào đó họ tạo nghiệp sát sinh- từng giế.t hại Rùa (ba ba), nên họ sẽ đầu thai thành Rùa (ba ba). Người nghe: Dạ con hiểu rồi. Ôi, thật sự không thể hại Rùa (ba ba). Thầy Lư trả lời: Tuyệt đối đừng giế.t hại Rùa (ba ba), nghiệp báo rất đáng sợ ! Bản thân làm sẽ phải tự chịu quả báo- Dù hối hận cũng không kịp đâu. Phải thật sự sám hối - ăn năn sám hối sâu sắc! Người nghe: Dạ con đã rõ! \*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\* Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con \*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\*\* Shuohua20180629 07:35 #什么样的因果投成甲鱼 ？ 男听众：师父，什么样的因果投成甲鱼？ 台长答：就是说寿还比较长的，也就是说在做人方面寿还比较长。比方说，你这个人不伤害别人，就管自己，很自私，但是因为你曾经杀害过甲鱼，你投甲鱼了（明白。哎呀，甲鱼真的不能伤害）不能伤，很痛苦的。自己做错事情很后悔啊，真的，非常忏悔（明白了）

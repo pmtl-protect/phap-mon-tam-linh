@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.193Z
+draft: false
+url: "/2025/03/ve-cau-cau-bat-ac-kho.html"
+---
+
+Tiêu đề bài viết: Về câu “Cầu bất đắc khổ” (求不得苦) Nội dung chi tiết: Hỏi: “Cầu bất đắc khổ” là một trong tám khổ của nhân gian, chúng con ở nhân gian không thể hoàn toàn giải thoát. Xin thầy từ bi khai thị, chúng con nên có tâm thái như thế nào để đối diện? Đáp: Thực ra, “cầu bất đắc khổ” là nỗi khổ do chính mình tạo ra. Hãy nhớ: có cầu thì nhất định có khổ, có khổ thì nhất định có cầu. Vì vậy, nếu một người không muốn khổ, thì đừng cầu, không cầu thì không khổ. Thực tế, nhiều người sao lại khổ? Chính là không ngừng cầu xin, cầu cái này cầu cái nọ. “Hôm nay có rồi còn muốn có thêm, có rồi còn muốn có thêm”, “tại nơi làm việc, tôi muốn làm lớn hơn, vị trí cao hơn, tiền nhiều hơn”; mỗi ngày ở nhà, vốn dĩ có một cô con gái đã rất tốt, hài lòng rồi, lại còn muốn có một cậu con trai, sinh ra mà không được, lại khổ; vốn dĩ có một cô con gái đã rất thỏa mãn. Vì vậy, một khi cầu thì sẽ khổ, Bồ Tát nói có cầu thì khổ, đây là một trong tám khổ của đời người. Hy vọng mọi người đừng cầu, đừng tham, chúng ta là những người có hạnh phúc của Phật. 20150119 tại Malaysia - Nhóm hội Phật tử gặp gỡ hỏi đáp\*\* 20150119 Malaysia · Phật hữu gặp mặt hội tu nhóm hỏi 对“求不得苦”的开示 问:“求不得苦”是人间八苦之一, 我们在人间是无法完全解脱的。请师父慈悲开示,我们该以怎么样的心态去面对? 答:实际上,“求不得苦”,这个苦是自己找来的。记住:有求必有苦,有苦一定有求。所以一个人想不苦,就不求,不求就不苦。实际上很多人怎么会苦?就是不停地要啊要啊,求了这个求那个。“我今天有了还要有,有了还要有”“在单位里我想做得更大, 位置更高、钱更多”;天天在家里,本来生了一个女儿蛮好,满意了,还要有个儿子,生又生不出来,又苦了, 本来一个女儿很满足了。所以一求就苦,菩萨说有求就苦,这是人生八苦之一。希望大家不要去求、不要去贪, 我们是一个快乐的佛。 20150119马来西亚·佛友见面会共修组提问 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

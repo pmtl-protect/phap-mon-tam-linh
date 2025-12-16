@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.584Z
+draft: false
+url: "/2025/08/khong-nen-tham-lam-mong-en-dau-ket-hoa.html"
+---
+
+Tiêu đề bài viết: Không nên tham lam mong đèn dầu kết hoa sen hay nhang cuộn vòng Nội dung chi tiết: Không nên tham lam mong đèn dầu kết hoa sen hay nhang cuộn vòng Wenda20120914 06:09 Người nghe nữ: Thưa Sư phụ, trên bàn thờ nhà con đèn dầu luôn kết hoa sen, nhưng nhang thì chưa bao giờ cuộn vòng. Điều này có ý nghĩa gì ạ? Sư phụ Lư đáp: Ồ, sao con tham lam vậy chứ! Bồ Tát đâu cần phải cho con thấy chỗ nào cũng đều kết hoa sen. Chỉ cần có một nơi kết hoa sen là đủ để chứng tỏ Bồ Tát đã đến rồi! Người nghe: Con hiểu rồi, thưa Sư phụ. Sư phụ Lư: Con nên sửa những thói xấu của mình đi. Con nói xem, điều này có phải là tham không? Nếu một ngày nào đó, Quán Thế Âm Bồ Tát hiện trong giấc mơ hoặc đến nhà con, con nhìn thấy Quán Thế Âm Bồ Tát, rồi lại nói: “Ôi, Quán Thế Âm Bồ Tát đến rồi, sao Thích Ca Mâu Ni Phật không đến?” Có phải là giống nhau không? Phải sửa đổi tính xấu này ngay! Nếu không có Sư phụ, các con sẽ học lệch lạc hết. Trước đây tại sao nhiều người học bị lệch lạc? Có người thậm chí bị tẩu hỏa nhập ma vì không có ai chỉ dạy cả! Người nghe: Con hiểu rồi, con sẽ sửa đổi, con sẽ sửa! \*\*\* 不要贪油灯结莲花和香打卷 Wenda20120914 06:09 女听众：台长，我们家佛台油灯总能结莲花，但是香从来没打过卷。这是什么意思呢？ “卢台长”答：诶！你这个人怎么这么贪呐！菩萨又不是要给你看到什么地方都结莲花的，只要有个地方结莲花了，就说明菩萨来过了呀！（台长我懂了）好好改改自己身上的毛病啊，你告诉我这叫不叫贪呐？以后哪一天观世音菩萨到你梦中或者到你家里来了，你看到观世音菩萨了：“哎呀，观世音菩萨来了，释迦牟尼佛怎么不来？”不一样道理呀？！好好改毛病啊！诶！你们没有师父的话，都会学偏差的。过去为什么有这么多人学偏差啊？还有很多人学得走火入魔呢，没有师父讲啊！（懂了，我要改我要改）

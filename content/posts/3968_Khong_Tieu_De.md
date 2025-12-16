@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.711Z
+draft: false
+url: "/2025/01/kinh-doanh-khong-hop-phap-la-tao-nghiep.html"
+---
+
+Tiêu đề bài viết: Kinh doanh không hợp pháp là tạo nghiệp ác trong kiếp này, và sẽ chịu quả báo trong kiếp sau Nội dung chi tiết: Wenda20170101A 51:32 📞Nữ thính giả: Những người rất giàu có trong kiếp này, chúng ta thường nói họ đã làm việc thiện trong kiếp trước và có phước báo. Có một số người rất giàu, nhưng công việc kinh doanh của họ lại không hợp pháp, ví dụ như buôn bán ma túy. Xin hỏi Thầy, họ đã tạo nghiệp gì trong kiếp trước mà trong kiếp này lại gặp phải những công việc như vậy? 🪷Thầy Đáp: Rất đơn giản, họ chắc chắn đã làm việc thiện trong kiếp trước, vì vậy trong kiếp này họ có chút phước báo, chỉ là trong khi nhận phước báo, họ lại tạo ra nghiệp ác mới. 📞Nữ thính giả: Ồ, vậy là nghiệp của họ trong kiếp này, không phải kiếp trước sao? 🪷Thầy Đáp: Đúng, là nghiệp trong kiếp này. Vì vậy, trong kiếp sau, quả báo mà họ phải nhận có thể là mắc bệnh lao phổi, phải chịu khổ suốt đời hoặc bị người khác khinh thường, đó chính là quả báo mà họ sẽ nhận. 做不合法的生意是今世造恶因，来世会受果报 wenda20170101A 51:32 女听众：今世非常富有的人，我们都说他前世行好事，有福报。有些人非常有钱，而他们的生意却是那种不合法，比如卖毒品。请问师父，他们前世是种了什么因，今世会让他们遇到这样的生意呢？ 台长答：很简单，他们前世一定做善事，所以今生有点富有，只是他们在今生受福报的同时，造了新的恶业而已（哦，是他今世的，不是他前世的？）今生造的因。所以他来世受的果报会得肺结核、会终生受苦或者会被人家看不起，就是这种。

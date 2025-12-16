@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.997Z
+draft: false
+url: "/2025/07/sinh-con-la-tuy-duyen.html"
+---
+
+Tiêu đề bài viết: Sinh con là tùy duyên Nội dung chi tiết: Wenda20130120B 01:07:05 Người nghe nữ: Có một vị liên lạc viên ở một khu vực, tu hành cũng rất tinh tấn, năm nay khoảng 40 tuổi mà vẫn chưa có con. Cô ấy có nhiều lo lắng, không thật sự muốn có con. Chồng cô ấy nói rằng nếu cô không sinh con thì nhất định sẽ nhận nuôi một đứa. Cô ấy rất rối rắm, thứ nhất là không biết mình có số sinh con hay không; thứ hai là không biết nên tiếp tục như thế nào, vì chuyện này sẽ mất rất nhiều thời gian, mà cô ấy là liên lạc viên cũng rất bận. Sư phụ Lư Đài Trưởng: Chuyện sinh con là tùy duyên. Tùy duyên mà sinh, tùy duyên mà độ. Làm người cũng như vậy, sinh được thì sinh, không sinh được thì đừng cưỡng cầu, nếu cố sinh thì nhất định sẽ phải trả giá. Nếu không sinh được, chồng cô ấy muốn nhận nuôi một đứa thì cứ nhận, bảo chồng cô ấy nhất định phải nhận con trai, đừng nhận con gái là được rồi. (Tức là cũng không cần cầu xin?) Không cần cầu. (Nhận nuôi có tính như là sinh con không ạ?) Cũng giống nhau, nếu có thể nhận nuôi thì nhất định là đời trước có duyên với người đó. (Cô ấy cũng lo là sợ gặp đứa bé đến đòi nợ, nên rất rối chuyện này…) Không có vấn đề gì lớn đâu, được rồi. (Con sẽ bảo cô ấy nghe đoạn này.) \*\*\* 生孩子要随缘 Wenda20130120B 01:07:05 女听众：有一个地区的联络人她修得也很精进，今年四十左右了还没有孩子，她有很多顾虑，不是很想要孩子，她爱人说如果她不生的话，就一定要去领养一个。她很纠结的是不知道自己命中还有没有孩子；第二个不知道她这个情况应该怎么走下去，因为这会花很多时间，她自己也是一个联络人会很忙。 “卢台长”答：生孩子的事情是随缘的。随缘而生，随缘而度。做人也是这样，生得出你就生，生不出不要硬去生，硬去生的话，一定会付出代价的。如果生不出，她老公领养一个就领养一个，叫她老公一定要领儿子，不要领女儿就可以了（就是说也不要去求）不要求（领养是不是也算生的？）一样，领养的话，实际上前世一定跟他有缘分（所以她也是怕讨债的，特别纠结这个事情）没什么大问题。好吗（明白了，我让她听一听）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.881Z
+draft: false
+url: "/2025/02/co-tinh-gia-trung-binh-cho-cac-loai-ca.html"
+---
+
+Tiêu đề bài viết: Có thể tính giá trung bình cho các loại cá có giá trị khác nhau khi tổ chức phóng sinh không? Nội dung chi tiết: Wenda20141003 27:51 Có thể tính giá trung bình cho các loại cá có giá trị khác nhau khi tổ chức phóng sinh không? Nữ thính giả: Sư Phụ, con chào Ngài! Khi các đồng tu đi phóng sinh, họ phát tâm trực tiếp đến chợ thủy sản để cứu cá, nhưng giá cả và kích thước cá mua được không giống nhau. Ví dụ, có hai đợt cá, đợt thứ nhất là loại cá giá 5 tệ/cân, kích thước lớn, giá cao, số lượng ít. Đợt thứ hai là loại cá giá 4 tệ/cân, kích thước nhỏ, giá rẻ, số lượng nhiều. Để công bằng khi phóng sinh, các đồng tu đã tính trung bình giá hai loại cá để đưa ra một mức giá chung, nhưng tổng số tiền vẫn giữ nguyên. Xin hỏi cách làm này có đúng pháp không ạ? Sư Phụ đáp: Cách làm này có thể chấp nhận được. —----------------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con. —----------------------------------- Wenda20141003 27:51 大放生能把性价比不同的鱼算成平均价格吗 女听众 ：师父您好！同修们去放生，是发心直接去水产市场救鱼，但是买到的鱼的价格和大小不一样。比如是两批鱼，第一批是五块钱一斤的鱼，很大、贵、数量少；第二批是四块钱一斤的鱼，小、便宜、数量多。为了大家放生的时候公平，同修就把两种鱼折算成一个平均的统一价格，总价还是不变的，请问这样做是否如理如法？ 台长答 ：这样可以的。

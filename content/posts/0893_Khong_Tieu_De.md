@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.779Z
+draft: false
+url: "/2025/05/ngay-luc-trai-trong-long-co-phat-moi.html"
+---
+
+Tiêu đề bài viết: Ngày Lục Trai, trong lòng có Phật, mỗi ngày đều là thắp đầu hương Nội dung chi tiết: Shuohua20171020 15:51 – Thính giả nam: Thưa Sư phụ, Sư phụ từng khai thị rằng vào ngày Lục Trai thì chư Phật Bồ Tát giáng lâm đặc biệt nhiều… Sư phụ Lư: Lần trước Thầy đã giảng rất chi tiết rồi – vào ngày Lục Trai, có khi là Bồ Tát giáng lâm, có khi là các vị Hộ Pháp Thần. Có khi là con của Ngọc Hoàng Đại Đế, hoặc con của các vị Hộ Pháp lớn, đều có thể xuống. (Vâng) Thực ra, không nói các vị khác xuống không có nghĩa là họ không xuống, chỉ là họ không có thời gian cố định. Hiểu chưa? (Dạ hiểu. Thưa Sư phụ, ngày Lục Trai có thể thắp đầu hương không ạ?) Nếu trong lòng con có Phật, thì ngày nào con thắp hương cũng là đầu hương. Sư phụ nói cho các con biết, chỉ cần Thầy thắp hương, thì đó chính là đầu hương đơn giản vậy thôi. Trong lòng con, nếu Phật được đặt ở vị trí hàng đầu, thì con chính là đang thắp đầu hương. Còn nếu con đặt tâm ích kỷ, chấp ngã lên hàng đầu, thì con không phải đang thắp đầu hương, dù là thắp hương đầu đi nữa thì cũng không phải “hương đầu tiên” thực sự. (Con hiểu rồi, Sư phụ nói quá đúng ạ) Lấy ví dụ đơn giản Tết không nhất định phải ăn sủi cảo, bây giờ kinh tế khá hơn, ngày nào cũng có thể ăn sủi cảo. Shuohua20171020 15:51 六斋日，心中有佛，天天都是烧头香 男听众：师父，您开示过六斋日菩萨下来特别多……�台长答：我上次跟你们详细讲过，六斋日里边有的是菩萨下来，有的是护法神（对）有天上玉皇大帝的孩子，或者有大护法的孩子，都有的（对）其实，不讲其他的下来，并不代表其他的大护法不下来，只是他们没有固定时间。明白吗？（是。师父，六斋日可以上头香吗？）你心中有佛，天天上头香。师父告诉你们，只要我烧香，我就是上头香，就这么简单。在你心中，拥有佛是第一位，你就是烧头香；你要把自己的自私心、“我相”放在第一位，那你就没有烧头香，就算是头香，也不是头香（明白了，师父您说得太对了）举个简单例子，过年不一定吃饺子，现在经济好了，你每天可以吃饺子。

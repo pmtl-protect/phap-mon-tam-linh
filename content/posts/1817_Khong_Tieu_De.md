@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.110Z
+draft: false
+url: "/2025/05/van-e-lam-hu-tuong-quan-am-do-bat-can_3.html"
+---
+
+Tiêu đề bài viết: Vấn đề làm hư tượng Quan Âm do bất cẩn Nội dung chi tiết: Shuohua20140530 10:27 Nữ thính giả (một thính giả khác cùng cuộc gọi): Mấy ngày trước Sư phụ có nói bàn thờ Phật ở nhà con khá tốt. Con ở Nhật Chiếu, Sơn Đông. Ở đây nhiệt độ lên tới 36 độ. Hôm đó khi con đang nấu ăn, con mở cửa sổ ra, gió rất lớn, tượng Quan Âm đã được khai quang của Quan Âm Đường ở phía sau bị gió thổi ngã về phía trước, làm hư tượng Quan Âm bằng ngọc trắng phía trước. Con đã gọi điện đến Đài Phát Thanh Đông Phương hỏi sư mẫu, và sư mẫu bảo con phải tụng 108 biến Lễ Phật Đại Sám Hối Văn và 49 tờ Ngôi nhà nhỏ. Lư đài trưởng trả lời: Con đã tụng chưa? (Con đã tụng xong rồi, con đã đốt 21 tờ Ngôi nhà nhỏ, con đã phát nguyện là 49 tờ.) Không sao đâu, bọc lại cẩn thận rồi đem đến chùa. (Sư phụ ơi, xin Thầy cảm ứng giúp con xem bàn thờ Phật hiện tại ở nhà con thế nào?) Được rồi, không sao đâu, chuyện này không sao cả. Cố gắng tụng kinh, thành tâm là được. Điều này cho thấy trong nhà có vong linh đó. (Con sẽ tụng nghiêm túc, sư phụ ơi, con thấy rất buồn, sau này con sẽ không mở cửa sổ nữa.) Được rồi, không sao đâu. \*\*\* 不小心弄坏观音像的问题 Shuohua20140530 10:27 女听众（同一电话另一位听众）：前些日子您说我家佛台挺好。我家是山东日照，这边36度的高温，我那天做饭的时候敞开窗户，风很大，后边开光的观音堂的观音像一下子倒前面来了，不小心把前面的白玉观音弄坏了，我打过东方台电话问过师母让我念108遍礼佛大忏悔文和49张小房子。 “卢台长”答：念了没有（我念完了，小房子已经烧了21张，我许愿是49张）没关系的，包包好送到庙里去（师父，感应我家现在的佛台）好啦，没关系的，这个没关系的。好好念啊，心诚啊。说明家里有灵性啊（我会好好念的，师父， 我非常难受，以后不会开窗户了）好了，没关系的。

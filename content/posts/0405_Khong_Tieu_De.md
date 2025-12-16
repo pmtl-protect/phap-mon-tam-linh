@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.496Z
+draft: false
+url: "/2025/06/con-trai-thuong-en-oi-no-con-gai-thuong.html"
+---
+
+Tiêu đề bài viết: Con trai thường đến đòi nợ, con gái thường đến trả nợ Nội dung chi tiết: Thính giả nam: Nếu bị sảy thai mà hoàn toàn không biết mình có thai, thì có phải đứa bé đó đã tạo nghiệp gì dẫn đến tình trạng này không? Hay là do mối quan hệ nào đó với người lớn? Sư phụ: Những đứa trẻ như vậy vốn dĩ đáng lẽ phải được đầu thai, nhưng gia đình này lại không sinh ra chúng, nhân duyên giữa đứa bé và gia đình không sâu nên đã đứt đoạn. Nếu là đứa trẻ đến trả nợ thì không sao, nếu không trả được nó sẽ tiếp tục đầu thai vào nơi khác. Còn nếu là đứa trẻ đến đòi nợ thì nó sẽ không buông tha bạn, tiếp tục chiếm vị trí, hễ vợ chồng quan hệ là nó nhập vào ngay. (Ví dụ như có thai, có người phản ứng mạnh, có người phản ứng nhẹ, có phải một đứa là đòi nợ, một đứa là trả nợ không?) Thông thường phản ứng mạnh là con trai, con gái phản ứng nhẹ hơn. Con trai sinh ra ở nhân gian phần lớn là đến đòi nợ, con gái phần lớn là đến trả nợ. Ý thầy đây là khái niệm tổng thể. Wenda20120212 01:01:18 男孩子讨债的多，女孩子还债的多 男听众：如果根本不知道怀孕就流产了，是不是这个小孩造了什么孽才造成这种情况？还是跟大人什么关系？ 台长答：这种小孩子本身应该他投胎的，但是他们家就不生，小孩子跟他的缘分不深了，就断了。还债的没关系，人家不还了继续再投另外一个。如果是来讨债的就不饶你，继续占在位置上，只要一做夫妻之事就上身 （假如怀孕了，有的人反应大，有的人反应小，是不是一个讨债的，一个是还债的？） 一般反应大的是男孩子，女孩子反应比较小，男孩子生到人间来都是讨债的多，女孩子一般都是还债的多。我讲得是整体的概念。 Wenda20120212 01:01:18

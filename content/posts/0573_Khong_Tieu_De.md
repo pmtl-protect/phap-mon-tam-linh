@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.003Z
+draft: false
+url: "/2025/06/nguoi-khong-tin-phat-nhung-chay-niem.html"
+---
+
+Tiêu đề bài viết: Người không tin Phật nhưng ăn chay niệm Thần Chú Công Đức Bảo Sơn có thể chuyển hóa thành công đức Nội dung chi tiết: Thính giả nữ: Bạch Sư phụ, bà nội của con không tin Phật nhưng đã ăn chay nhiều năm, có lẽ bà cho rằng ăn chay tốt cho sức khỏe. Việc này có lẽ không tạo công đức, nay bà bị bệnh, con có thể niệm Chú Công Đức Bảo Sơn để chuyển hóa việc ăn chay của bà thành công đức không ạ? Sư phụ: Được chứ, tất nhiên có thể chuyển hóa (Nhưng bà ấy không tin Phật ạ?) Bà không tin Phật, nhưng chỉ cần bà lương thiện, không làm việc xấu, thì việc niệm Thần Chú Công Đức Bảo Sơn tự nó đã là một loại công đức rồi. Bởi vì khi con chuyển việc thiện thành công đức, thực chất trong lúc con niệm kinh đã có Bồ Tát bảo hộ cho bà rồi, như vậy cũng coi như bà đang tu tâm. Bà không tu, nhưng con giúp bà tu, như thế chẳng phải khác nhau sao? (Dạ vâng. Con cảm ơn Sư phụ!) Wenda20170305B 08:32 不信佛的人吃素念功德宝山神咒能转化为功德 女听众：师父，我奶奶不信佛，但是她吃素好多年了，她可能觉得吃素比较健康吧。这种可能是没有功德的，现在她生病了，我能不能帮她念功德宝山神咒，让她吃素的善事转化成功德呢？�台长答：可以，当然可以转化（像她这种不信佛的人）她不信佛，但是她只要善良，不做坏事，念功德宝山神咒，本身就是一种功德。因为当你把善事转为功德的时候，实际上你在念经的时候就有菩萨在保护她了，其实她就是在修心了。念经不修心啊，她没修你帮她在修啊，不一样啊？（好的。感恩师父） Wenda20170305B 08:32

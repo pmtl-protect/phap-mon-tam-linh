@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.055Z
+draft: false
+url: "/2025/02/niem-kinh-niem-en-nguoi-cang-ngay-cang.html"
+---
+
+Tiêu đề bài viết: Niệm kinh niệm đến người càng ngày càng trở lên xinh đẹp mới là đúng Nội dung chi tiết: Con nhớ kỹ, tự mình phải mở mang trí huệ, học Phật học đến sau này người phải thay đổi, mỗi người niệm kinh niệm đến sau này sẽ trở lên xinh đẹp, như vậy mới là đúng, càng tu càng xấu xí, chính là đi sai đường, ta không lừa con đâu. ✨ Niệm kinh niệm đến sau này, người càng niệm càng xinh đẹp, con mới là Tu Tốt ; càng niệm càng hung dữ, càng niệm càng nhiều phiền não, càng niệm càng không vui vẻ, con nhất định là học Phật học sai mất rồi! ✨✨✨ Huyền nghệ tổng thuật 20160301 ☀️ 念經念到人 越來越漂亮才是正的 ✨你記住了,自己要多開智慧,學佛學到後來人要改變,每個人念經念到後來會漂亮,那就對了,越修越難看,就是走偏了,我不騙你的。 ✨念經念到後來,人越念越漂亮, 你才是正的;越念越凶,越念越煩惱,越念越不開心,你一定學佛學錯了! ✨✨✨ 玄藝綜述20160301 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

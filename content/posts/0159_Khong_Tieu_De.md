@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.861Z
+draft: false
+url: "/2024/12/ve-cau-noi-ban-ngay-khong-noi-nguoi-ban.html"
+---
+
+Tiêu đề bài viết: Về câu nói “Ban ngày không nói người, ban đêm không nói ma” Nội dung chi tiết: Người nghe nam: Thưa Sư phụ, có phải có một quan niệm như thế này không: không được nói xấu người đã khuất, nếu không họ sẽ quay lại trả thù mình? Sư phụ trả lời: Đúng vậy. Vì ma biết bạn đang nói xấu họ, bạn sẽ mắc nợ họ. Khi bạn mắc nợ, họ sẽ gây rắc rối cho bạn. Vì vậy, người ta nói “chọc giận ma” chính là như vậy mà ra (Khi chúng ta nói ban ngày về người đã khuất không tốt, họ lập tức nhận được thông tin, có phải như vậy không?). Người ta có câu: “Ban ngày không nói người, ban đêm không nói ma.” Ban đêm đừng nói xấu ma (Ồ). Ban ngày đừng nói người khác không tốt, ban đêm đừng nói ma không tốt, vì ma hoạt động vào ban đêm, còn người thì hoạt động vào ban ngày. Nhiều người làm ngược lại, điều đó lại tốt hơn một chút. Không có ai ở đó, họ ở nhà ban đêm nói người khác không tốt. Vì vậy, nhiều người thích nói xấu người khác vào ban đêm. Còn ban ngày nói xấu ma thì ma không nghe thấy (Vậy loại người này được gọi là có “trí tuệ,” nhưng loại “trí tuệ” này cần phải để trong ngoặc kép). Không hẳn là “trí tuệ.” Loại người này thực ra chỉ là đang tính toán vặt vãnh thôi. Wenda20170820A 17:23 關於「白天不說人，晚上不說鬼」 男聽眾：師父，是不是有這樣的說法：不能說亡人不好，否則他會來報復你的？ 台長答：是。因為鬼知道你在說他不好，你就欠他了，欠他他就搞你了，所以人家說「惹鬼」，就這麼惹來的（我們在白天說哪個亡人不好，他馬上就接到信息了，是這樣嗎？）人家說「白天不說人，晚上不說鬼」，是晚上（哦）白天不要說人家不好，晚上不要說鬼不好，因為鬼是晚上出來的，人是白天在的。很多人反過來，那麼就好一點。沒人在的時候，他晚上在家裡說人家不好，所以很多人就喜歡晚上說人不好。白天說鬼不好，鬼聽不見（那這種人叫有「智慧」了，這種「智慧」加引號）也不叫「智慧」，這種人就是動小腦筋。

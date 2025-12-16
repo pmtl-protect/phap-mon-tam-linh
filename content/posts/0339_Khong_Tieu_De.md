@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:41.338Z
+draft: false
+url: "/2025/06/cau-31-van-e-ve-le-bai-bo-tat-vao-mung.html"
+---
+
+Tiêu đề bài viết: Câu 31: Vấn đề về lễ bái Bồ Tát vào mùng 1 Tết - Hỏi Đáp Phật Học Pháp Môn Tâm Linh Nội dung chi tiết: Ngày 15 tháng 2 năm 2010 Hỏi 31: Con có một thắc mắc muốn hỏi thầy. Vào mùng 1 Tết, con có thể đến nhiều ngôi chùa có thờ Đức Quán Thế Âm Bồ Tát để dâng hương và cầu nguyện cùng một điều ước được không? Vì theo phong tục của chúng con, vào mùng 1 Tết thường đi lễ nhiều chùa. Đáp 31: Việc tôn kính và lễ bái Phật, Bồ Tát tất nhiên là điều tốt. Lễ bái tại những ngôi chùa có Bồ Tát ngự là tốt, nhưng nếu chùa không có Bồ Tát thì không tốt lắm. Tốt nhất là nên thường xuyên đến một ngôi chùa cố định để lễ bái. Hãy thành tâm tu hành theo Quán Thế Âm Bồ Tát. Quan trọng nhất vẫn là thường xuyên niệm kinh, phóng sinh, phát nguyện, tu tập và tu dưỡng tâm. Khi đó, Bồ Tát mới có thể phù hộ cho con. 31、有关大年初一拜菩萨的问题——《心灵法门佛学问答 三十一》 2010-02-15 问31：我有个疑问想请教卢台长，大年初一我可以到好几间有供奉大慈大悲观世音菩萨的庙里面上香许愿吗？是许同样的愿望。因为我们的习俗大年初一会到好几间庙宇拜拜的。 答31： 尊敬佛菩萨去朝拜当然是好的。 拜有菩萨去的庙都是好的，而拜没有菩萨去的庙就不是太好。 最好平时到固定去的庙宇朝拜。跟着观世音菩萨好好地修。 最主要还是要平时念经、放生、许愿，好好地修行、修心，菩萨才会保佑您。

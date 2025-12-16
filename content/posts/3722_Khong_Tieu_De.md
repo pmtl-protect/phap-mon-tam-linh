@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.108Z
+draft: false
+url: "/2025/02/nguoi-dinh-lien-la-do-hai-linh-hon.html"
+---
+
+Tiêu đề bài viết: Người dính liền là do hai linh hồn tranh nhau đầu thai Nội dung chi tiết: Wenda20140718 01:44:00 Thính giả nữ hỏi: Thưa Sư phụ, từ góc độ huyền học, hiện tượng “người dính liền” là như thế nào? Vì sao lại có người dính liền ạ? Đáp của Sư phụ: Rất đơn giản. Nếu xét từ góc độ y học, đó là do khi tinh trùng và trứng kết hợp, sự phân bố của các nhiễm sắc thể X và Y không đồng đều. Trong di truyền học, điều này xảy ra khi tế bào được phân bố không đồng đều, dẫn đến việc hình thành hai đầu trên một cơ thể. Nhưng từ góc độ tâm linh, giải thích rất đơn giản: hai linh hồn này nhất định là tranh nhau để được đầu thai. Vì vậy mới xuất hiện hai cái đầu, cả hai đều không nhường nhau. Một linh hồn đã chiếm chỗ, nhưng linh hồn kia nói: “Vốn dĩ là của tôi.” Thế là cả hai cùng nhập vào, dẫn đến hiện tượng này. Sau đó, cả hai sẽ tiếp tục “cãi nhau” cả đời: ngủ cũng cùng nhau, tắm cũng cùng nhau, và hai cái đầu cãi nhau suốt ngày. Ha ha… Bạn hiểu chưa? (Hiểu rồi, thưa Sư phụ. Sư phụ, con xin chào tạm biệt.) Tạm biệt. Wenda20140718 01:44:00 连体人是两个人抢着要投胎 女听众：想问师父，“连体人”从玄学上讲是怎么回事？怎么会有连体人呢？�台长答：很简单，如果从医学角度上来讲，那就是他本身的精子和卵子结合当中，这个X和Y里边的分布不均匀，就是这样。这个是医学上来讲，遗传学上来讲，就是他生产的那种细胞分布不均匀，所以才会生出两个头放在一起，身体只有一个。但是从灵界讲很简单，这两个人一定是抢着要投胎，所以才会出来两个头，大家不买账，两个人都要抢，一个是位子已经占着的，一个说“本来是我的”，好啦，一下子全出来了，那么两个人吵吧，就吵一辈子，因为睡觉也睡在一起，洗澡一起洗，然后两个头天天打架，呵呵……明白了吗？（明白了，师父，师父再见）再见。

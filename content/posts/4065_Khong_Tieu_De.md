@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.945Z
+draft: false
+url: "/2025/01/dan-cau-oi-va-mon-than-trong-dip-tet.html"
+---
+
+Tiêu đề bài viết: Dán câu đối và Môn Thần trong dịp Tết Nội dung chi tiết: wenda20120511 38:10 Nam thính giả: Con là người Hà Nam, Trung Quốc. Ở đại lục có phong tục truyền thống dịp Tết dán câu đối và Môn Thần, chẳng hạn như dán tranh Quan Đế, Trương Phi làm thần cửa... Đài Trưởng đáp: Bất kỳ một vị Bồ Tát nào mà con kính trọng, thì nhất định phải thắp hương cúng bái. Nếu con dán hình Bồ Tát lên cửa, mà cửa lại mở qua trái, mở qua phải, con nghĩ như vậy có tôn trọng Bồ Tát không? (Người dân Trung Quốc thường dán thần cửa như vậy vào dịp Tết.) Chúng ta có rất nhiều điều không hiểu. Có những truyền thống tổ tiên truyền lại rất tốt, nhưng cũng có những thứ không tốt. Thời nhà Thanh, chẳng phải tổ tiên chúng ta đó sao? Họ còn để tóc đuôi sam, sao bây giờ con không để tóc đuôi sam nữa? họ từng làm sai nhiều việc, con cũng tiếp tục làm theo những sai lầm đó à? (Nhưng gia đình không tin điều này.) Nếu họ nhất quyết muốn mua, thì con cứ để họ dán, đừng tranh cãi với họ. Những người học Phật chúng ta thì tùy duyên mà sống. ------------ Trong khi dịch nếu có gì chưa đúng lý đúng pháp, xin Bồ Tát & Chư Thần Hộ Pháp từ bi tha thứ cho con 🙏 ------------ wenda20120511 38:10 春节贴对联、门神的问题 男听众：我是中国河南的。大陆有传统习惯，春节贴对联、门神，比方说贴关帝像、张飞像门神…… 台长答：任何一尊菩萨你尊敬的话，必须要点香供起来，你把菩萨贴在门上左开右开的，你说对菩萨尊敬不尊敬？（中国老百姓过春节都是这样贴门神）我们很多东西不懂，祖上传下来很多东西，有的非常好，有的非常不好。清朝是不是我们的祖宗？他们还留着辫子呢，你怎么现在不留辫子？他们过去做错很多事情，你也延着他们做错的事情再做吗？（但是家人不信这个）他们硬要买你就让他们贴，不要跟他们搞， 我们学佛人随缘。

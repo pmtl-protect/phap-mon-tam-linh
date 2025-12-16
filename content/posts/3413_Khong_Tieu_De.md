@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.260Z
+draft: false
+url: "/2025/04/nguoi-moi-ngay-eu-biet-on-trong-tam.html"
+---
+
+Tiêu đề bài viết: Người mỗi ngày đều biết ơn, trong tâm nhất định tràn đầy lòng cảm kích. Người cả miệng đầy sự đố kỵ, trong tâm nhất định ngập tràn tâm ganh ghét... Nội dung chi tiết: ♨️♨️♨️ Người mỗi ngày đều biết ơn, trong tâm nhất định tràn đầy lòng cảm kích. Người cả miệng đầy sự đố kỵ, trong tâm nhất định ngập tràn tâm ganh ghét. Người cả miệng đầy vọng ngữ, trong lòng nhất định là tâm tà không ngay chính. ~ Trích Bạch Thoại Phật Pháp hàng ngày của Sư Phụ – Ngày 05/05/2021 每天感恩的人，心中一定充滿感恩心。 滿嘴嫉妒的人，心中一定充滿嫉妒心。 滿嘴妄語的人，心中一定是心術不正。 ～2021年師父每日白話佛法2021.05.05 ----------------------------------- Trong quá trình dịch và chia sẻ Pháp, Con có gì sai sót, không đúng Lý, đúng Pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.

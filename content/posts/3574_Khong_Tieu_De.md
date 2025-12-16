@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.740Z
+draft: false
+url: "/2024/11/lien-quan-en-van-e-cho-nga-quy-an.html"
+---
+
+Tiêu đề bài viết: Liên quan đến vấn đề "cho ngạ quỷ ăn" Nội dung chi tiết: shuohua20130419 09:29 Nữ thính giả : Có một người khoảng độ 5h chiều sẽ ở nhà hàng cho vong linh ăn, để xin cho công việc làm ăn của nhà hàng tốt lên. Như vậy có ảnh hưởng đến một đồng tu khác ở nhà hàng tu hành không? có mang lại phiền phức không? Lư Đài Trưởng : Chắc chắn là có, cậu ta là đang rước quỷ đấy, xin "tiểu quỷ" giúp nhà hàng làm ăn tốt, điều này là không như lý như pháp, nó giống như kêu những bà đồng ở nông thôn làm cúng bái vậy. Nếu như nhà hàng làm ăn được thì tốt, nếu làm ăn không tốt, còn ráng mời gọi quỷ giúp, con nói như thế có đúng lý đúng pháp không, có gặp rắc rối không? Nữ thính giả : Với đồng tu đang tu PMTL kia có bị ảnh hưởng không? Bởi vì người đó niệm kinh, niệm Ngôi Nhà Nhỏ trong nhà nhà hàng Lư Đài Tưởng : Chắc chắn là có ảnh hưởng rồi. Bởi vì thường xuyên cho ngạ quỷ ăn, nên quỷ đều sẽ đến. Lấy ví dụ, nếu con thường xuyên rải hạt gạo ở trước cổng cho gà ăn, gà đến có nhiều không? Bây giờ 5h mỗi ngày sẽ có rất nhiều quỷ đến nhà hàng, lúc này cậu ta bố thí, thì giống như cho ngạ quỷ ăn vậy. Hơn nữa niệm kinh ở đây, "Người ta" nhìn thấy liền :"Woww, ở sát đây còn có cả tiền để lấy nữa " con nói xem quỷ có đến tìm người đông tu kia không? shuohua20130419 09:29 有关施食的问题 女听众：有个人下午五点钟左右在店里施食给灵性，祈求店里生意好起来。这样会不会影响店里另外一个同修修行？给他们带来麻烦？ 台长答：一定会的。他是在招GUI，祈求小GUI帮助他店里的生意好，这些都不如理如法，就是像农村的巫婆帮做法事一样。如果店里本身有生意就有，没有生意的话，硬叫小GUI帮你来弄点生意过来，这如理如法吗？会不会闯祸？（对另外一个学心灵法门的同修有没影响？因为他会在店里念经、念小房子）一定会有影响。因为经常做施食的时候，GUI都来了。举个例子，如果你经常把米粒放在大楼门口喂鸟，鸟多不多？现在每天五点钟的时候会有很多GUI来到他店里，这个时候他布施，像施食一样。而他在这里念小房子，人家一看“哇！这隔壁还有钱拿呢”。你说不来找他吗？

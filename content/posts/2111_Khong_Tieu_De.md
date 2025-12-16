@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.777Z
+draft: false
+url: "/2025/04/mot-ong-tu-lam-kinh-doanh-trong-cong.html"
+---
+
+Tiêu đề bài viết: Một đồng tu làm kinh doanh, trong công việc thường để tranh giành cơ hội, trong lòng khởi lên những ý niệm như tâm cạnh tranh, rất khó giữ được tâm thanh tịnh. Xin hỏi nên làm thế nào? Nội dung chi tiết: Hỏi 78: Một đồng tu làm kinh doanh, trong công việc thường để tranh giành cơ hội, trong lòng khởi lên những ý niệm như tâm cạnh tranh, rất khó giữ được tâm thanh tịnh. Xin hỏi nên làm thế nào? Đáp 78: Làm kinh doanh thì luôn có tâm cạnh tranh và tham lam, nếu không thì đã không làm kinh doanh. Tuy nhiên, người tu học Phật phải loại bỏ tâm tham, phần mình nên kiếm thì kiếm, phần không phải của mình thì dù một chút cũng không nên lấy. Có thái độ như vậy mới có thể dần dần tu tập tốt. Ví dụ, một món hàng nên bán với giá bao nhiêu thì cứ bán với giá đó, nếu thấy kinh doanh tốt mà tăng giá lên thì đó là khởi tâm tham. Người học Phật, cuộc sống chính là học Phật , cần phải để bản thân trong cuộc sống không tham-sân-si. Kinh doanh cũng là một phần của học Phật, nếu trong kinh doanh mà tâm tham quá lớn thì làm sao tu tâm cho tốt được? Vì vậy, cần phải kiềm chế bản thân, tiền bạc chỉ là chuyện nhỏ, mất đi thì mất đi, hôm nay chỗ này không kiếm tiền được, thì mai lại có thể kiểm tiền lại ở nơi khác. 问78：同修是做生意的，平时为了争取到生意，心中会动念，譬如竞争心等，很难有清净心。请问该怎么做？ 答78：做生意，总是有竞争心、贪心，不然不会去做生意。但是学佛人要去除贪心，该我赚的我赚，不该我的我多一分也不要，有这种心态，才能慢慢修好。譬如一个东西，该卖多少钱就是多少钱，如果看到生意好就涨价了，那就是起贪心了。学佛人，生活就是学佛，就是要让自己在生活中不要有贪瞋痴。生意也是学佛的一部分，如果生意中，贪心那么足，修心怎么修得好？所以要克制自己，不就是一点钱吗？没了就没了，今天这地方没了，明天别的地方还能赚回来。

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.257Z
+draft: false
+url: "/2025/02/khao-mong-khong-qua-niem-le-phat-ai-sam.html"
+---
+
+Tiêu đề bài viết: Khảo Mộng không qua niệm Lễ Phật Đại Sám Hối Văn số biến tùy thuộc vào nội dung Khảo Mộng Nội dung chi tiết: Nữ thính giả : Gần đây Sư phụ khai thị, khảo mộng không qua nhiều nhất niệm 21 biến Lễ Phật Đại sám hối văn là đủ rồi, trước kia Sư Phụ khai thị không qua cần niệm 49 biến. Con muốn thỉnh Sư phụ xác nhận một chút, khảo mộng không qua cần niệm bao nhiêu biến Lễ Phật Đại Sám Hối Băn ạ? Đài Trưởng đáp: Cần phải xem khảo mộng vấn đề gì . Nếu Ăn mặn , những vấn đề này niệm 21 biến; còn khảo mộng lớn không qua, ví dụ như Tà Dâm, trong mộng cùng người khác làm những việc đó, cảm giác giống như thật vậy, con không qua mộng khảo, thì xin lỗi, 49 biến. Hiểu chưa? (Dạ , con hiểu rồi ạ, cảm ơn Sư phụ!) Wenda20151016 27:28 梦考没过念礼佛大忏悔文的遍数取决于梦考的内容 女听众：最近师父开示，梦考不过最多念21遍礼佛大忏悔文就足够了，原来开示梦考不过要念49遍。想再请师父确认一下，梦考不过要念多少遍礼佛大忏悔文？ 台长答：要看什么梦考的。吃荤这些问题21遍；像大的梦考不过，比方说邪淫、在梦中跟人家做那些事了，体验像真的一样，那你就梦考没过，那对不起，49遍。明白了吗？（明白了，感恩师父！） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.562Z
+draft: false
+url: "/2025/05/ung-bao-gio-tu-tu-du-kho-en-may-cung.html"
+---
+
+Tiêu đề bài viết: Đừng bao giờ tự tử, dù khổ đến mấy cũng phải cố gắng chịu đựng Nội dung chi tiết: Hỏi: Khi mới học Pháp Môn Tâm Linh, do chưa hiểu nên con đã phát nguyện siêu độ cho mẹ con được vãng sinh về Tây Phương Cực Lạc. Mẹ con là người tự tử. Sau này con mới biết người tự tử rất khó siêu độ. Con đã tụng rất nhiều Ngôi Nhà Nhỏ cho bà, nhưng bây giờ không biết phải làm sao? Đáp: Nói chung, người tự tử nhiều nhất cũng chỉ có thể đầu thai làm người, nên tuyệt đối đừng tự tử, dù khổ đến đâu cũng phải cố gắng chịu đựng. Người tự tử chẳng những không thể lên cõi trời hay A-tu-la, mà được làm người đã là may mắn lắm rồi. Dù đầu thai làm người cũng sẽ vào hoàn cảnh cực kỳ khổ đau, phần lớn bị giam trong "Thành Uổng Tử", nhiều nhất là đọa vào súc sinh hoặc ngạ quỷ. Phải tụng kinh thật nhiều, dù biết khó siêu độ nhưng càng tụng càng tốt, ít nhất cũng giúp họ đầu thai vào gia đình tốt. Cùng là con người, nhưng có người sống sung sướng giàu có, có người lại khổ sở – đó là do nghiệp chướng và công đức từ kiếp trước. Đầu thai làm người chưa chắc đã tốt, có người sinh ra đã khổ đến già, chính là đến để trả nợ. Khai thị của Sư Phụ Lư Đài Trường - Giải đáp thắc mắc trong thư (240) \*\*\*\*\*\*\*\*\* 【千萬不要自殺，再苦也要咬咬牙！】 問：我剛剛學心靈法門的時候因為不懂，就許願要把我母親要超到西方極樂世界。我母親是自殺的。後來才知道自殺的人很難超度。我已經給她念了很多小房子了，現在不知該怎麼做才好？ 答：一般來說，自殺的最多最多就是投人，所以千萬不要自殺，再苦也要咬咬牙。自殺的人不要說天人阿修羅，能投人已經很好了，就算投人也是投苦的不得了的人，基本上在枉死城，投畜生最多，投餓鬼也有。 要狂念經，雖然知道推不上去也要多念經，總會越念越好，就算投人也能投一個好人家。同樣是人，為什麼有些人很幸福很有錢，而有些人很苦？就是前世的冤結和功德所為，不是說投人都好的。有些人從小苦到老，就是來還債的。 📩盧台長開示解答來信疑惑（二百四十）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.511Z
+draft: false
+url: "/2025/11/an-chay-truong-la-buoc-au-tien-cua-long.html"
+---
+
+Tiêu đề bài viết: Ăn chay trường là bước đầu tiên của lòng từ bi Nội dung chi tiết: Đài Trưởng Lư khai thị cho đệ tử ( Câu hỏi số 8 ) Hỏi: Đệ tử từ ngày 1/7 đã bắt đầu ăn chay trường nhưng chưa phát nguyện. Cũng biết Đài Trưởng đã từng nói ăn chay trường mà không phát nguyện thì cũng giống như sở thích mà thôi, không có công đức. Bởi vì do lần trước con mộng khảo không vượt qua được. Đáp: Ăn chay trường là bước đầu tiên của lòng từ bi. Nếu như con vẫn chưa phát nguyện nhưng đã ăn chay trường, đó cũng là một bước tiến bộ lớn. Nếu như con không phát nguyện, thì người chịu thiệt thòi là con. Bởi vì vốn dĩ con có thể khấn xin một việc lớn nào đó. Sau này nếu có cơ hội hãy dần dần phát nguyện, ít nhất là khi con ăn chay thì tâm hồn cũng được thanh tịnh. Sau đó phát nguyện sau này cả cuộc đời ăn chay, vậy là được rồi. Nếu như sau này thực sự xảy ra vấn đề đặc biệt, vậy Bồ Tát nếu có thể tha thứ sẽ tha thứ cho con rồi, Thần Hộ Pháp nếu tha thứ cho con sẽ không phạt tội nữa. Ví dụ có người cố ý khi con ăn chay họ bỏ đồ ăn mặn vào để xem con có nhận ra hay không, họ sẽ có tội. Nhưng nếu người nhà con ăn mặn con cũng không nên nói họ. Nếu không sẽ ảnh hưởng đến cách nhìn của họ về đạo Phật. Vậy nên có lúc cũng nên tuỳ duyên, thời gian đủ chín mùi có thể ăn chay trường, nếu chưa chín mùi thì mùng 1, 15 ăn chay cũng rất tốt. Không nhất định là mộng khảo vượt qua mới phát nguyện ăn chay.

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.888Z
+draft: false
+url: "/2025/04/cang-niem-kinh-gia-inh-cang-it-gap-su.html"
+---
+
+Tiêu đề bài viết: Càng niệm kinh, gia đình càng ít gặp sự cố; thường xuyên nghi ngờ người khác sẽ xảy ra chuyện, chính là không có phúc khí. Nội dung chi tiết: Wenda20191124 54:23 Nữ thính giả: Rất nhiều đồng tu trẻ trong Pháp Môn Tâm Linh, có một nhóm là tự lực cánh sinh, vừa làm việc vừa hoằng pháp; còn có một số người hầu như không đi làm, dựa vào sự trợ giúp của gia đình, rồi dùng toàn bộ thời gian tiết kiệm được để hoằng pháp. Đối với trường hợp thứ hai này, có những ý kiến khác nhau, có người cho rằng như vậy sẽ không đủ độc lập, dễ gây gánh nặng cho gia đình, hơn nữa cuộc đời vô thường, nếu chẳng may gia đình ly hôn hoặc người thân qua đời, thì những người không đi làm này có thể sẽ... "Lư Đài Trưởng" đáp: Người ta đã có phúc khí rồi, càng niệm kinh, gia đình người ta càng không xảy ra những chuyện như vậy. Còn những người cứ nói ra nói vào, họ đang sống trong sự xui xẻo đấy, họ đang gặp vận xui rồi. Họ ngày ngày nghi ngờ, lo lắng nhà người khác sau này sẽ xảy ra chuyện thế này thế kia, kiểu người này chính là người không có phúc khí, hiểu chưa? (Hiểu rồi, tức là cứ nghĩ người khác theo hướng xấu) Người có phúc khí thì đã đang sống trong phúc khí rồi. (Hiểu rồi ạ) \*\*\* 越念经家里越不会出状况；常怀疑别人会出事，就是没有福气 Wenda20191124 54:23 女听众：心灵法门的很多年轻的同修，一种人是自力更生，一边工作一边弘法；还有的人几乎不工作，靠着家里资助，他把这节省下来的时间全部用来弘法。对于第二种有不同的看法，有的人觉得会不会不够独立，给家人造成负担，而且人生无常，万一家人离婚或者家人早逝，那这个不上班的人可能…… “卢台长”答：人家已经有福气了，人家越念经，家里就不会出现这种情况。去讲人家的这种人天天在倒霉当中呢，他已经在倒霉当中了，他天天去怀疑人家家里以后出事怎么办，这种人就是没有福气的人，听得懂了吗？（明白，他就把人往坏的地 方想）有福气的人已经在福气中了（明白了）

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:48.282Z
+draft: false
+url: "/2025/02/vong-linh-gia-mao-bo-tat-khien-ong-tu.html"
+---
+
+Tiêu đề bài viết: Vong Linh giả mạo Bồ Tát khiến đồng tu ngủ ít Nội dung chi tiết: Wenda20190222 09:43 Nữ thính giả: Một nữ đồng tu từ hai năm trước đã nói rằng cô ấy nhận được khai thị từ Bồ Tát, bảo cô ấy đêm ngủ ít, ban đêm hầu như không buồn ngủ. Gần đây, cô ấy đến ở nhà một đồng tu có thiên nhãn, liên tục sáu ngày không ngủ mà cũng không thấy mệt. Hỏi Đài Đông Phương, Đài Đông Phương nói rằng Sư phụ đã khai thị, phải ngủ nghỉ đầy đủ. Cô ấy nói rằng mấy ngày qua, bên cạnh cô ấy, Bồ Tát cũng điểm hóa cho cô ấy có thể làm như vậy, nói rằng tình huống của cô ấy khá đặc biệt. Thưa Sư phụ, việc cô ấy làm như vậy có đúng lý đúng pháp không? "Lư Đài Trường" đáp: Bồ Tát nào? Bảo cô ấy nói cho thầy nghe xem. Bồ Tát nào lại bảo cô ấy không ngủ? Con nói xem Bồ Tát có thể bảo chúng ta không ngủ không? (Không thể) Đúng rồi. Bồ Tát luôn quan tâm, yêu thương chúng ta, đôi khi còn bảo chúng ta nghỉ ngơi đầy đủ (Vậy cô ấy đã đi sai lệch rồi, phải không?) Đúng vậy. Cô ấy tưởng đó là Bồ Tát. Rất nhiều vong linh giả mạo Bồ Tát (Hiểu rồi. Thật đáng sợ). \*\*\* 灵性冒充菩萨让同修少睡觉 Wenda20190222 09:43 女听众：一个女修行者从两年前就说接到菩萨开示，让她晚上少睡觉，晚上基本不困。最近她住到一个开天眼同修家里，连续六天没有睡觉，而且也不累。问了东方台，东方台说师父开示，要好好睡觉休息。她说，这几天，在她身边，菩萨也点化她可以这样，说她情况比较特殊。请问师父，她这样是否如理如法呢？ “卢台长”答：哪个菩萨？你叫她讲给我听啊。哪个菩萨不让她睡觉的？你说菩萨会不让我们睡觉吗？（不会）好了。菩萨是关心我们，关爱我们，有时候叫我们好好休息（那她就是走偏了，是吗？）对啊。她以为是菩萨。很多灵性冒充菩萨（明白了。好吓人）

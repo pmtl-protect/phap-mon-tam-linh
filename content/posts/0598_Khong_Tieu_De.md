@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.071Z
+draft: false
+url: "/2025/06/lam-nao-e-hoa-giai-nhung-ieu-khong-vui.html"
+---
+
+Tiêu đề bài viết: Làm thế nào để hóa giải những điều không vui, những chuyện khó chịu trong lòng Nội dung chi tiết: 🇻🇳🌻 Hỏi: Làm thế nào để hóa giải những điều không vui, những chuyện khó chịu trong lòng? ☀️ Đáp: Thông thường những chuyện như vậy phải niệm nhiều Tâm Kinh, hơn nữa phải đúng bệnh mà chữa, phải nói với Quán Thế Âm Bồ Tát: "Cầu xin Quán Thế Âm Bồ Tát từ bi, gần đây con có một việc trong lòng cứ nghĩ mãi không thông, con muốn niệm 108 biến Tâm Kinh để hóa giải oán kết này, cầu xin Quán Thế Âm Bồ Tát ban cho con trí tuệ, giúp con thoát khỏi tư duy của phàm trần." Bởi vì câu nói này "thoát khỏi tư duy của phàm trần ", Bồ Tát sẽ nâng cao cảnh giới của bạn lên một chút, như vậy một lát bạn liền nghĩ thông rồi, rất lợi hại! Khai thị và giải đáp thắc mắc qua thư (135) 🇦🇺 如何化解不開心、悶在肚子裡的事情 問：如何化解不開心、悶在肚子裡的事情？ 答：一般像這種事情要多念心經，而且要對症下藥，要跟觀世音菩薩說：「請觀世音菩薩慈悲，我最近心中有一件事情老想不通，我想念108遍心經來化解這個冤結，祈請觀世音菩薩賜給我智慧，讓我脫離凡塵的思維。」因為這句話「脫離凡塵的思維」，菩薩就會給你把境界提得高一點，那你一會兒就想通了，很厲害的！ --開示解答來信疑惑（一百三十五） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con . 🙏 Quý Phật tử thân mến ! Trong quá trình dịch thuật, có thể có những sai sót không tránh khỏi. Nếu quý Phật tử có bản dịch tốt hơn, xin vui lòng góp ý và đóng góp cho chúng tôi qua địa chỉ email: admin@pmtl.site Chúng tôi chân thành cảm ơn sự đóng góp của quý vị.♥️

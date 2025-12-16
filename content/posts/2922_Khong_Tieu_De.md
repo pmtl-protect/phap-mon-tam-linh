@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.751Z
+draft: false
+url: "/2025/05/cong-uc-hang-ngay-va-niem-ngoi-nha-nho.html"
+---
+
+Tiêu đề bài viết: Công đức hàng ngày và niệm Ngôi Nhà Nhỏ hỗ trợ lẫn nhau Nội dung chi tiết: Wenda20140112B 53:20 Nữ thính giả: Một người thường xuyên làm công đức nhưng ít niệm Ngôi Nhà Nhỏ, thì công đức và số lượng Ngôi Nhà Nhỏ có thể bù trừ cho nhau không ạ? Đài Trưởng: Nếu đã là công đức thật sự, mà Ngôi Nhà Nhỏ ít hơn một chút, thì không gọi là "bù trừ", mà là hỗ trợ lẫn nhau. Ví dụ, trước đây bạn niệm 100 tờ Ngôi Nhà Nhỏ nhưng không có thời gian làm công đức, chỉ làm được 20% công đức, thì tổng cộng bạn có 120 điểm công đức. Bây giờ bạn niệm ít Ngôi Nhà Nhỏ hơn, chỉ được 50%, nhưng làm công đức được 70%, vậy tổng vẫn là 120 điểm công đức. Trừ khi có ai đó đòi nợ Ngôi Nhà Nhỏ của bạn, thì mới cần ưu tiên trả nợ trước. Wenda20140112B 53:20 平时做功德与念小房子相辅相成 女听众：一个经常做功德的人，他的小房子念得少的话，功德和小房子数量可以互相抵消吗？�台长答：如果是成为功德了，小房子少一点，应该不叫抵消，是相辅相成。比方说你过去念100张小房子，但是你没时间做功德，做了百分之二十的功德，那么你加起来百分之一百二十。你现在小房子念得少了，念了百分之五十，功德做了百分之七十了，那不还是一百二十分的功德吗？除非人家问你要小房子。

@@ -1,0 +1,28 @@
+<div class="widget">
+    <h3>LIÊN KẾT NHANH</h3>
+    <ul>
+        <li><a href="/">TRANG CHÍNH</a></li>
+        <li><a href="https://mucluc.pmtl.site/" target="_blank">MỤC LỤC & HƯỚNG DẪN</a></li>
+        <li><a href="https://ngoinhanho.pmtl.site/ni%E1%BB%87m-kinh-b%C3%A0i-t%E1%BA%ADp" target="_blank">HỌC NIỆM KINH</a></li>
+        <li><a href="https://ngoinhanho.pmtl.site/" target="_blank">NGÔI NHÀ NHỎ</a></li>
+        <li><a href="https://docbtpp.pmtl.site/" target="_blank">BẠCH THOẠI PHẬT PHÁP</a></li>
+        <li><a href="https://tkt.pmtl.site/" target="_blank">TRỢ LÝ TÌM KHAI THỊ</a></li>
+        <li><a href="https://radio.pmtl.site/" target="_blank">KÊNH RADIO</a></li>
+        <li><a href="https://nhomcongtu.pmtl.site/" target="_blank">NHÓM CỘNG TU</a></li>
+        <li><a href="https://lamcongduc.pmtl.site/" target="_blank">LÀM CÔNG ĐỨC</a></li>
+        <li><a href="https://phungsuvienao.pmtl.site/" target="_blank">PHỤNG SỰ VIÊN ẢO</a></li>
+    </ul>
+</div>
+
+<div class="widget">
+    <h3>BÀI VIẾT MỚI</h3>
+    <ul>
+        {{ range first 10 .Site.RegularPages }}
+        <li style="border-bottom: 1px solid #eee; padding: 8px 0;">
+            <a href="{{ .RelPermalink }}" style="background: none; color: #2196f3; padding: 0; display: inline;">
+                📄 {{ .Title }}
+            </a>
+        </li>
+        {{ end }}
+    </ul>
+</div>

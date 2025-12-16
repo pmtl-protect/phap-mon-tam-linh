@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.709Z
+draft: false
+url: "/2025/11/khai-thi-ve-viec-nghiep-chuong-kich.html"
+---
+
+Tiêu đề bài viết: Khai thị về việc nghiệp chướng kích hoạt vong linh Nội dung chi tiết: Wenda20160313B 45:20 Nam thính chúng: Thưa Sư phụ, khi nghiệp chướng kích hoạt vong linh, thì vong linh đó có phải là những vong linh mà người ấy đã mắc nợ từ đời trước không ạ? Lư Đài Trưởng đáp: Cơ bản là từ đời trước. Những gì con làm sai ở nhân gian trong kiếp trước, để lại quả báo, đến thời điểm thì kiếp nạn sẽ trổ ra. (Vậy trước khi nghiệp chướng kích hoạt, vong linh đó ở đâu ạ?) Có hai trường hợp: Một là ở Địa phủ, chờ đến khi kiếp nạn của con đến thì họ “đi lên”. Hai là đã ở trên thân con, bắt đầu trêu chọc, quấy nhiễu con rồi. (Vì sao một ngày niệm quá nhiều Lễ Phật Đại Sám Hối Văn lại dễ kích hoạt nghiệp chướng, khiến vong linh xuất hiện? Có phải do Địa phủ sắp đặt không ạ?) Sư phụ đưa ví dụ đơn giản: Giả sử con nợ người ta 1 triệu. Ngày nào con cũng nói: “Con trả, con trả”, rồi mỗi ngày đưa 10 đồng. Người ta có chạy tới đánh con không? “Trả đến năm nào tháng nào nữa hả?” Bây giờ con hiểu rồi chứ? \*\*\*\* Wenda20160313B 45:20 关于业障激活灵性的开示 男听众：师父，业障激活灵性，这个灵性是这个人前世所欠债的灵性吗？ 台长答：基本上是上辈子，上辈子你在人间做了什么错的事情遗留下来的，它到时候这个劫就出来了（这个灵性在业障激活之前是在哪里呢？）有两种地方：一个在地府，他准备等着你劫到了，他就上来了；还有一种，已经在你身上开始捉弄你了（为什么一天念礼佛大忏悔文数量过多会造成业障激活灵性呢？地府安排的吗？）举个简单例子，比方说你欠人家钱，欠100万，你天天说“我还你，还你”，然后每天还10块钱，人家不要跑过来揍你的？还到哪年哪月啊，现在明白了吗？

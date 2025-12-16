@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.309Z
+draft: false
+url: "/2025/02/nam-moi-hay-hoc-cach-tran-trong-thoi.html"
+---
+
+Tiêu đề bài viết: Năm mới, hãy học cách trân trọng thời gian và duyên phận Nội dung chi tiết: Tháng Giêng năm ngoái, Sư phụ cũng đã gửi lời chúc mừng năm mới đến mọi người tại đây. Thời gian trôi qua thật nhanh, một năm nữa lại đến. Sư phụ kính chúc mọi người năm mới sức khỏe dồi dào, vạn sự như ý, tinh tấn trong việc học Phật! Năm mới, chúng ta cần học cách trân trọng thời gian và duyên phận. Sau khi học Phật, chúng ta hiểu rằng duyên đến rất nhanh, nhưng đi cũng rất nhanh. Duyên đến rồi duyên đi. Có biết bao gia đình tan vỡ, biết bao người thân mắc bệnh và rời xa chúng ta? Hãy trân trọng những nhân duyên mà chúng ta đang có, đối xử tốt với họ, bởi có thể một ngày nào đó, những người xung quanh chúng ta sẽ không còn nữa, duyên phận bên cạnh ta sẽ rời đi. Duyên đến duyên đi, duyên chính là như vậy. Thế gian này vạn sự vô thường. Chúng ta cần hiểu nhân quả, biết nhân duyên thì mới có thể biết đủ mà luôn vui. Học Phật pháp, tiêu trừ nghiệp chướng thì mới có thể giải trừ phiền não, đạt được sự giải thoát. — "Nhìn thấu danh lợi tình duyên thế gian, trí tuệ vô ngã, chân tu thực hành — Trích lời khai thị của Sư phụ Lư Quân Hoành trong buổi giải đáp lớn tại Hurstville, Sydney, ngày 8 tháng 2 năm 2015 (Phần 1)." \*\*\* 新的一年，要学会珍惜时间、珍惜缘分 去年一月份台长也是在这里祝福大家，时间过得很快，又一年到了，台长给大家拜个早年，祝福大家在新的一年里身体健康、万事如意、学佛精进！ 新的一年，我们要学会珍惜时间、珍惜缘分，学佛之后懂得缘来得很快，去得也很快，缘来缘去。有多少家庭破裂，有多少亲人生病离开我们？要珍惜现在拥有的因缘，好好善待他们，可能某一天我们周围的人就没有了，身边的缘分就走了。缘来缘去，缘就是原来如此。世界上一切无常，我们要懂因果、知因缘，才能知足常乐；学佛法、消业障，才能去除烦恼，才能得到解脱。 ——《看淡人间名利情缘 智慧无我真修实修——2015年2月8日悉尼好事围玄艺综述大型解答会卢军宏台长开示摘要（上）》

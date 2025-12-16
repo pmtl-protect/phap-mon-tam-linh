@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.284Z
+draft: false
+url: "/2025/09/trong-tam-co-phat-ban-se-thay-uoc-anh.html"
+---
+
+Tiêu đề bài viết: 🌻Trong tâm có Phật, bạn sẽ thấy được ánh sáng của Phật; 🌻Trong tâm có ma, bạn thấy được đều là sự đen tối tiêu cực của nhân gian. Nội dung chi tiết: 🌻Trong tâm có Phật, bạn sẽ thấy được ánh sáng của Phật; 🌻Trong tâm có ma, bạn thấy được đều là sự đen tối tiêu cực của nhân gian. 🪴Tất cả những điều tốt và xấu ở thế gian đều có liên quan đến tấm lòng và khí lượng của bạn. 💐Nếu bạn tràn đầy oán hận đối với thế giới, thì thế giới này sẽ không mang lại cho bạn bất kỳ hạnh phúc nào; 💐Nếu bạn tràn đầy tình yêu với thế giới này, thì thế giới sẽ hồi đáp cho bạn nhiều tình yêu hơn. 🌿Đừng tìm bất kỳ lý do nào cho sự oán hận, lạnh lùng của mình,không có lý do gì cả. 🌸Cho dù cuộc sống có khó khăn đến đâu, cho dù bạn phiền não đến mức nào, bạn phải giữ vững sự lương thiện trong bản tính của mình; 🌸Cho dù trong cuộc sống bạn có cô đơn đến đâu,bạn phải kiên trì giữ vững nhân cách cao thượng. 🪷Người học Phật có được đức hạnh khoan dung,sẽ gặt hái được lòng tốt của thế gian và ánh dương của nhân gian. 🪷Đời người vô thường, hãy trân quý nhân duyên, tìm chân rời giả, thân tâm an lạc. —— Tóm tắt khai thị của Lư Đài Trưởng 16062018 tại Đại hội gặp gỡ Phật hữu thế giới, Brisbane (phần sau) 心中有佛，你就见得到佛的光明； 心中有魔，你见到的都是人间的负面黑暗。 世间所有的好和坏， 跟你的心量和气量都有关系。 如果你对世界充满着怨恨， 这个世界不会给你带来任何的幸福； 如果你对这个世界充满着爱， 这个世界回报你的是更多的爱。 不要给自己的怨恨、冷漠找任何理由， 没有什么理由。 不管生活多么艰难，不管你多么烦恼， 你要坚持自己本性中的善良； 不管你在生活中是多么的孤独， 你要坚守高尚的人格。 学佛人拥有宽容的美德， 将收获世界的善良和人间的阳光。 人生无常珍惜因缘 求真去幻身心安宁 ——卢台长2018年6月16日布里斯本“世界佛友见面会”开示摘要（下）

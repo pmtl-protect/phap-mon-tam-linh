@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:50.381Z
+draft: false
+url: "/2025/02/khi-nao-can-niem-them-chu-vang-sanh_5.html"
+---
+
+Tiêu đề bài viết: Khi nào cần niệm thêm Chú Vãng Sanh ? Nội dung chi tiết: Shuohua20120309 13:05 Thính giả nữ: Có một sư huynh đang chuẩn bị bán nhà và đã mơ thấy nhiều giấc mơ liên tiếp. Anh ấy mơ thấy 51 người, nên đã niệm 52 tấm ngôi nhà nhỏ cho người cần kinh của căn nhà. Sau đó, anh ấy mơ thấy trong túi có ba chiếc ô, tặng một chiếc cho người khác, nhưng vì trời nắng nên không dùng được. Tiếp theo, anh ấy mơ thấy mình hái một quả táo trên núi. Sau đó lại mơ thấy cùng mẹ khiêng một ống nước dài hơn 1 mét lên xe buýt, xe chưa khóa cửa đã chạy đi. Hiện thực thì việc bán nhà vẫn còn trở ngại, vậy anh ấy cần niệm thêm kinh gì nữa không ạ? Sư phụ Lư đáp: Tiếp tục niệm Chuẩn Đề Thần Chú và Vãng Sanh Chú. Thính giả nữ: Vì sao cần niệm Vãng Sanh Chú ạ? Sư phụ Lư: Con phải nhớ rằng, nếu đã niệm rất nhiều ngôi nhà nhỏ mà sự việc vẫn chưa giải quyết được, thì có nghĩa là vong linh lớn đã được giải quyết nhưng các vong linh nhỏ vẫn chưa chịu rời đi, nên chúng vẫn tiếp tục gây trở ngại cho con. Thính giả nữ: Con đã hiểu rồi ạ, cảm ơn Sư phụ! \*\* 什么时候需要加念往生咒 Shuohua20120309 13:05 女听众：有位师兄现实中正在计划卖房子，连着做了几个梦。他说梦到51人，就给房子的要经者念了52张；接下来梦到自己包里有三把雨伞，送给别人一把，但是晴天没用；又做了一个梦，梦到在山上摘了个枣；后来梦见他跟母亲两个一起抬了一根1米多的水管上了公交车，车不锁门就开了。他目前卖房子现实中还是有些阻碍，还需要再念些什么？ “卢台长”答：继续念准提神咒，往生咒（为什么要念往生咒，是有什么解释吗？）你要记住，念了这么多小房子，事情还不解决的话 ，就是大灵性解决了，小灵性还不肯走，照样可以阻碍你（理解了，好的）

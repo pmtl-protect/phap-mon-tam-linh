@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.335Z
+draft: false
+url: "/2024/10/chung-ta-la-nguoi-hoc-phat-phai-hoc.html"
+---
+
+Tiêu đề bài viết: Chúng ta là người học Phật phải học cách kết hợp tu hành và đời sống thực tế lại với nhau. Nội dung chi tiết: Chúng ta là người học Phật phải học cách kết hợp tu hành và đời sống thực tế lại với nhau. Cuộc sống của chúng ta ngày nay không chỉ là sống, mà sống là để tu tâm. Vậy nên phải hiểu rằng tu hành trong cuộc sống và cuộc sống là tu hành của quý vị. Sư phụ lấy một ví dụ đơn giản, mỗi ngày vượt qua sự lười biếng của mình, dậy sớm để đọc kinh, dậy sớm để thắp hương, đây đều là sự tinh tấn của quý vị, là cuộc sống của quý vị. Khi quý vị đang cố gắng nỗ lực, Phật pháp ở trong tâm trí quý vị. Khi lòng từ bi của quý vị được lan rộng, thì pháp pháp của quý vị là tâm. “Pháp pháp là tâm, trần trần là đạo”, Hồng Trần cuộn cuộn, quý vị có thể trong Hồng Trần cuồn cuộn này tìm ra con đường lìa thế gian giác. Tập 90- Có Được Phật tánh tự nhiên giải thoát

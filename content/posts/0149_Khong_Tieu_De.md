@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:40.840Z
+draft: false
+url: "/2025/07/trich-bach-thoai-phat-phap-tap-102-bat.html"
+---
+
+Tiêu đề bài viết: Trích : Bạch Thoại Phật Pháp - Tập 102 : BẤT NGÔN TỊCH TĨNH NIẾT BÀN | 08/07/2020 Nội dung chi tiết: Tịch tĩnh viên mãn là không tranh giành với thế gian. Quý vị thử nghĩ xem, một người thờ ơ không tranh giành với thế gian thì chẳng lẽ họ không có được sự yên lặng sao? Nếu quý vị trêu chọc họ, họ sẽ mỉm cười và nói: “Đây là thế giới con người”; nếu quý vị mỉa mai họ, họ liền đáp: “Trên thế giới này có nhiều người, mỗi người ở mỗi cảnh giới khác nhau, mọi người nên nổ lực tu luyện.” Quý vị không còn tranh với thế gian, bởi vì trong tâm quý vị đã đạt đến trạng thái “vô sắc, thanh, hương, vị, xúc, pháp”. Tất cả mọi thứ cho thấy quý vị đã đạt được một cảnh giới trong tâm, quý vị cũng đã hiểu được “vô khổ tập diệt đạo” rồi. Vậy nên “Vô trí diệc vô đắc. Dĩ vô sở đắc cố”. Chính trong sự mê cảm khốn cảm này mà con người đánh mất bản chất của chính mình, cho rằng mình đúng, cho rằng mình có linh cảm trong tâm, và cho rằng mình đã tiếp cận với tánh Không nguyên thủy, thật ra cái tánh Không này của quý vị vẫn còn đang trong trạng thái ảo diệt. 圓滿寂靜就是與世無爭。你們想想看，一個與世無爭的人會不寂靜嗎？你搞他，他笑笑，「這是人間」；你諷刺他，想想「這個世界上很多人境界是不一樣的，大家要好好修」。你已經與世無爭了，因為自己心裡得到無色聲香味觸法，所有的一切已經達到了一種境界，無苦集滅道，你都明白了，所以無智亦無得，以無所得故。人就是在這種迷惑困惑中，失去了自己的本性。以為自己是對的，以為自己內心有靈感了，以為自己接近本空了，實際上你的空性還是在幻滅中。 不言寂靜涅槃－2020年7月8日《白話佛法》開示第一百零二集 🙏🙏🙏 Trong quá trình chia sẻ Pháp , con có gì  sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

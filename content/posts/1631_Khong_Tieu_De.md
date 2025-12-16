@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.721Z
+draft: false
+url: "/2025/05/mo-thay-co-gai-co-canh-la-thien-su.html"
+---
+
+Tiêu đề bài viết: Mơ thấy cô gái có cánh là thiên sứ Nội dung chi tiết: Wenda20140214 01:12:12 Nữ thính giả: Con mơ thấy mình đang ngủ ở một nơi khá đơn sơ, phía dưới chân có một cô bé khoảng mười mấy tuổi cũng đang ngủ. Sau đó cô ấy đứng dậy thay một bộ đồ khác, ban đầu mặc đồ đen, sau đó đổi thành màu xám. Cô ấy ra ngoài mà không cần mở cửa, chỉ đi xuyên qua một cái lỗ, rất lợi hại. Con trai con cũng có mặt, lúc đó trông nó còn rất nhỏ. Con liền cùng con trai đi theo cô ấy ra ngoài. Sau khi ra ngoài, con nói với con trai: “Con à, đây là Quan Thế Âm Bồ Tát, đến độ con đó. Kiếp trước con tu rất tốt, nên giờ con phải nhanh chóng bắt đầu niệm kinh.” Sau đó người phụ nữ ấy bay lên trời. Chúng con đi đến một vùng đồi núi, đứng trên đỉnh đồi, cô ấy bay lên và biến thành một người lớn, phía sau có cái gì đó giống như cánh mỏng, còn có một vị thiên quan đi theo cô ấy. Sư phụ m: Đây là Angel, người nước ngoài gọi là thiên sứ, chính là Hộ Pháp Thần. (Đúng rồi, còn bay lên nữa. Vậy là ý gì? Là bảo con trai con…) Là bảo con trai con phải tu hành cho tốt. (Dạ, phải nhanh chóng niệm kinh. Cảm tạ Sư phụ! Cảm tạ Quan Thế Âm Bồ Tát!) Tạm biệt. Wenda20140214 01:12:12 梦见带翅膀的女孩是天使 女听众：我梦到睡在一个比较简陋的地方，脚那头一个十几岁的女孩子也在睡觉。后来她站起来换了一身衣服，原来穿黑色，后来穿成灰色的，她出门去也不用开门，从一个洞里就穿过去，很厉害。我儿子也在，好像很小的样子，我就和我儿子一起跟她走出去，出去以后我跟我儿子说“儿子，这是观世音菩萨，她来度你，你前世修得很好，让你赶快开始念经”。然后这个人就飞起来了，我们走到外面一个山丘、山林地带，站在山头上，那个女的就变成一个大人飞起来了，后面有个像翅膀一样的，薄薄的，还有一个天官跟着她。�台长答：这是Angel，外国人叫天使，就是护法神（对，还飞起来了。那什么意思？叫我儿子……）叫你儿子好好修（好，赶快念经。谢谢您！谢谢观世音菩萨！）再见。

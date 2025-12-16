@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:43.605Z
+draft: false
+url: "/2025/08/khi-tinh-giac-ma-trong-y-niem-van-ang.html"
+---
+
+Tiêu đề bài viết: Khi tỉnh giấc mà trong ý niệm vẫn đang niệm kinh là việc tốt. Nội dung chi tiết: Wenda 20131018 – 11:08 Nữ thính giả: Lư Đài trưởng, ban đêm khi tỉnh giấc con thường cảm thấy bản thân vẫn đang niệm Chú Đại Bi, vẫn đang niệm một số kinh văn. Đài trưởng đáp: Đó là điều tốt, bởi vì trong ý niệm của con vẫn đang niệm kinh rồi. Nữ thính giả: Con cứ tưởng buổi tối mình niệm kinh xong rồi đi ngủ, nên khi ngủ trong đầu vẫn còn nhớ đến những việc ban ngày, liên tục khoảng một tuần nay, ngày nào tỉnh giấc con cũng thấy mình đang niệm kinh. Đài trưởng: Như thế rất tốt, không có vấn đề gì. Nữ thính giả: Con nhất định sẽ theo Lư Đài trưởng chăm chỉ học tập, vì con cảm thấy bản thân mình biết đến pháp môn này quá muộn. Đài trưởng: Không muộn đâu, cô gái. Con đã nỗ lực rất nhiều rồi. Mặc dù căn bệnh này rất nghiêm trọng, nhưng con cũng nên hiểu rằng đó là sự kích hoạt của nghiệp chướng. Bản thân con cần phải nỗ lực gấp đôi người khác. Nữ thính giả: Đúng vậy. Hiện tại con dùng cả sinh mệnh của mình để niệm kinh. Đài trưởng: Hãy thả lỏng tâm ra, cần có niềm tin. Đặc biệt là khi bị bệnh nặng, con nhất định phải có niềm tin. Nếu không có niềm tin, thì bản thân con sẽ không thể vượt qua được chính mình. Nữ thính giả: Cảm ơn Lư Đài trưởng. Đài trưởng: Tạm biệt. --- Trong quá trình con dịch nếu có điều gì chưa đúng Lý, đúng Pháp, con xin Bồ Tát và c hư vị Hộ Pháp từ bi tha thứ cho con.

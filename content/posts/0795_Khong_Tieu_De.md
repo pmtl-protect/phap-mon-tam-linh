@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:42.574Z
+draft: false
+url: "/2025/02/phu-nu-mang-thai-niem-kinh-can-luu-y.html"
+---
+
+Tiêu đề bài viết: Phụ nữ mang thai niệm kinh cần lưu ý những gì Nội dung chi tiết: 🌻 Thính Giả : Thưa Sư phụ ! Xin hỏi phụ nữ mang thai niệm kinh cần lưu ý những gì? Ví dụ như buổi tối niệm kinh có thể niệm “ Ngôi nhà nhỏ”, Chú Đại Bi không ạ? Còn các chú khác, ngoài Tâm Kinh, Vãng Sanh Chú, những kinh văn khác có thể niệm không ạ? ☀️ Đài Trưởng: Thông thường, phụ nữ mang thai thì tốt nhất sau 10 giờ tối đến 12 giờ đêm thì không nên niệm nữa. 🌻 (Ngay cả Chú Đại Bi cũng không được niệm sao ạ?) ☀️ Chú Đại Bi thì được, Chú Đại Bi không sao. 🌻 (Vậy “ Ngôi nhà nhỏ” thì sao ạ?) ☀️ “ Ngôi Nhà nhỏ” bên trong Chú Đại Bi vẫn có thể niệm, kinh khác thì không nên niệm nữa. 🌻 ( Dạ vâng, đệ tử hiểu rồi. Hiện tại con đang mang thai, lần trước xem đồ đằng ngài nói niệm Tâm Kinh cho bé, Tiêu Tai Cát Tường Thần Chú còn có Giải Kết Chú, hiện tại con niệm 49 biến Tiêu Tai Cát Tường Thần Chú, 21 biến Giải Kết Chú, 7 biến Tâm Kinh, 7 biến Chú Đại Bi , như vậy được không ạ?) ☀️ Được. ✨✨✨ Wenda20171029A 23:40 ☀️ 孕妇念经有何注意事项 🌻 听 众：师父，您好。请问孕妇念经有哪些注意事项？比如说晚上念经能不能念小房子、大悲咒呢？还有其他小咒，除了心经、往生咒之外，其他经能念吗？ ☀️ 臺 長：一般地，孕妇的话，最好晚上10点钟到12点钟以后就不要念了（连大悲咒也不能念吗？）大悲咒可以，大悲咒没问题（那小房子呢？）小房子里边的大悲咒照样可以念，其他的经就不要念了（好，弟子明白了。我现在怀孕了，上次看图腾您说给宝宝念心经、消灾吉祥神咒还有解结咒，现在我念了49遍消灾吉祥神咒，21遍解结咒，7遍心经，7遍大悲咒，这样可以吗？）可以。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

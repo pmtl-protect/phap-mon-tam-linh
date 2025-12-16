@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.044Z
+draft: false
+url: "/2025/03/nguoi-minh-o-thoi-chuyen-roi-lai-phi_27.html"
+---
+
+Tiêu đề bài viết: Người mình độ thối chuyển rồi lại phỉ báng Pháp, có bị gánh nghiệp không? Nội dung chi tiết: ( “Hỏi đáp Huyền Nghệ” ngày 11 tháng 12 năm 2011) Người nghe nữ: Con từng độ một người, ban đầu anh ấy rất tin vào Pháp môn Tâm Linh, rất thành kính, thậm chí còn mơ thấy Sư phụ. Nhưng thời gian anh ấy tụng kinh không lâu, đến tháng 7 thì bắt đầu không tin nữa, còn nói nhiều lời không hay, thậm chí phỉ báng ngôi nhà nhỏ. Trong trường hợp này, con có bị gánh nghiệp của anh ấy không ạ? Sư phụ trả lời: Con sẽ có một chút ảnh hưởng, nhưng không quá nhiều. Chỉ cần niệm Lễ Phật Đại Sám Hối Văn là được. Bởi vì duyên Phật pháp của mỗi người khác nhau, có người tin điều này mà không tin điều kia, điều đó cũng bình thường. Nhưng quan trọng nhất là không được phỉ báng Pháp, vì đây là vấn đề nghiêm trọng nhất. \*\*\* 度的人退转又进而谤法是否会背业（2011 年 12 月 11日《玄艺问答》） 女听众：我度过一个人，他开始信心灵法门，当时很虔诚，还梦见过台长。他念经的时间并不是很长，但是从7月份开始他又不信了，还说了很多不好听的话，诽谤小房子。这样的话，他这个孽障我会不会也要背啊？ 台长答：是有一点点背，但是不会背很多，你只要念念《礼佛大忏悔文》就可以了。因为每个人佛缘的缘分不一样，如果这个人他自己信这个不信那个，都可以，但是问题是你不能去诽谤，这是最重要的。

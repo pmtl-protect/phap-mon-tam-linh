@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:46.661Z
+draft: false
+url: "/2025/08/cong-uc-cua-con-cai-co-che-cho-uoc-cho.html"
+---
+
+Tiêu đề bài viết: Công đức của con cái có che chở được cho Cha Mẹ không học Phật ? Nội dung chi tiết: Nam Thính Giả: Thưa Sư phụ, con muốn hỏi một vấn đề, ví dụ như con chăm chỉ hoằng pháp độ chúng ở nhân gian, Mẹ của con không có học Phật, Quán Thế Âm Bồ Tát có thấy rằng con trai của bà đang hoằng pháp độ chúng ở nhân gian, sẽ che chở cho mẹ của con không ạ? Đài Trưởng đáp: Một trăm phần trăm, đương nhiên là có rồi. Con cái làm bất cứ việc gì đều che chở cho Mẹ, rất đơn giản, Mẹ làm bất cứ việc gì cũng sẽ che chở cho con cái, chỉ là vấn đề công đức con làm lớn hay nhỏ mà thôi. Con dù không tin, cũng đều có thể che chở cho con cái. Hiểu không ? (Dạ, hiểu rồi ạ) Lấy một ví dụ đơn giản, nếu con là Mẹ của Lôi Phong, Mẹ của Lôi Phong tuy không làm việc tốt, Bà không làm giống như Lôi Phong, nhưng bà là Mẹ của anh hùng, con nói có phải là được mọi người tán thưởng không? Ha ha (Vâng vâng vâng) Vậy thì không phải là vậy sao (Dạ. Cảm ơn sư phụ từ bi khai thị!) Wenda20150927A 17:47 孩子的功德是否会庇荫没学佛的父母 男听众：师父，我想问一个问题，就是比如我好好地在人间弘法度众，我的母亲没有学佛，观世音菩萨会觉得她的儿子在人间弘法度众，会庇佑到我的母亲吗？ 台长答：百分之一百的，当然了。孩子做任何事情都庇荫母亲的，很简单了，母亲做任何事情也会庇荫孩子的，只不过你做的事情的功德大和小的问题。你就是不相信，都能庇荫到孩子的。明白了吗？（哦，明白了）举个简单例子，如果你是雷锋的母亲，雷锋的母亲虽然没有做好事，她不像雷锋这么做，但是她是英雄的母亲，你说是不是受到大家的赞赏啊？呵呵（是是是）那不就是了嘛（好。谢谢师父慈悲开示！） Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

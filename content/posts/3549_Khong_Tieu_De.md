@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:49.683Z
+draft: false
+url: "/2025/11/mo-thay-ua-o-cho-su-phu-tuc-la-uoc-gia.html"
+---
+
+Tiêu đề bài viết: Mơ thấy đưa đồ ăn cho Sư Phụ, tức là được gia trì Nội dung chi tiết: Wenda20181207 08:17 Nữ thính giả hỏi: Vào buổi sáng ngày vía Đại Thế Chí Bồ Tát, em gái người đồng tu trước tiên mơ thấy một số cảnh tượng tại pháp hội có Sư phụ hiện diện, nhưng nhớ không rõ chi tiết。 Sau đó lại mơ thấy ăn sáng cùng Sư phụ, Sư phụ đã ăn một quả trứng của em gái người đồng tu。 Tiếp theo là người đồng tu đó cũng đến, muốn tặng Sư phụ một gói đồ, bên trong hình như có khoai tây lát ,rau bina (rau chân vịt) và rau bina khô。 Sư phụ vì đã có một gói rồi nên ban đầu không muốn nhận, nhưng người đồng tu cứ muốn đưa, nên Sư phụ đã nhận. Hiện nay em gái người đồng tu đã mang thai ba tháng, còn người đồng tu đang tìm việc. Xin hỏi Sư phụ giấc mơ này có ngụ ý gì ạ? Lư Đài Trưởng đáp: Giấc mơ này được cho là gia trì rồi. Cô ấy đưa đồ ăn cho Sư phụ, tức là Sư phụ gia trì cho cô ấy rồi。 梦到给师父吃东西，是得到加持 Wenda20181207 08:17 女听众：大势至菩萨圣诞的早晨，同修妹妹先是梦到开法会师父在现场的一些情景，具体的记不清了。后来梦见和师父一起吃早饭，师父吃了同修妹妹的一个鸡蛋。后来同修也来了，要送给师父一包东西，里面好像是薯片之类的，还有菠菜和菠菜杆。师父因为已经有一包了，开始不想要，后来同修非要给师父，师父就接受了。目前同修妹妹已经怀孕三个月，同修正在找工作。请问师父这个梦有什么寓意吗？ “卢台长”答：这个应该得到加持了，她给师父吃东西，就是师父给她加持了。 wenda20130616A 29:24 Mơ thấy làm đồ chay cho người khác ăn. Nam thính giả Mơ thấy làm đồ chay cho người khác ăn. Đài trưởng đáp: Đó là đại bố thí, trong mơ đang bố thí chứng tỏ đã tích lũy âm đức rồi, nghĩa là anh ta đã có rất nhiều công đức ở cõi âm rồi. wenda20130616A 29:24 梦见做素食给人家吃 男听众：梦到做素食给人家吃。 台长答：那是大布施，梦中在布施说明积阴德了，说明他在下面已经有很大的功德了。

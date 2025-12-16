@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:47.892Z
+draft: false
+url: "/2025/04/an-chay-chinh-la-phong-sinh-khong-ton.html"
+---
+
+Tiêu đề bài viết: Ăn chay chính là phóng sinh không tốn tiền Nội dung chi tiết: Wenda20150904 40:00 Nữ thính giả: Nếu phát tâm ăn chay trường, có phải là không tốn một đồng nào mà đã phóng sinh được hàng trăm ngàn sinh mạng không ạ? Sư phụ: Đúng vậy. Chỉ cần con tuyên bố ăn chay trường, thực tế mỗi bữa con không ăn mặn là con đã cứu được một sinh mạng, bản thân con đã đang phóng sinh rồi. Vì vậy, người ăn chay trường là người có lòng từ bi, là đang phóng sinh, không cần tốn tiền họ cũng có thể phóng sinh, và họ còn có thể ảnh hưởng đến người khác. Hôm nay, một người ăn mặn gặp con: "Ủa, sao bạn ăn chay vậy?" "À, vì từ bi..." Dù họ không nghe theo, nhưng khi gặp một người khác, rồi lại gặp một người khác nữa... đến khi gặp trăm người: "Ủa, sao nhiều người ăn chay vậy? Chắc mình cũng nên ăn chay, chắc điều này có lý do!" Thế là họ bắt đầu ăn chay, và con đã cứu thêm một sinh mạng nữa. Đúng không? (Dạ đúng. Nếu phát nguyện ăn chay trường, không chỉ tích lũy công đức cho bản thân mà còn ảnh hưởng đến tất cả đồng tu và gia đình chưa ăn chay xung quanh, dần dần giáo dục họ, và như vậy là con đã cứu được nhiều sinh mạng hơn một cách vô hình.) Đúng vậy, đúng vậy... Wenda20150904 40:00 吃素就是不花钱的放生 女听众：发心吃长素，是不是等于不花一分钱就放生了百千万条生命？�台长答：对啊。你只要宣布自己吃长素，实际上你少吃一顿荤，就是少杀一个生，你本身就已经在放生了。所以，吃长素的人就是慈悲，就是放生，不花钱他都能放生，而且他可以影响到别人。今天这个人吃荤的碰到你了：“咦，你这个人怎么吃素啊？”“哦，要慈悲……”就算他听不进。又碰到一个，又碰到一个……等碰到一百个的时候：“咦，这么多人吃素，说明我也应该吃素，说明这个是有道理啊！”好了，他一吃素了，你又救了一条命了。对不对啊？（对。如果许愿吃长素，不单是自己累积功德，也同时间影响到身边所有还不吃素的同修跟家人，渐渐地影响到他们、教育他们，就这样无形中救度了更多的生命）是啊是啊……

@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.765Z
+draft: false
+url: "/2025/01/nguoi-mac-benh-sau-khi-qua-oi-co-con.html"
+---
+
+Tiêu đề bài viết: Người mắc bệnh sau khi qua đời có còn phải chịu đau đớn vì bệnh tật nữa không? Nội dung chi tiết: Thính giả nữ: Tôi thấy con trai mình cũng thật tội nghiệp. Cháu có bệnh nhưng không khỏi. Giả sử sau này khi cháu qua đời, linh hồn của cháu có còn chịu đau đớn vì căn bệnh đó nữa không? Linh hồn có được khỏe mạnh và không còn bị bệnh tật dày vò không? Đài Trưởng đáp: Phải xem cháu đi về đâu. Nếu cháu xuống cõi dưới và tiếp tục chịu sự dày vò, thì vẫn sẽ bị hành hạ. Linh hồn của cháu sẽ vẫn theo cháu và dựa trên những lỗi lầm cháu gây ra khi còn sống, cộng thêm những nghiệp chưa trả hết, thì sự dày vò đó sẽ tiếp diễn… (Ý con không phải vậy. Con muốn hỏi nếu sau này con qua đời trước, rồi vài chục năm sau con trai con cũng qua đời. Lúc đó cháu có còn phải chịu sự dày vò bởi bệnh tật nữa không?) Chắc chắn sẽ có. Nếu nghiệp chướng chưa tiêu trừ, cháu sẽ vẫn phải chịu đựng. (Ôi, thật khổ sở.) Đúng vậy, vì thế tốt nhất là đừng tạo nghiệp. Nhân quả rõ ràng: không gieo nhân thì sẽ không có quả. (Con hiểu rồi.) Wenda20130224B 32:10 得病的人去世之後還會受病痛折磨嗎？ 女聽眾：我看我兒子也挺可憐的，他是有點病，沒怎麼好，假如百年以後，他走的時候他這個靈性還會受這個病痛嗎？靈性是不是健康了，沒有這個病痛折磨了？ 臺長答：看走到哪裡的呀，如果還是走到下面繼續受這種折磨啊，他繼續在下面盯著你，而且根據你在人間判的一些你做錯的事情啊，再加上你沒還清，這個折磨……（不是的，我是說，假如以後我先走了，然後過了幾十年他也走了，那他走的時候還會受這個病痛的折磨嗎?）一定會的，他的業障沒消掉繼續受（哦喲，挺苦的）就是這樣，所以不要作孽是最好的，因果因果，因不要去種，就沒有那個果嘛（好）

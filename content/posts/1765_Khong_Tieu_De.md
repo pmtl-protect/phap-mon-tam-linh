@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:45.007Z
+draft: false
+url: "/2024/11/benh-nang-moi-ngay-co-ot-bao-nhieu-tam.html"
+---
+
+Tiêu đề bài viết: Bệnh nặng mỗi ngày có thể đốt bao nhiêu tấm ngôi nhà nhỏ Nội dung chi tiết: ⭐Bệnh nặng mỗi ngày có thể đốt bao nhiêu tấm ngôi nhà nhỏ 🌻Nữ thính giả: Sư phụ, Thầy nói" Đứa trẻ này đã bị Hắc bạch vô thường để ý rồi", giống như trường hợp bị nhìn trúng này, rất nhanh sẽ bị lôi đi, đứa trẻ đã bị ghi vào sổ thiên tào vì mắc bệnh hiểm nghèo, vậy một ngày có thể đốt bao nhiêu tấm Ngôi Nhà nhỏ. ☀️Đài trưởng đáp: Trường hợp như này rất nhiều rồi, Hắc Bạch vô thường, đánh số ghi sổ, người này đã bị nhìn trúng rồi, Giống như đang bị theo dõi . Ví dụ như hôm nay trong trại giam phạm nhân được thả ra và được ân xá, vẫn sẽ có người trông chừng ,mỗi hành động lời nói đều được báo cáo lại với Diêm Vương. Đưa con vào nhân gian, chỉ cần con làm điều xấu, làm việc sai trái, Hắc Bạch Vô Thường sẽ bẩm báo lại 🌻(trường hợp như đứa bé này một ngày ít nhất cần đốt bao nhiêu tấm Ngôi Nhà nhỏ mới hợp lí ạ?) ☀️ Đốt nhiều vào một chút, có thể đốt 7 tấm, 9 tấm đều được 🌻(đốt nhiều nhất là 21 tấm được không ạ?) ☀️Dưới 21 tấm đều có thể đốt được. ✨✨✨ Wenda20171117 30:46 重症每天可烧几张小房子 女听众：师父，您说“这个孩子已经被下面黑白无常看着了”，像这种被看着的，要拖走的，地府挂过号的重症的孩子，一般小房子一天至少要烧多少张？ 台长答：这个很多了。黑白无常、挂号，就是有人看住了，假释一样的。比方说今天监狱里的犯人放出来，假释了，他会有人看住的，一言一行全部要告诉阎王爷。把你放到人间来，你要是做坏事，做错事情，黑无常会回去汇报的（那他这种一天至少要烧多少张小房子比较适合呢？）多烧一点吧，能烧就烧，7张、9张都可以（最多21张能烧吗？）21张以下应该都可以。

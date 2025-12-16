@@ -1,0 +1,8 @@
+---
+title: "Khong_Tieu_De"
+date: 2025-12-15T22:19:44.713Z
+draft: false
+url: "/2024/11/truoc-khi-oc-bach-thoai-phat-phap-co.html"
+---
+
+Tiêu đề bài viết: Trước khi đọc Bạch thoại Phật pháp, có thể niệm Tâm Kinh để cầu khai mở trí tuệ, giúp hiểu rõ hơn. Nội dung chi tiết: Wenda20151023 19:35 Trước khi đọc Bạch thoại Phật pháp, có thể niệm Tâm Kinh để cầu khai mở trí tuệ, giúp hiểu rõ hơn. Nam thính giả: Các đồng tu nói rằng, trước khi đọc Bạch thoại Phật pháp , có thể niệm 7 lần Tâm Kinh và cầu xin Bồ Tát: “Xin Bồ Tát giúp con tên là … khai mở trí tuệ, để hiểu rõ hơn Bạch thoại Phật pháp .” Điều này có được không? Xin sư phụ khai thị. Sư phụ trả lời: Được, Bồ Tát sẽ không thấy phiền đâu. Ví dụ như con làm điều tốt, nói rằng: “Mẹ ơi, con đã rửa tay rồi,” thì mẹ sẽ nói “con ngoan lắm”; hay “Mẹ ơi, con nhường phần ăn lại cho người khác, và ăn hết phần cơm thừa,” mẹ sẽ lại khen “con ngoan lắm.” Nhưng nếu con nói: “Mẹ ơi, con sắp đi ăn trộm rồi,” thì hộ pháp thần sẽ xuất hiện ngay. Khi con nói: “Con sắp niệm kinh, sắp đọc Bạch thoại Phật pháp rồi,” cũng như con nói với Quan Thế Âm Bồ Tát rằng: “Mẹ ơi, con sắp làm người tốt, con sắp đọc Bạch thoại Phật pháp rồi,” thì Quan Thế Âm Bồ Tát chắc chắn sẽ rất vui. Nam thính giả: con hiểu rồi, cảm ơn sư phụ đã từ bi khai thị! Wenda20151023 19:35 看《白话佛法》前可以念心经祈求开智慧，更好地理解 男听众：同修们说在看《白话佛法》前，可以专念7遍心经祈求菩萨“帮我某某开智慧，更好地理解《白话佛法》”，可以吗？请师父开示一下。 台长答：这个可以，菩萨不会嫌烦的，因为……比方说你做件好事，“妈妈，我洗手了哦”，“乖孩子”；“妈妈，吃饭我留给别人吃哦，我把剩饭都吃掉了”，“乖孩子”；你如果说“妈妈，我要出去偷东西了”，那护法神就来了。你说“我要念经了，我要看《白话佛法》了”，就等于跟观世音菩萨说“妈妈，我现在做好人了，我要看《白话佛法》了”，那观世音菩萨当然开心了，呵呵……（明白了，谢谢师父慈悲开示！）
