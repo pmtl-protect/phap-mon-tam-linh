@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.155Z
+title: "Về việc Niệm Phật Hiệu lúc Tuổi Già Phải làm sao khi phiền não đến mức không niệ"
+date: 2025-12-16T01:19:29.082Z
 draft: false
 url: "/2025/12/ve-viec-niem-phat-hieu-luc-tuoi-gia.html"
 ---

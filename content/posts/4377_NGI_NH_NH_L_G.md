@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.935Z
+title: "NGI NH NH L G"
+date: 2025-12-16T01:19:28.912Z
 draft: false
 url: "/2025/12/ngoi-nha-nho-la-gi.html"
 ---

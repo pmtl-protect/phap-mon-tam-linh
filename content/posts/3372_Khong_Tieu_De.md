@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:08.094Z
+title: "Trẻ sinh vào Rằm tháng Bảy có ý nghĩa gì không?"
+date: 2025-12-16T01:19:26.452Z
 draft: false
 url: "/2024/11/tre-sinh-vao-ram-thang-bay-co-y-nghia.html"
 ---
 
-Tiêu đề bài viết: Trẻ sinh vào Rằm tháng Bảy có ý nghĩa gì không? Nội dung chi tiết: wenda20120916A 41:54 📞: Trẻ sinh vào Rằm tháng Bảy có điều gì không tốt không ạ? 🪷Sư phụ: Trẻ sinh vào Rằm tháng Bảy có hai loại: một số là các tiểu quỷ trốn thoát, không phải là tốt, phần lớn là đến để đòi nợ. Cũng có những trường hợp là oan hồn. Nhưng cũng có loại tốt, đó là các quan chức từ âm phủ. (Như vậy có vấn đề gì không ạ?) 🪷Sư phụ: Dĩ nhiên là có vấn đề! Nếu con thấy đứa trẻ sinh vào Rằm tháng Bảy mà rất hay gây rắc rối, cơ thể không khỏe, thường xuyên ốm đau, hoặc luôn làm phiền con, thì đứa trẻ này điển hình tiểu quỷ đến đòi nợ, và thường là món nợ lớn. wenda20120916A 41:54 七月十五出生的孩子有什么说法 女听众：七月十五出生的孩子，会不会不好？ 台长答：七月十五生的有两种：有的是小GUI逃出来的，不是太好，要债的居多，还有的是冤魂，这都是有的；还有好的呢，就是地府的官（那有什么问题吗？）当然有问题啦，如果你看见七月十五生的孩子闹得不得了，整天身体不好，整天跟你闹事情，这孩子是典型的讨债GUI，而且是讨大债的。
+wenda20120916A 41:54 📞: Trẻ sinh vào Rằm tháng Bảy có điều gì không tốt không ạ? 🪷Sư phụ: Trẻ sinh vào Rằm tháng Bảy có hai loại: một số là các tiểu quỷ trốn thoát, không phải là tốt, phần lớn là đến để đòi nợ. Cũng có những trường hợp là oan hồn. Nhưng cũng có loại tốt, đó là các quan chức từ âm phủ. (Như vậy có vấn đề gì không ạ?) 🪷Sư phụ: Dĩ nhiên là có vấn đề! Nếu con thấy đứa trẻ sinh vào Rằm tháng Bảy mà rất hay gây rắc rối, cơ thể không khỏe, thường xuyên ốm đau, hoặc luôn làm phiền con, thì đứa trẻ này điển hình tiểu quỷ đến đòi nợ, và thường là món nợ lớn. wenda20120916A 41:54 七月十五出生的孩子有什么说法 女听众：七月十五出生的孩子，会不会不好？ 台长答：七月十五生的有两种：有的是小GUI逃出来的，不是太好，要债的居多，还有的是冤魂，这都是有的；还有好的呢，就是地府的官（那有什么问题吗？）当然有问题啦，如果你看见七月十五生的孩子闹得不得了，整天身体不好，整天跟你闹事情，这孩子是典型的讨债GUI，而且是讨大债的。

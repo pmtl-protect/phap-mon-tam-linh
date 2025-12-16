@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.182Z
+title: "Từ ông Chí đến mùng Ba Tết m Lịch nên niệm Vãng Sanh Chú nhiều điều này thích hợ"
+date: 2025-12-16T01:19:29.102Z
 draft: false
 url: "/2025/12/tu-ong-chi-en-mung-ba-tet-am-lich-nen.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.811Z
+title: "I NG PHNG - Hiệp Hội Từ Thiện Phật Giáo Truyền Thông ông Phương - c"
+date: 2025-12-16T01:19:28.828Z
 draft: false
 url: "/2025/12/ai-ong-phuong-hiep-hoi-tu-thien-phat.html"
 ---

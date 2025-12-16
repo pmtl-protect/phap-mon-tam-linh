@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.804Z
+title: "Vấn đề Sách Kinh Kinh Văn của Pháp Môn Tâm Linh Dành cho các Phật Hữu tu hành"
+date: 2025-12-16T01:19:28.824Z
 draft: false
 url: "/2025/12/van-e-sach-kinh-kinh-van-cua-phap-mon.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.959Z
+title: "C TH NIM KINH TRN GING C KHNG"
+date: 2025-12-16T01:19:28.930Z
 draft: false
 url: "/2025/12/co-niem-kinh-o-tren-giuong-uoc-khong.html"
 ---

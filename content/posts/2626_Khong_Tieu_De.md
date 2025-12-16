@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.182Z
+title: "Lúc đi ngủ có thể mang bùa hộ mệnh không ?"
+date: 2025-12-16T01:19:24.350Z
 draft: false
 url: "/2024/11/luc-i-ngu-co-mang-bua-ho-menh-khong.html"
 ---
 
-Tiêu đề bài viết: Lúc đi ngủ có thể mang bùa hộ mệnh không ? Nội dung chi tiết: Nữ thính giả : Lúc ngủ con có thể mang bùa hộ mệnh không thưa Sư Phụ? Lư Đài trưởng: Nếu bên cạnh không có đàn ông thì có thể mang Nữ thính giả : Lỡ có nằm đè lên một chút cũng không sao phải không ? Lư Đài trưởng: Không sao, không sao, bởi vì bùa hộ mệnh ở trên người vào ban đêm, Bồ Tát cơ bản là không đến, chỉ khi đến lúc gặp nguy hiểm, hoặc là ban ngày lúc con đang bái Phật, chấp tay lạy Phật, bên trong bùa sẽ có cảm ứng. Nó là một loại lượng thỉ ( tuỳ cơ ứng biến ), không phải Bồ Tát cả ngày ở đó, chỉ là lúc bình thường mặc dù không có Bồ Tát ở đó, nhưng các con vẫn rất tôn kính ngài Nữ thính giả : Dạ con hiểu rồi ---wenda20141214B  01:07:56---
+Nữ thính giả : Lúc ngủ con có thể mang bùa hộ mệnh không thưa Sư Phụ? Lư Đài trưởng: Nếu bên cạnh không có đàn ông thì có thể mang Nữ thính giả : Lỡ có nằm đè lên một chút cũng không sao phải không ? Lư Đài trưởng: Không sao, không sao, bởi vì bùa hộ mệnh ở trên người vào ban đêm, Bồ Tát cơ bản là không đến, chỉ khi đến lúc gặp nguy hiểm, hoặc là ban ngày lúc con đang bái Phật, chấp tay lạy Phật, bên trong bùa sẽ có cảm ứng. Nó là một loại lượng thỉ ( tuỳ cơ ứng biến ), không phải Bồ Tát cả ngày ở đó, chỉ là lúc bình thường mặc dù không có Bồ Tát ở đó, nhưng các con vẫn rất tôn kính ngài Nữ thính giả : Dạ con hiểu rồi ---wenda20141214B  01:07:56---

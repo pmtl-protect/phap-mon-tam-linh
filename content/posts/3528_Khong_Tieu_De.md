@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:08.886Z
+title: "Nguyên nhân phạm giới trong mơ là gì?"
+date: 2025-12-16T01:19:26.802Z
 draft: false
 url: "/2024/10/nguyen-nhan-pham-gioi-trong-mo-la-gi.html"
 ---
 
-Tiêu đề bài viết: Nguyên nhân phạm giới trong mơ là gì? Nội dung chi tiết: Wenda20200821 01:13:33 Thính giả nam: Thưa Sư phụ, phạm giới trong mơ là chịu ảnh hưởng của linh giới hay là biểu hiện của nghiệp chướng từ nhiều đời ạ? Đài trưởng: Nếu phạm giới trong linh giới, chứng tỏ căn cơ của con không tốt, chứng tỏ bình thường những chuyện con làm ở dương gian đều không giống một vị Bồ Tát. Nếu tư tưởng của con cao thượng, linh giới đến quyến rũ con… Ví dụ như con phạm sắc giới trong mơ, chứng tỏ bình thường con ở dương gian cũng háo sắc. Thính giả nam: Trong mơ phạm giới có bị thần Hộ Pháp ghi chép lại không ạ? Đài trưởng: Trong mơ phạm giới nhất định phải có. Thính giả nam: Ôi, lợi hại như vậy! Đài trưởng: Cho nên ta nói cho con biết, giết người nào đó trong mơ con còn phải niệm Chú Vãng Sinh, bởi vì con đã giết chết quỷ. Thính giả nam: Con hiểu rồi, cảm ơn Sư phụ từ bi khai thị.
+Wenda20200821 01:13:33 Thính giả nam: Thưa Sư phụ, phạm giới trong mơ là chịu ảnh hưởng của linh giới hay là biểu hiện của nghiệp chướng từ nhiều đời ạ? Đài trưởng: Nếu phạm giới trong linh giới, chứng tỏ căn cơ của con không tốt, chứng tỏ bình thường những chuyện con làm ở dương gian đều không giống một vị Bồ Tát. Nếu tư tưởng của con cao thượng, linh giới đến quyến rũ con… Ví dụ như con phạm sắc giới trong mơ, chứng tỏ bình thường con ở dương gian cũng háo sắc. Thính giả nam: Trong mơ phạm giới có bị thần Hộ Pháp ghi chép lại không ạ? Đài trưởng: Trong mơ phạm giới nhất định phải có. Thính giả nam: Ôi, lợi hại như vậy! Đài trưởng: Cho nên ta nói cho con biết, giết người nào đó trong mơ con còn phải niệm Chú Vãng Sinh, bởi vì con đã giết chết quỷ. Thính giả nam: Con hiểu rồi, cảm ơn Sư phụ từ bi khai thị.

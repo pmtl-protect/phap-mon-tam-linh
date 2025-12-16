@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.765Z
+title: "Người theo Thiên Chúa giáo có thể niệm kinh Phật không"
+date: 2025-12-16T01:19:28.800Z
 draft: false
 url: "/2025/12/nguoi-theo-thien-chua-giao-co-niem-kinh.html"
 ---

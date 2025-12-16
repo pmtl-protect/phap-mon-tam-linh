@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:56.525Z
+title: "Lý do không nên tụng “Tâm Kinh” vào ban đêm"
+date: 2025-12-16T01:19:20.320Z
 draft: false
 url: "/2024/12/ly-do-khong-nen-tung-tam-kinh-vao-ban-em.html"
 ---
 
-Tiêu đề bài viết: Lý do không nên tụng “Tâm Kinh” vào ban đêm Nội dung chi tiết: Lời Sư Phụ: “Bát Nhã Ba La Mật Đa Tâm Kinh” đối với rất nhiều vong linh là một nguồn năng lượng rất lớn mà họ cần. Đối với tiểu quỷ (những vong linh cấp thấp), nó cũng giống như tiền tài. Vì vậy, khi con chỉ tụng vài lần, chúng sẽ đến để “tranh giành” hoặc “đòi hỏi”. Sau khi nhận được năng lượng đó, chúng có thể bám lại trên thân con mà không rời đi. Kết quả là con sẽ bị mất ngủ. Đây chính là lý do vì sao Thầy nói rằng không nên tụng “Tâm Kinh” vào lúc khuya. Nhiều người không hiểu và nói rằng: “Ôi, trước giờ tôi chưa từng nghe điều này.” Nhưng có rất nhiều điều chúng ta chưa biết, giống như ngày xưa chúng ta đâu biết gì về máy tính. Giờ thì hiểu rồi chứ? Hãy tụng nhiều “Tâm Kinh” vào ban ngày và tụng nhiều “Chú Đại Bi” vào ban đêm.” \_Trích từ Pháp hội Vancouver, Canada ngày 03/09/2016 深夜不能念心經的原因 師父語：般若波羅蜜多心經對很多靈性來講，就是一種很大的能量，他們都需要的； 對小鬼來講也是一種錢財，所以當你給他只念幾遍的時候，他就來搶，他就可以來要，他要了之後可以在你身上不走，這時候你就會失眠（哦）心經，為什麼我說深夜不要念，就是這個道理。 所以很多人還覺得「哎呀沒聽過」，沒聽過的事情多呢，我們還曾不知道什麼是電腦呢。現在明白了吧？白天多念心經，晚上多念大悲咒。 20160903 加拿大🇨🇦溫哥華法會
+Lời Sư Phụ: “Bát Nhã Ba La Mật Đa Tâm Kinh” đối với rất nhiều vong linh là một nguồn năng lượng rất lớn mà họ cần. Đối với tiểu quỷ (những vong linh cấp thấp), nó cũng giống như tiền tài. Vì vậy, khi con chỉ tụng vài lần, chúng sẽ đến để “tranh giành” hoặc “đòi hỏi”. Sau khi nhận được năng lượng đó, chúng có thể bám lại trên thân con mà không rời đi. Kết quả là con sẽ bị mất ngủ. Đây chính là lý do vì sao Thầy nói rằng không nên tụng “Tâm Kinh” vào lúc khuya. Nhiều người không hiểu và nói rằng: “Ôi, trước giờ tôi chưa từng nghe điều này.” Nhưng có rất nhiều điều chúng ta chưa biết, giống như ngày xưa chúng ta đâu biết gì về máy tính. Giờ thì hiểu rồi chứ? Hãy tụng nhiều “Tâm Kinh” vào ban ngày và tụng nhiều “Chú Đại Bi” vào ban đêm.” \_Trích từ Pháp hội Vancouver, Canada ngày 03/09/2016 深夜不能念心經的原因 師父語：般若波羅蜜多心經對很多靈性來講，就是一種很大的能量，他們都需要的； 對小鬼來講也是一種錢財，所以當你給他只念幾遍的時候，他就來搶，他就可以來要，他要了之後可以在你身上不走，這時候你就會失眠（哦）心經，為什麼我說深夜不要念，就是這個道理。 所以很多人還覺得「哎呀沒聽過」，沒聽過的事情多呢，我們還曾不知道什麼是電腦呢。現在明白了吧？白天多念心經，晚上多念大悲咒。 20160903 加拿大🇨🇦溫哥華法會

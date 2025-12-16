@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.046Z
+title: "KIM SOT TM THI KHI NIM KINH MN GI TU THT"
+date: 2025-12-16T01:19:29.000Z
 draft: false
 url: "/2025/12/kiem-soat-tam-thai-khi-niem-kinh-muon_064990405.html"
 ---

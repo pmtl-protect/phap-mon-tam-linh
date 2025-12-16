@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.222Z
+title: "Có thể dạy người mới học niệm các kinh văn ngắn trước"
+date: 2025-12-16T01:19:29.132Z
 draft: false
 url: "/2025/12/co-day-nguoi-moi-hoc-niem-cac-kinh-van.html"
 ---

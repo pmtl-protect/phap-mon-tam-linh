@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.596Z
+title: "niệm rất lợi hại những việc ở nhân gian thiên thượng đều biết rõ"
+date: 2025-12-16T01:19:28.692Z
 draft: false
 url: "/2025/12/y-niem-rat-loi-hai-nhung-viec-o-nhan.html"
 ---

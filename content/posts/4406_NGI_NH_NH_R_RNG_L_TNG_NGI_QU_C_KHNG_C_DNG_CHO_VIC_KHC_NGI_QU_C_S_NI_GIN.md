@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.079Z
+title: "NGI NH NH R RNG L TNG NGI QU C KHNG C DNG CHO VIC KHC NGI QU C S NI GIN"
+date: 2025-12-16T01:19:29.029Z
 draft: false
 url: "/2025/12/ngoi-nha-nho-ro-rang-la-tang-nguoi-qua_0918491888.html"
 ---

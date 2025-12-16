@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:58.502Z
+title: "SÁCH KINH CỦA PMTLVN ĐÃ ĐƯỢC ĐÀI ĐÔNG PHƯƠNG PHÊ DUYỆT"
+date: 2025-12-16T01:19:21.409Z
 draft: false
 url: "/2024/10/sach-kinh-cua-pmtlvn-uoc-ai-ong-phuong.html"
 ---
 
-Tiêu đề bài viết: SÁCH KINH CỦA PMTLVN ĐÃ ĐƯỢC ĐÀI ĐÔNG PHƯƠNG PHÊ DUYỆT Nội dung chi tiết: Kính chào đồng tu tôn kính, Vô cùng cảm tạ thư của bạn, rất cảm ơn bạn phát tâm học Phật tu tâm hoằng Pháp. Kinh văn bạn có thể từ đối chiếu với đường link liên kết bên dưới : Kinh văn Việt Nam : https://jmp.sh/NGbiTC2 Toàn bộ quyển kinh sách đều có thể theo tỷ lệ phóng to ( hoặc thu nhỏ ) và phải đồng nhất tỷ lệ, không được tự ý điều chỉnh biên soạn, thay đổi bất cứ nội dung gì trong sách kinh, không được phóng to hay thu nhỏ ở phần riêng lẻ nào đó, không được thay đổi form chữ. Một lần nữa, cảm ơn bạn đã phát tâm học Phật tu tâm hoằng Pháp, công đức vô lượng ! Chúc bạn học Phật tinh tấn, phược huệ song tu Ban thư ký Đài Đông Phương ( Chấp tay )
+Kính chào đồng tu tôn kính, Vô cùng cảm tạ thư của bạn, rất cảm ơn bạn phát tâm học Phật tu tâm hoằng Pháp. Kinh văn bạn có thể từ đối chiếu với đường link liên kết bên dưới : Kinh văn Việt Nam : https://jmp.sh/NGbiTC2 Toàn bộ quyển kinh sách đều có thể theo tỷ lệ phóng to ( hoặc thu nhỏ ) và phải đồng nhất tỷ lệ, không được tự ý điều chỉnh biên soạn, thay đổi bất cứ nội dung gì trong sách kinh, không được phóng to hay thu nhỏ ở phần riêng lẻ nào đó, không được thay đổi form chữ. Một lần nữa, cảm ơn bạn đã phát tâm học Phật tu tâm hoằng Pháp, công đức vô lượng ! Chúc bạn học Phật tinh tấn, phược huệ song tu Ban thư ký Đài Đông Phương ( Chấp tay )

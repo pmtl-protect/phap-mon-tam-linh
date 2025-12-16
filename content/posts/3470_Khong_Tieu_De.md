@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:08.553Z
+title: "Mơ thấy xe không phanh được"
+date: 2025-12-16T01:19:26.672Z
 draft: false
 url: "/2024/11/mo-thay-xe-khong-phanh-uoc.html"
 ---
 
-Tiêu đề bài viết: Mơ thấy xe không phanh được Nội dung chi tiết: Wenda20130726 06:25 📞 Thính giả nữ: Con mơ thấy chúng con xuống xe, nhưng xe không thể kiểm soát được, vẫn tiếp tục tiến về phía trước, cho đến khi gặp một khúc cua thì mới dừng lại chậm lại. Điều này có ý nghĩa gì ạ? 🌷 Sư phụ đáp: Thực tế là lý trí của con chưa đủ, phanh xe không dừng lại được, nghĩa là hiện tại con đang trong giai đoạn mất kiểm soát lý trí ở một mức độ nào đó. Con cần phải dùng lý trí để vượt qua những xung động thiếu sáng suốt này, phải kiểm soát bản thân bằng lý trí. 📞 Thính giả nữ: Con hiểu rồi, cảm ơn Sư phụ, tạm biệt. 🌷 Sư phụ đáp: Tạm biệt, cảm ơn các bạn ở Malaysia rất nhiều, Sư phụ rất vui. Cảm ơn tất cả mọi người, tạm biệt! #giacmo #xekhongphanh
+Wenda20130726 06:25 📞 Thính giả nữ: Con mơ thấy chúng con xuống xe, nhưng xe không thể kiểm soát được, vẫn tiếp tục tiến về phía trước, cho đến khi gặp một khúc cua thì mới dừng lại chậm lại. Điều này có ý nghĩa gì ạ? 🌷 Sư phụ đáp: Thực tế là lý trí của con chưa đủ, phanh xe không dừng lại được, nghĩa là hiện tại con đang trong giai đoạn mất kiểm soát lý trí ở một mức độ nào đó. Con cần phải dùng lý trí để vượt qua những xung động thiếu sáng suốt này, phải kiểm soát bản thân bằng lý trí. 📞 Thính giả nữ: Con hiểu rồi, cảm ơn Sư phụ, tạm biệt. 🌷 Sư phụ đáp: Tạm biệt, cảm ơn các bạn ở Malaysia rất nhiều, Sư phụ rất vui. Cảm ơn tất cả mọi người, tạm biệt! #giacmo #xekhongphanh

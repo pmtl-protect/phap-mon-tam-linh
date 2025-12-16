@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.024Z
+title: "GII KT CH"
+date: 2025-12-16T01:19:28.982Z
 draft: false
 url: "/2025/12/giai-ket-chu.html"
 ---

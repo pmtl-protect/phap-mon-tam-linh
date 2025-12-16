@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.139Z
+title: "NGHI THC PHNG SINH CA PHP MN TM LINH"
+date: 2025-12-16T01:19:29.073Z
 draft: false
 url: "/2025/12/nghi-thuc-phong-sinh-cua-phap-mon-tam.html"
 ---

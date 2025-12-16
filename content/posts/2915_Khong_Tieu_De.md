@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:05.422Z
+title: "Nhận bát của người khác tặng có ý nghĩa gì?"
+date: 2025-12-16T01:19:25.069Z
 draft: false
 url: "/2025/02/nhan-bat-cua-nguoi-khac-tang-co-y-nghia.html"
 ---
 
-Tiêu đề bài viết: Nhận bát của người khác tặng có ý nghĩa gì? Nội dung chi tiết: Wenda20180909B 33:12 NỮ THÍNH GIẢ: Đồng tu ở trong đơn vị đã phát 2 bát đũa vô cùng tinh xảo đẹp mắt, nhận bát người khác tặng có ý nghĩa gì vậy? SƯ PHỤ ĐÁP: Người khác tặng cho con bát thì chắc chắn chuyện không có gì quá nhiều...Thực ra chính là con cần giúp đỡ họ, con sẽ giúp họ gánh 1 chút nghiệp. —------------------------------ 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp và Ân Sư Đài Trưởng Lư Quân Hoành Từ Bi tha thứ cho con. —------------------------------
+Wenda20180909B 33:12 NỮ THÍNH GIẢ: Đồng tu ở trong đơn vị đã phát 2 bát đũa vô cùng tinh xảo đẹp mắt, nhận bát người khác tặng có ý nghĩa gì vậy? SƯ PHỤ ĐÁP: Người khác tặng cho con bát thì chắc chắn chuyện không có gì quá nhiều...Thực ra chính là con cần giúp đỡ họ, con sẽ giúp họ gánh 1 chút nghiệp. —------------------------------ 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp và Ân Sư Đài Trưởng Lư Quân Hoành Từ Bi tha thứ cho con. —------------------------------

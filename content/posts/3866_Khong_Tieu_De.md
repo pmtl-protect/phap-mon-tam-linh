@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:10.510Z
+title: "Hoa sen trên trời ở trước điện của Phật Đà"
+date: 2025-12-16T01:19:27.684Z
 draft: false
 url: "/2025/05/hoa-sen-tren-troi-o-truoc-ien-cua-phat-a.html"
 ---
 
-Tiêu đề bài viết: Hoa sen trên trời ở trước điện của Phật Đà Nội dung chi tiết: zongshu20151103 36:12 Hoa sen trên trời ở trước điện của Phật Đà Nữ Thính Giả: Sư phụ, người có thể xem cho con không ạ, con sinh năm 1969, tuổi Gà, xem hoa sen của con trên trời có còn tốt không? Đài Trưởng đáp: Con đang ở trước một điện của Phật Đà trên trời, giống như Đại Hùng Bảo Điện vậy, trước cửa có một cái ao, trong đó có một bông hoa sen, đó là của con (còn tốt chứ ạ?). Mọi người đều có, nhưng hoa sen của con thì ở gần mép ao, vẫn ổn, khá tốt (Cảm ơn Sư phụ, con nhất định sẽ cố gắng tu hành tốt). Cố gắng tu hành nhé. ----------------------------------- Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con . ----------------------------------- zongshu20151103  36:12 天上的莲花在佛陀的殿前 女听众：师父，您能不能看我， 1969 年属鸡的，看一下我的莲花在天上还好吗？ 台长答：你在天上佛陀的一个殿前面，就是有点像大雄宝殿一样，门口一个池子，里面有一朵莲花，是你（还好吧？）人家都有，但是你这朵莲花是在池子边上，还可以，蛮好（感恩师父，我一定会好好修的）好好修吧。
+zongshu20151103 36:12 Hoa sen trên trời ở trước điện của Phật Đà Nữ Thính Giả: Sư phụ, người có thể xem cho con không ạ, con sinh năm 1969, tuổi Gà, xem hoa sen của con trên trời có còn tốt không? Đài Trưởng đáp: Con đang ở trước một điện của Phật Đà trên trời, giống như Đại Hùng Bảo Điện vậy, trước cửa có một cái ao, trong đó có một bông hoa sen, đó là của con (còn tốt chứ ạ?). Mọi người đều có, nhưng hoa sen của con thì ở gần mép ao, vẫn ổn, khá tốt (Cảm ơn Sư phụ, con nhất định sẽ cố gắng tu hành tốt). Cố gắng tu hành nhé. ----------------------------------- Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con . ----------------------------------- zongshu20151103  36:12 天上的莲花在佛陀的殿前 女听众：师父，您能不能看我， 1969 年属鸡的，看一下我的莲花在天上还好吗？ 台长答：你在天上佛陀的一个殿前面，就是有点像大雄宝殿一样，门口一个池子，里面有一朵莲花，是你（还好吧？）人家都有，但是你这朵莲花是在池子边上，还可以，蛮好（感恩师父，我一定会好好修的）好好修吧。

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.638Z
+title: "ồng tu chia sẻ cảm nhận sau khi học Phật"
+date: 2025-12-16T01:19:28.725Z
 draft: false
 url: "/2025/12/ong-tu-chia-se-cam-nhan-sau-khi-hoc-phat.html"
 ---

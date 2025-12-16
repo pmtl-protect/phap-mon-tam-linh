@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.564Z
+title: "Nghiệp chướng dưới 10 thì sẽ sinh vào đạo nào"
+date: 2025-12-16T01:19:28.673Z
 draft: false
 url: "/2025/12/nghiep-chuong-duoi-10-thi-se-sinh-vao.html"
 ---

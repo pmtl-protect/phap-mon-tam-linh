@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.806Z
+title: "Làm người, trước tiên phải buông bỏ những điều của thế gian, phải loại bỏ thói tò mò của chính mình"
+date: 2025-12-16T01:19:24.728Z
 draft: false
 url: "/2025/03/lam-nguoi-truoc-tien-phai-buong-bo.html"
 ---
 
-Tiêu đề bài viết: Làm người, trước tiên phải buông bỏ những điều của thế gian, phải loại bỏ thói tò mò của chính mình Nội dung chi tiết: Làm người, trước tiên phải buông bỏ những điều của thế gian, phải loại bỏ thói tò mò của chính mình. Con người có một thói quen, rất tò mò với mọi chuyện, “Ôi, tôi không biết, tôi muốn biết,” “Tôi chưa từng đi, tôi muốn đi,” “Câu này tôi chưa từng nói, không biết cảm giác thế nào, tôi thử xem.”... Tất cả những điều này đều không nên thử, vì thói tò mò của bạn chứa đựng ham muốn của chính mình. ~ Pháp, Paris, tháng 7 năm 2019 ♨️♨️♨️ 做人，首先對人間要放下，要消除自己的好奇心。人有一種習慣，對什麼事情都非常好奇，「哎呀，我不知道，我想知道」「我沒去過，我想去」「這句話我沒說過，不知道有什麼感受，我來試試看」……所有這一切都不要去試，因為你的好奇心帶有你的慾望。 ~2019年7月法國•巴黎 —-------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.
+Làm người, trước tiên phải buông bỏ những điều của thế gian, phải loại bỏ thói tò mò của chính mình. Con người có một thói quen, rất tò mò với mọi chuyện, “Ôi, tôi không biết, tôi muốn biết,” “Tôi chưa từng đi, tôi muốn đi,” “Câu này tôi chưa từng nói, không biết cảm giác thế nào, tôi thử xem.”... Tất cả những điều này đều không nên thử, vì thói tò mò của bạn chứa đựng ham muốn của chính mình. ~ Pháp, Paris, tháng 7 năm 2019 ♨️♨️♨️ 做人，首先對人間要放下，要消除自己的好奇心。人有一種習慣，對什麼事情都非常好奇，「哎呀，我不知道，我想知道」「我沒去過，我想去」「這句話我沒說過，不知道有什麼感受，我來試試看」……所有這一切都不要去試，因為你的好奇心帶有你的慾望。 ~2019年7月法國•巴黎 —-------------------------- Trong quá trình dịch và chia sẻ Pháp, nếu con có gì sai sót, chưa đúng lý đúng pháp. Con xin Chư Phật, Chư Bồ Tát, Chư Thần Hộ Pháp, Từ Bi tha thứ cho con.

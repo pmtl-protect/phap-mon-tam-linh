@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:55.581Z
+title: "Có thể phóng sinh ếch theo tập quán địa phương"
+date: 2025-12-16T01:19:19.881Z
 draft: false
 url: "/2025/05/co-phong-sinh-ech-theo-tap-quan-ia.html"
 ---
 
-Tiêu đề bài viết: Có thể phóng sinh ếch theo tập quán địa phương Nội dung chi tiết: Wenda20171110 01:05:09 Nữ thính giả: Thưa Sư phụ, có đồng tu hỏi có thể phóng sinh ếch được không ạ? Vì nghe nói ở khu vực họ có rất nhiều người ăn thịt ếch. Đài trưởng: Nếu nhiều người ăn ếch thì phóng sinh ếch cũng tốt. Những loài bị giết hại nhiều thì nên phóng sinh. Ở Malaysia có Phật tử còn phóng sinh bò, thả bò lên núi, ta nói "chi bằng thả cá còn hơn" (Trường hợp thông thường chúng con vẫn ưu tiên phóng sinh cá, nhưng ếch cũng được ạ). Được. Thông thường nên phóng sinh cá, vì từ xưa Phật giáo đã có truyền thống phóng sinh cá. Cũng có thể phóng sinh ba ba, cá hay ba ba đều được. Các loài khác thì một là vấn đề giá cả, hai là khó mua (Cảm ơn Sư phụ khai thị). Wenda20171110 01:05:09 可以根据当地习俗放生青蛙 女听众：师父，同修问青蛙可以放生吗？因为据说在他们那个地方吃青蛙的特别多。 台长答：如果吃青蛙的多，放生就没问题。人家吃得多、杀得多的东西，你就放。马来西亚佛友帮我放牛，牛放到山上去，我说“你还不如放鱼”（我们一般情况还是多放鱼，青蛙也可以）可以。一般是放鱼，自古以来佛教界的传统，放生就是放鱼。放甲鱼有的，甲鱼还有鱼都可以。放其他的，一个是价值的问题，第二个是买得到买不到的问题（感恩师父开示）
+Wenda20171110 01:05:09 Nữ thính giả: Thưa Sư phụ, có đồng tu hỏi có thể phóng sinh ếch được không ạ? Vì nghe nói ở khu vực họ có rất nhiều người ăn thịt ếch. Đài trưởng: Nếu nhiều người ăn ếch thì phóng sinh ếch cũng tốt. Những loài bị giết hại nhiều thì nên phóng sinh. Ở Malaysia có Phật tử còn phóng sinh bò, thả bò lên núi, ta nói "chi bằng thả cá còn hơn" (Trường hợp thông thường chúng con vẫn ưu tiên phóng sinh cá, nhưng ếch cũng được ạ). Được. Thông thường nên phóng sinh cá, vì từ xưa Phật giáo đã có truyền thống phóng sinh cá. Cũng có thể phóng sinh ba ba, cá hay ba ba đều được. Các loài khác thì một là vấn đề giá cả, hai là khó mua (Cảm ơn Sư phụ khai thị). Wenda20171110 01:05:09 可以根据当地习俗放生青蛙 女听众：师父，同修问青蛙可以放生吗？因为据说在他们那个地方吃青蛙的特别多。 台长答：如果吃青蛙的多，放生就没问题。人家吃得多、杀得多的东西，你就放。马来西亚佛友帮我放牛，牛放到山上去，我说“你还不如放鱼”（我们一般情况还是多放鱼，青蛙也可以）可以。一般是放鱼，自古以来佛教界的传统，放生就是放鱼。放甲鱼有的，甲鱼还有鱼都可以。放其他的，一个是价值的问题，第二个是买得到买不到的问题（感恩师父开示）

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.460Z
+title: "Wenda20141123B 1518 i xa có thể niệm trước Lễ Phật ại Sám Hối Văn của kinh bài t"
+date: 2025-12-16T01:19:28.593Z
 draft: false
 url: "/2025/12/wenda20141123b-1518-i-xa-co-niem-truoc.html"
 ---

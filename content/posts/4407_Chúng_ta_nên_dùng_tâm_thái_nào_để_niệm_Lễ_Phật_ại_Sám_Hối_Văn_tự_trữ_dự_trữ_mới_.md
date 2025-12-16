@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.083Z
+title: "Chúng ta nên dùng tâm thái nào để niệm Lễ Phật ại Sám Hối Văn tự trữ dự trữ mới"
+date: 2025-12-16T01:19:29.033Z
 draft: false
 url: "/2025/12/chung-ta-nen-dung-tam-thai-nao-e-niem.html"
 ---

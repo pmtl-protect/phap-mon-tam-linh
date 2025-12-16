@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:58.406Z
+title: "Truyện Ngắn Truyền Cảm Hứng: Hãy Như Nước"
+date: 2025-12-16T01:19:21.354Z
 draft: false
 url: "/2024/11/truyen-ngan-truyen-cam-hung-hay-nhu-nuoc.html"
 ---
 
-Tiêu đề bài viết: Truyện Ngắn Truyền Cảm Hứng: Hãy Như Nước Nội dung chi tiết: Truyện Ngắn Truyền Cảm Hứng: Hãy Như Nước Pháp Hội của Đài Trưởng Lư Quân Hoành Hồng Kông, 22 tháng 6 năm 2014 Một lần, một đứa trẻ hỏi thầy giáo: “Thầy ơi, nước có thể chảy lên trời không?” Thầy giáo trả lời: “Nước luôn chảy xuống thấp; đó là quy luật tự nhiên.” Đứa trẻ lại hỏi: “Nếu nước không thể chảy lên trời, thì mưa từ đâu mà có?” Thầy giáo đáp: “Mưa trên bầu trời chính là nước từ mặt đất chảy lên trời. Dĩ nhiên, nước không chảy trực tiếp lên trời, nhưng khi nước bốc hơi thành hơi, nó sẽ bay lên trời, ngưng tụ thành chất lỏng, và rồi sau trở thành mưa rơi từ trên trời xuống.” Sư phụ muốn nói với mọi người rằng: Trong thế giới này, khi chúng ta không thể thay đổi một môi trường, một hoàn cảnh, hay một giới hạn tự nhiên nào đó, chúng ta có thể thay đổi chính bản thân mình, giống như nước thay đổi hình dạng của nó. Chúng ta có thể thay đổi trạng thái tâm trí của mình, giống như cách nước "chảy lên trời," và tạo nên một điều kỳ diệu!
+Truyện Ngắn Truyền Cảm Hứng: Hãy Như Nước Pháp Hội của Đài Trưởng Lư Quân Hoành Hồng Kông, 22 tháng 6 năm 2014 Một lần, một đứa trẻ hỏi thầy giáo: “Thầy ơi, nước có thể chảy lên trời không?” Thầy giáo trả lời: “Nước luôn chảy xuống thấp; đó là quy luật tự nhiên.” Đứa trẻ lại hỏi: “Nếu nước không thể chảy lên trời, thì mưa từ đâu mà có?” Thầy giáo đáp: “Mưa trên bầu trời chính là nước từ mặt đất chảy lên trời. Dĩ nhiên, nước không chảy trực tiếp lên trời, nhưng khi nước bốc hơi thành hơi, nó sẽ bay lên trời, ngưng tụ thành chất lỏng, và rồi sau trở thành mưa rơi từ trên trời xuống.” Sư phụ muốn nói với mọi người rằng: Trong thế giới này, khi chúng ta không thể thay đổi một môi trường, một hoàn cảnh, hay một giới hạn tự nhiên nào đó, chúng ta có thể thay đổi chính bản thân mình, giống như nước thay đổi hình dạng của nó. Chúng ta có thể thay đổi trạng thái tâm trí của mình, giống như cách nước "chảy lên trời," và tạo nên một điều kỳ diệu!

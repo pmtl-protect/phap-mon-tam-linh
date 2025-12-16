@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.259Z
+title: "Kinh Văn, Ảnh Bồ Tát, Tranh Nền, in ấn bị hỏng nên xử lý như thế nào ?"
+date: 2025-12-16T01:19:24.408Z
 draft: false
 url: "/2025/02/kinh-van-anh-bo-tat-tranh-nen-in-bi.html"
 ---
 
-Tiêu đề bài viết: Kinh Văn, Ảnh Bồ Tát, Tranh Nền, in ấn bị hỏng nên xử lý như thế nào ? Nội dung chi tiết: Nữ thính giả : Thưa Sư Phụ , Bình thường chúng con in Lễ Phật Đại Sám Hối Văn hoặc Kinh Văn khác, hoặc đôi khi in ảnh Bồ Tát nhỏ cho Bàn Thờ Phật Nhỏ và tranh nền Bàn Thờ Phật, khi in bị hỏng, ví dụ như chữ bị in lệch, những Kinh Văn, Ảnh Bồ Tát, tranh nền Bàn Thờ Phật đã bị hỏng này, dùng giấy đỏ gói lại, nghiền nhỏ là được, đúng không ạ? Còn cần chú ý điều gì nữa không ạ? Đài trưởng đáp: Đúng rồi, được. Wenda20200828 01:27:12 打印坏了的经文、菩萨像、背景画该怎么处理 女听众：平时我们打印礼佛大忏悔文或其他的经文，或者是有时候打小佛台的小菩萨像还有佛台背景，打印的时候坏了，比如字给打歪了，像这种已经坏了的经文、菩萨像、佛台背景，是用红纸包包好，然后碎掉就可以了，对吗？还需要注意什么吗？ 台长答：是的，可以的。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .
+Nữ thính giả : Thưa Sư Phụ , Bình thường chúng con in Lễ Phật Đại Sám Hối Văn hoặc Kinh Văn khác, hoặc đôi khi in ảnh Bồ Tát nhỏ cho Bàn Thờ Phật Nhỏ và tranh nền Bàn Thờ Phật, khi in bị hỏng, ví dụ như chữ bị in lệch, những Kinh Văn, Ảnh Bồ Tát, tranh nền Bàn Thờ Phật đã bị hỏng này, dùng giấy đỏ gói lại, nghiền nhỏ là được, đúng không ạ? Còn cần chú ý điều gì nữa không ạ? Đài trưởng đáp: Đúng rồi, được. Wenda20200828 01:27:12 打印坏了的经文、菩萨像、背景画该怎么处理 女听众：平时我们打印礼佛大忏悔文或其他的经文，或者是有时候打小佛台的小菩萨像还有佛台背景，打印的时候坏了，比如字给打歪了，像这种已经坏了的经文、菩萨像、佛台背景，是用红纸包包好，然后碎掉就可以了，对吗？还需要注意什么吗？ 台长答：是的，可以的。 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

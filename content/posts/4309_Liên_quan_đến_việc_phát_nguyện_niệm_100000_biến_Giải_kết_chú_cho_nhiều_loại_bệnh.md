@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.567Z
+title: "Liên quan đến việc phát nguyện niệm 100000 biến Giải kết chú cho nhiều loại bệnh"
+date: 2025-12-16T01:19:28.676Z
 draft: false
 url: "/2025/12/lien-quan-en-viec-phat-nguyen-niem.html"
 ---

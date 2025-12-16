@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.273Z
+title: "Nằm mơ thấy kính ô tô bị vỡ"
+date: 2025-12-16T01:19:24.419Z
 draft: false
 url: "/2024/12/nam-mo-thay-kinh-o-to-bi-vo.html"
 ---
 
-Tiêu đề bài viết: Nằm mơ thấy kính ô tô bị vỡ Nội dung chi tiết: wenda20120617B 55:01 Thính giả nữ: Nếu con nằm mơ thấy kính ô tô của mình bị vỡ thì có phải không tốt không ạ? Sư phụ trả lời : Tất nhiên là không tốt nếu kính xe bị vỡ!  Có nghĩa là trái tim đã tan vỡ. Có điều gì đó đã làm tan vỡ trái tim của người này Thính giả nữ: Con nên niệm Tâm Kinh nhiều hơn ạ? Sư phụ trả lời : Phải trì tụng cả Tâm Kinh và Giải Kết Chú.  Nếu con đang giải quyết vấn đề tình cảm với một người nào đó, hãy niệm Tâm Kinh cho người đó wenda20120617B  55:01 梦见车玻璃打碎了 女听众：如果梦见自己车的玻璃被打碎了是不好吧？ 台长答：车玻璃打碎当然不好啦！是心碎了，某一件事情让这个人心碎了（多念心经？）心经、解结咒都要念。如果正在处理跟某一个人的事情，就给那个人多念心经。
+wenda20120617B 55:01 Thính giả nữ: Nếu con nằm mơ thấy kính ô tô của mình bị vỡ thì có phải không tốt không ạ? Sư phụ trả lời : Tất nhiên là không tốt nếu kính xe bị vỡ!  Có nghĩa là trái tim đã tan vỡ. Có điều gì đó đã làm tan vỡ trái tim của người này Thính giả nữ: Con nên niệm Tâm Kinh nhiều hơn ạ? Sư phụ trả lời : Phải trì tụng cả Tâm Kinh và Giải Kết Chú.  Nếu con đang giải quyết vấn đề tình cảm với một người nào đó, hãy niệm Tâm Kinh cho người đó wenda20120617B  55:01 梦见车玻璃打碎了 女听众：如果梦见自己车的玻璃被打碎了是不好吧？ 台长答：车玻璃打碎当然不好啦！是心碎了，某一件事情让这个人心碎了（多念心经？）心经、解结咒都要念。如果正在处理跟某一个人的事情，就给那个人多念心经。

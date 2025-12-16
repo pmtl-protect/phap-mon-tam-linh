@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.544Z
+title: "Học Phật phải có Trí huệ Nhẫn Nại Tinh Tấnphải làm sao để không đọc sai kinh văn"
+date: 2025-12-16T01:19:28.659Z
 draft: false
 url: "/2025/12/hoc-phat-phai-co-tri-hue-nhan-nai-tinh.html"
 ---

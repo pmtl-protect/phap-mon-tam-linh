@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.770Z
+title: "Kinh nguyệt không đến sẽ khiến ruột bị hoại tử và buồng trứng phát sinh ung thư"
+date: 2025-12-16T01:19:28.804Z
 draft: false
 url: "/2025/12/kinh-nguyet-khong-en-se-khien-ruot-bi_01520506594.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.984Z
+title: "Chú ại Bi Thiên Thủ Thiên Nhãn Vô Ngại ại Bi Tâm à La Ni"
+date: 2025-12-16T01:19:28.952Z
 draft: false
 url: "/2025/12/chu-ai-bi-thien-thu-thien-nhan-vo-ngai.html"
 ---

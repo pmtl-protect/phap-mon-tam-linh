@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.539Z
+title: "Niệm kinh sẽ thay đổi tướng mạo"
+date: 2025-12-16T01:19:28.655Z
 draft: false
 url: "/2025/12/niem-kinh-se-thay-oi-tuong-mao.html"
 ---

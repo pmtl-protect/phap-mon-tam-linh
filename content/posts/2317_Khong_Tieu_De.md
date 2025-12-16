@@ -1,8 +1,8 @@
 ---
 title: "Sinh ra có duyên ở kiếp này, đều là để trả những món nợ đã nợ ở kiếp trước"
-date: 2025-12-16T01:11:02.548Z
+date: 2025-12-16T01:19:23.580Z
 draft: false
 url: "/2025/04/sinh-ra-co-duyen-o-kiep-nay-eu-la-e-tra.html"
 ---
 
-Tiêu đề bài viết: Sinh ra có duyên ở kiếp này, đều là để trả những món nợ đã nợ ở kiếp trước. Nội dung chi tiết: Độ sâu của duyên phận, là bạn nợ người khác bao nhiêu và bạn nhận được bao nhiêu ở kiếp này. Dành nhiều thời gian bên nhau hơn vì bạn nợ nhiều, dành ít thời gian bên nhau vì bạn nợ ít hơn ở kiếp trước. Người học Phật nên hiểu rằng nếu không mắc nợ nhau thì làm sao có thể gặp nhau được? 20181228·Malaysia.Kuala Lumpur Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con 🙏🙏🙏 今生有缘，都是为了来还上辈子欠下的债，缘深缘浅就是你在今生欠别人多少，得多少。 相伴的时间多一点，因为你欠得多；相伴的时间少一点，就是因为你上辈子欠得少。 学佛人要懂得，若无相欠，怎会相见？ 20181228•马来西亚•吉隆坡
+Độ sâu của duyên phận, là bạn nợ người khác bao nhiêu và bạn nhận được bao nhiêu ở kiếp này. Dành nhiều thời gian bên nhau hơn vì bạn nợ nhiều, dành ít thời gian bên nhau vì bạn nợ ít hơn ở kiếp trước. Người học Phật nên hiểu rằng nếu không mắc nợ nhau thì làm sao có thể gặp nhau được? 20181228·Malaysia.Kuala Lumpur Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con 🙏🙏🙏 今生有缘，都是为了来还上辈子欠下的债，缘深缘浅就是你在今生欠别人多少，得多少。 相伴的时间多一点，因为你欠得多；相伴的时间少一点，就是因为你上辈子欠得少。 学佛人要懂得，若无相欠，怎会相见？ 20181228•马来西亚•吉隆坡

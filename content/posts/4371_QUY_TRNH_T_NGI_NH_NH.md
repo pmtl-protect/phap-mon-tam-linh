@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.878Z
+title: "QUY TRNH T NGI NH NH"
+date: 2025-12-16T01:19:28.873Z
 draft: false
 url: "/2025/12/quy-trinh-ot-ngoi-nha-nho.html"
 ---

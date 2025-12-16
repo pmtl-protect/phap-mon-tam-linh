@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.685Z
+title: "Nhóm cộng tu vì ý kiến không hợp dẫn đến bất đồng nên hóa giải thế nào"
+date: 2025-12-16T01:19:28.749Z
 draft: false
 url: "/2025/12/nhom-cong-tu-vi-y-kien-khong-hop-dan-en.html"
 ---

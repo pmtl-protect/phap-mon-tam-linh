@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.147Z
+title: "Nợ tình chưa trả vong linh lớn vẫn chưa rời đi niệm kinh không được có oán khí"
+date: 2025-12-16T01:19:29.079Z
 draft: false
 url: "/2025/12/no-tinh-chua-tra-vong-linh-lon-van-chua.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.821Z
+title: "TI SAO S PH L KHNG PHI L NGI XUT GIA"
+date: 2025-12-16T01:19:28.834Z
 draft: false
 url: "/2025/12/tai-sao-su-phu-lu-khong-phai-la-nguoi.html"
 ---

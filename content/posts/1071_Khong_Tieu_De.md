@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:57.109Z
+title: "Sư Phụ Lư hướng dẫn cách uống nước Đại Bi"
+date: 2025-12-16T01:19:20.592Z
 draft: false
 url: "/2024/10/nuoc-ai-bi.html"
 ---
 
-Tiêu đề bài viết: Sư Phụ Lư hướng dẫn cách uống nước Đại Bi Nội dung chi tiết: Hỏi : Sư phụ có khai thị qua, trước khi uống nước Đại Bi , tốt nhất nên niệm 1 biến Chú Đại Bi, đồng thời đem lòng bàn tay đặt úp xuống phía trên ly nước cao hơn 1 xíu, làm như vậy sẽ hiệu quả hơn. Cho con hỏi là :khi niệm Chú Đại Bi , mắt nhìn Quan Thế Âm Bồ Tát hay là nhìn nước trong ly ạ. Sư Phụ Đáp: Khi niệm kinh, mắt nhắm lại, trong tâm khấn cầu xin " Xin Quan Thế Âm Bồ Tát từ bi gia trì cho con sau khi uống nước Phật sẽ có sức khỏe tốt , mở mang trí tuệ , tai qua nạn khỏi,...." Đài trưởng Lu khai thị trả lời vấn đáp.
+Hỏi : Sư phụ có khai thị qua, trước khi uống nước Đại Bi , tốt nhất nên niệm 1 biến Chú Đại Bi, đồng thời đem lòng bàn tay đặt úp xuống phía trên ly nước cao hơn 1 xíu, làm như vậy sẽ hiệu quả hơn. Cho con hỏi là :khi niệm Chú Đại Bi , mắt nhìn Quan Thế Âm Bồ Tát hay là nhìn nước trong ly ạ. Sư Phụ Đáp: Khi niệm kinh, mắt nhắm lại, trong tâm khấn cầu xin " Xin Quan Thế Âm Bồ Tát từ bi gia trì cho con sau khi uống nước Phật sẽ có sức khỏe tốt , mở mang trí tuệ , tai qua nạn khỏi,...." Đài trưởng Lu khai thị trả lời vấn đáp.

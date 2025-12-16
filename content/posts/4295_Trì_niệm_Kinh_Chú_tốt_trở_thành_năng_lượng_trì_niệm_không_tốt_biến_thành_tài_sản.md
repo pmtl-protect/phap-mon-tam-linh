@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.501Z
+title: "Trì niệm Kinh Chú tốt trở thành năng lượng trì niệm không tốt biến thành tài sản"
+date: 2025-12-16T01:19:28.620Z
 draft: false
 url: "/2025/12/tri-niem-kinh-chu-tot-tro-thanh-nang.html"
 ---

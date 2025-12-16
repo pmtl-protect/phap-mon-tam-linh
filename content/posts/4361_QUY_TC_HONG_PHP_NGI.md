@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.834Z
+title: "QUY TC HONG PHP NGI"
+date: 2025-12-16T01:19:28.842Z
 draft: false
 url: "/2025/12/quy-tac-hoang-phap-o-nguoi.html"
 ---

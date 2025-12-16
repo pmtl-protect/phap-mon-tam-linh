@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:01.592Z
+title: "Đọc \"Bạch thoại Phật pháp\", người nghe càng nhiều tiêu nghiệp càng nhanh"
+date: 2025-12-16T01:19:23.040Z
 draft: false
 url: "/2024/11/oc-bach-thoai-phat-phap-nguoi-nghe-cang.html"
 ---
 
-Tiêu đề bài viết: Đọc "Bạch thoại Phật pháp", người nghe càng nhiều tiêu nghiệp càng nhanh Nội dung chi tiết: Wenda20201018 10:24 读《白话佛法》，听的人越多消业越快 女听众：同修白天在群里读了《白话佛法》，假如有人半夜睡不着觉就听同修发在群里的《白话佛法》，会不会对读的人有不好的气场影响？ 台长答：没有。读《白话佛法》等于读佛的经文一样，是度众生，有什么不好？听的人越多，他消的业越快（哦，是法布施？）嗯。你说法布施的人不好啊？（肯定好）法布施不是要人家听吗？（对） Wenda20201018 10:24 Đọc "Bạch thoại Phật pháp", người nghe càng nhiều tiêu nghiệp càng nhanh Nữ thính giả: Ban ngày đồng tu đọc "Bạch thoại Phật pháp" trong nhóm, nếu có người nửa đêm không ngủ được liền nghe "Bạch thoại Phật pháp" mà đồng tu phát trong nhóm, liệu có ảnh hưởng khí trường xấu đối với người đọc không? Đài trưởng đáp: Không có. Đọc "Bạch thoại Phật pháp" cũng giống như đọc kinh văn của Phật, là độ chúng sinh, có gì không tốt? Càng nhiều người nghe, thì cậu ấy tiêu nghiệp càng nhanh (ồ, đó là Pháp Bố Thi?) đúng. con nghĩ người pháp bố thí không tốt sao? (khẳng định tốt) Pháp Bố Thi không phải là cho người ta nghe hả? (Đúng)
+Wenda20201018 10:24 读《白话佛法》，听的人越多消业越快 女听众：同修白天在群里读了《白话佛法》，假如有人半夜睡不着觉就听同修发在群里的《白话佛法》，会不会对读的人有不好的气场影响？ 台长答：没有。读《白话佛法》等于读佛的经文一样，是度众生，有什么不好？听的人越多，他消的业越快（哦，是法布施？）嗯。你说法布施的人不好啊？（肯定好）法布施不是要人家听吗？（对） Wenda20201018 10:24 Đọc "Bạch thoại Phật pháp", người nghe càng nhiều tiêu nghiệp càng nhanh Nữ thính giả: Ban ngày đồng tu đọc "Bạch thoại Phật pháp" trong nhóm, nếu có người nửa đêm không ngủ được liền nghe "Bạch thoại Phật pháp" mà đồng tu phát trong nhóm, liệu có ảnh hưởng khí trường xấu đối với người đọc không? Đài trưởng đáp: Không có. Đọc "Bạch thoại Phật pháp" cũng giống như đọc kinh văn của Phật, là độ chúng sinh, có gì không tốt? Càng nhiều người nghe, thì cậu ấy tiêu nghiệp càng nhanh (ồ, đó là Pháp Bố Thi?) đúng. con nghĩ người pháp bố thí không tốt sao? (khẳng định tốt) Pháp Bố Thi không phải là cho người ta nghe hả? (Đúng)

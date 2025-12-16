@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.053Z
+title: "Vấn đề nam nữ nghiệp chướng và công đức thanh tu"
+date: 2025-12-16T01:19:29.005Z
 draft: false
 url: "/2025/12/van-e-nam-nu-nghiep-chuong-va-cong-uc.html"
 ---

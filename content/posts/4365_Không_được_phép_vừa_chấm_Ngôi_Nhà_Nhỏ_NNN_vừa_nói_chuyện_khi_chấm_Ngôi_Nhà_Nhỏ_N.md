@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.852Z
+title: "Không được phép vừa chấm Ngôi Nhà Nhỏ NNN vừa nói chuyện khi chấm Ngôi Nhà Nhỏ N"
+date: 2025-12-16T01:19:28.853Z
 draft: false
 url: "/2025/12/khong-uoc-phep-vua-cham-ngoi-nha-nho.html"
 ---

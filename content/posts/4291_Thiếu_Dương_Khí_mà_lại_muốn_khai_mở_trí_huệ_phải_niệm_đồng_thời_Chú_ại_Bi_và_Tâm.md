@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.487Z
+title: "Thiếu Dương Khí mà lại muốn khai mở trí huệ phải niệm đồng thời Chú ại Bi và Tâm"
+date: 2025-12-16T01:19:28.609Z
 draft: false
 url: "/2025/12/thieu-duong-khi-ma-lai-muon-khai-mo-tri.html"
 ---

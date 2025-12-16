@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.860Z
+title: "Ngôi nhà nhỏ rõ ràng là tặng người quá cố không được dùng cho việc khác người qu"
+date: 2025-12-16T01:19:28.859Z
 draft: false
 url: "/2025/12/ngoi-nha-nho-ro-rang-la-tang-nguoi-qua.html"
 ---

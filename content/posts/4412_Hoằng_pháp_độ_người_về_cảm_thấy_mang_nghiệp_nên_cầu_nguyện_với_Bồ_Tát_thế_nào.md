@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.104Z
+title: "Hoằng pháp độ người về cảm thấy mang nghiệp nên cầu nguyện với Bồ Tát thế nào"
+date: 2025-12-16T01:19:29.047Z
 draft: false
 url: "/2025/12/hoang-phap-o-nguoi-ve-cam-thay-mang.html"
 ---

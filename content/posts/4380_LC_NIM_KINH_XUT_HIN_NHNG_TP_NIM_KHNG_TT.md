@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.948Z
+title: "LC NIM KINH XUT HIN NHNG TP NIM KHNG TT"
+date: 2025-12-16T01:19:28.922Z
 draft: false
 url: "/2025/12/luc-niem-kinh-xuat-hien-nhung-tap-niem.html"
 ---

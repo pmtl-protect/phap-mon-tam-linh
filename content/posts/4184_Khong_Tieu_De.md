@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:11.993Z
+title: "Dưới đây là lời từ bi khai thị của Lư Đài Trưởng"
+date: 2025-12-16T01:19:28.373Z
 draft: false
 url: "/2024/11/duoi-ay-la-loi-tu-bi-khai-thi-cua-lu-ai.html"
 ---
 
-Tiêu đề bài viết: Dưới đây là lời từ bi khai thị của Lư Đài Trưởng : Nội dung chi tiết: Hiện tại của bạn chính là quá khứ của bạn , bản thân bạn hiện tại cũng là tương lai của bạn. Tất cả đều là do tự mình tạo nhân, tự mình nhận quả. Con người khi bị mê hoặc liền gieo nhân không tốt, con người không được hồ đồ. Mỗi khi tức giận, trí huệ sẽ ngay lập tức biến mất. Khi đang tức giận tuyệt đối không được quyết định bất kỳ việc gì, nếu không nhất định sẽ hối hận. Xem nhẹ danh lợi tình cảm nhân gian, tu tập trí huệ và tu dưỡng bản thân Ngày 8 tháng 2 năm 2015, tại Sydney Chúc quý vị tinh tấn học Phật, phước huệ song tu !
+Hiện tại của bạn chính là quá khứ của bạn , bản thân bạn hiện tại cũng là tương lai của bạn. Tất cả đều là do tự mình tạo nhân, tự mình nhận quả. Con người khi bị mê hoặc liền gieo nhân không tốt, con người không được hồ đồ. Mỗi khi tức giận, trí huệ sẽ ngay lập tức biến mất. Khi đang tức giận tuyệt đối không được quyết định bất kỳ việc gì, nếu không nhất định sẽ hối hận. Xem nhẹ danh lợi tình cảm nhân gian, tu tập trí huệ và tu dưỡng bản thân Ngày 8 tháng 2 năm 2015, tại Sydney Chúc quý vị tinh tấn học Phật, phước huệ song tu !

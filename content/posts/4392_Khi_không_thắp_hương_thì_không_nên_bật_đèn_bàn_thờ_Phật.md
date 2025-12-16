@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.011Z
+title: "Khi không thắp hương thì không nên bật đèn bàn thờ Phật"
+date: 2025-12-16T01:19:28.973Z
 draft: false
 url: "/2025/12/khi-khong-thap-huong-thi-khong-nen-bat.html"
 ---

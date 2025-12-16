@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:08.916Z
+title: "Không có cách nào ăn chay được, tương lai không lên trời được"
+date: 2025-12-16T01:19:26.824Z
 draft: false
 url: "/2024/10/khong-co-cach-nao-chay-uoc-tuong-lai.html"
 ---
 
-Tiêu đề bài viết: Không có cách nào ăn chay được, tương lai không lên trời được Nội dung chi tiết: Wenda20140907A 36:57 Thính giả nam (cùng điện thoại với một thính giả khác): Muốn hỏi Sư phụ, người vẫn không có cách nào ăn chay được thì học Phật đến cuối cùng có phải rất có thể không có cách nào tu lên tầng trời rất cao phải không ạ? Đài trưởng: Đúng ra là như vậy, nếu như một người một mực tu hành, cả đời không có cách nào ăn chay, người này không lên được trời, nhiều nhất chỉ có thể ở trong Dục Giới Thiên (Cõi Dục Giới). Ta hỏi con một câu con liền hiểu, người siêu thoát lục đạo luân hồi mỗi người đều thiện lương, đều là Bồ Tát, là Phật, con nói xem Phật cùng Bồ Tát sẽ ăn mặn sao? Thính giả nam: Đúng vậy ạ! Đài trưởng: Sẽ sát sinh sao? Ăn tiên hạc trên trời, ăn khổng tước, ăn kỳ lân, con nói có thể sao? Thính giả nam: Đúng vậy ạ! Bởi vì rất nhiều người vẫn không hiểu đạo lý này, ví dụ như muốn phát nguyện cứu độ chúng sinh, nhưng vẫn phải ăn mặn, vẫn không có cách nào thay đổi để ăn chay. Đài trưởng: Họ không lên được, loại người này không lên được, không lên được trời.
+Wenda20140907A 36:57 Thính giả nam (cùng điện thoại với một thính giả khác): Muốn hỏi Sư phụ, người vẫn không có cách nào ăn chay được thì học Phật đến cuối cùng có phải rất có thể không có cách nào tu lên tầng trời rất cao phải không ạ? Đài trưởng: Đúng ra là như vậy, nếu như một người một mực tu hành, cả đời không có cách nào ăn chay, người này không lên được trời, nhiều nhất chỉ có thể ở trong Dục Giới Thiên (Cõi Dục Giới). Ta hỏi con một câu con liền hiểu, người siêu thoát lục đạo luân hồi mỗi người đều thiện lương, đều là Bồ Tát, là Phật, con nói xem Phật cùng Bồ Tát sẽ ăn mặn sao? Thính giả nam: Đúng vậy ạ! Đài trưởng: Sẽ sát sinh sao? Ăn tiên hạc trên trời, ăn khổng tước, ăn kỳ lân, con nói có thể sao? Thính giả nam: Đúng vậy ạ! Bởi vì rất nhiều người vẫn không hiểu đạo lý này, ví dụ như muốn phát nguyện cứu độ chúng sinh, nhưng vẫn phải ăn mặn, vẫn không có cách nào thay đổi để ăn chay. Đài trưởng: Họ không lên được, loại người này không lên được, không lên được trời.

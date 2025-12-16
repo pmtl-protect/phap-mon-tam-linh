@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.162Z
+title: "CA CHNH TT NHT NN DNG MU NHT"
+date: 2025-12-16T01:19:29.087Z
 draft: false
 url: "/2025/12/cua-chinh-tot-nhat-nen-dung-mau-nhat.html"
 ---

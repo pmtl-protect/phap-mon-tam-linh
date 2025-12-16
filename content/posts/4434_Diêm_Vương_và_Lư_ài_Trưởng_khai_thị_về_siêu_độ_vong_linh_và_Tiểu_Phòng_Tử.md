@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.204Z
+title: "Diêm Vương và Lư ài Trưởng khai thị về siêu độ vong linh và Tiểu Phòng Tử"
+date: 2025-12-16T01:19:29.119Z
 draft: false
 url: "/2025/12/diem-vuong-va-lu-ai-truong-khai-thi-ve.html"
 ---

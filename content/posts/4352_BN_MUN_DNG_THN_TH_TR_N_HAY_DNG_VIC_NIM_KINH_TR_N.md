@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.784Z
+title: "BN MUN DNG THN TH TR N HAY DNG VIC NIM KINH TR N"
+date: 2025-12-16T01:19:28.812Z
 draft: false
 url: "/2025/12/ban-muon-dung-than-e-tra-no-hay-dung_075489860.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.613Z
+title: "Thường xuyên thay đổi tên mạng Nicknames có dẫn đến hồn phách không trọn vẹn khô"
+date: 2025-12-16T01:19:28.706Z
 draft: false
 url: "/2025/12/thuong-xuyen-thay-oi-ten-mang-nicknames.html"
 ---

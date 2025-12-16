@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.552Z
+title: "Học Phật và làm người là gốc rễ cần phải biết nhận lỗi và sửa đổiThường Lạc Ngã"
+date: 2025-12-16T01:19:28.664Z
 draft: false
 url: "/2025/12/hoc-phat-va-lam-nguoi-la-goc-re-can.html"
 ---

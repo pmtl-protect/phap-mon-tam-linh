@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.449Z
+title: "Nghĩa Ngày Lục Trai"
+date: 2025-12-16T01:19:28.586Z
 draft: false
 url: "/2025/12/y-nghia-ngay-luc-trai.html"
 ---

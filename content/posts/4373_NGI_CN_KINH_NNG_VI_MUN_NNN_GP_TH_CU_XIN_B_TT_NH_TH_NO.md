@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.886Z
+title: "NGI CN KINH NNG VI MUN NNN GP TH CU XIN B TT NH TH NO"
+date: 2025-12-16T01:19:28.878Z
 draft: false
 url: "/2025/12/nguoi-can-kinh-nong-voi-muon-nnn-gap.html"
 ---

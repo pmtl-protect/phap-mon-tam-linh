@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.651Z
+title: "Bồ Tát điểm hóa Bản thân chỉ còn 5 ngày nữa sẽ phải về trời"
+date: 2025-12-16T01:19:28.734Z
 draft: false
 url: "/2025/12/bo-tat-iem-hoa-ban-than-chi-con-5-ngay.html"
 ---

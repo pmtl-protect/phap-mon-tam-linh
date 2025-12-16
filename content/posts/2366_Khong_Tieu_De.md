@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.751Z
+title: "Niệm Tâm Kinh có thể trở nên thông minh hơn"
+date: 2025-12-16T01:19:23.703Z
 draft: false
 url: "/2024/11/niem-tam-kinh-co-tro-nen-thong-minh-hon.html"
 ---
 
-Tiêu đề bài viết: Niệm Tâm Kinh có thể trở nên thông minh hơn Nội dung chi tiết: Nữ thính giả: Thầy từng nói rằng Tâm Kinh có thể giúp con người khai mở trí tuệ và giảm bớt phiền não. Nếu mỗi ngày kiên trì niệm Tâm Kinh, những người sinh ra không thông minh lắm cũng có thể trở nên thông minh hơn không? Đại Trưởng: Đương nhiên rồi, Tâm Kinh giúp giảm phiền não, khai mở trí tuệ! Thực ra, khi mới sinh ra, con người đều chưa thực sự thông minh, ai có thể sinh ra đã thông minh ngay được? Đều là nhờ học tập dần dần mà trở nên thông minh. Có người sinh ra với chỉ số IQ không quá cao, nhưng nhờ Bồ Tát gia trì liên tục, chỉ số IQ của họ cũng sẽ được cải thiện (con hiểu rồi). wenda20150705A 02:00 念心经可以变聪明 女听众:您:说过心经可以帮助人家开智慧, 还有去除烦恼。如果每天坚持念,生出来不聪明 的人也可以变成一个聪明人吗? 台长答:那当然了,心经去烦恼、开智慧的!其实人生出来的时候都不是很聪明的,你说 哪一个人生出来就很聪明的?都是慢慢学了变聪 明的。有些人天生智商不是太好,靠菩萨不断地 给他加持,他智商也会好起来的(明白) wenda20150705A 02:00
+Nữ thính giả: Thầy từng nói rằng Tâm Kinh có thể giúp con người khai mở trí tuệ và giảm bớt phiền não. Nếu mỗi ngày kiên trì niệm Tâm Kinh, những người sinh ra không thông minh lắm cũng có thể trở nên thông minh hơn không? Đại Trưởng: Đương nhiên rồi, Tâm Kinh giúp giảm phiền não, khai mở trí tuệ! Thực ra, khi mới sinh ra, con người đều chưa thực sự thông minh, ai có thể sinh ra đã thông minh ngay được? Đều là nhờ học tập dần dần mà trở nên thông minh. Có người sinh ra với chỉ số IQ không quá cao, nhưng nhờ Bồ Tát gia trì liên tục, chỉ số IQ của họ cũng sẽ được cải thiện (con hiểu rồi). wenda20150705A 02:00 念心经可以变聪明 女听众:您:说过心经可以帮助人家开智慧, 还有去除烦恼。如果每天坚持念,生出来不聪明 的人也可以变成一个聪明人吗? 台长答:那当然了,心经去烦恼、开智慧的!其实人生出来的时候都不是很聪明的,你说 哪一个人生出来就很聪明的?都是慢慢学了变聪 明的。有些人天生智商不是太好,靠菩萨不断地 给他加持,他智商也会好起来的(明白) wenda20150705A 02:00

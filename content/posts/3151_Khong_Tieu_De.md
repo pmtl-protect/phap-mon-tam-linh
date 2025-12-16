@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:06.429Z
+title: "Vấn đề về tầng lầu cao thấp"
+date: 2025-12-16T01:19:25.604Z
 draft: false
 url: "/2025/08/van-e-ve-tang-lau-cao-thap.html"
 ---
 
-Tiêu đề bài viết: Vấn đề về tầng lầu cao thấp Nội dung chi tiết: wenda20121028A 54:35 Nữ thính giả: Thầy ơi, sau khi học Phật rồi, khi mua nhà thì có phải càng ở tầng cao càng tốt không? Người ta nói là gần trời hơn, chắc không sao phải không? Sư phụ đáp: Không sao cả, cứ tùy duyên thôi. Đương nhiên ở cao một chút thì tốt hơn ở thấp, nhưng mà cao quá cũng không hay, vì ở trong nhà làm gì thì Hộ Pháp thần nhìn thấy càng rõ hơn. (Ồ, dạ rồi ạ) wenda20121028A 54:35 楼层的高低问题 女听众：师父，学佛以后买房子是否越高越好？他们说接天气了，应该没关系吧？ 台长答：没关系的，随缘吧。当然高一点比低一点好，但是高过头也不好，家里做什么事情护法 神看得更清楚（哦，好的）
+wenda20121028A 54:35 Nữ thính giả: Thầy ơi, sau khi học Phật rồi, khi mua nhà thì có phải càng ở tầng cao càng tốt không? Người ta nói là gần trời hơn, chắc không sao phải không? Sư phụ đáp: Không sao cả, cứ tùy duyên thôi. Đương nhiên ở cao một chút thì tốt hơn ở thấp, nhưng mà cao quá cũng không hay, vì ở trong nhà làm gì thì Hộ Pháp thần nhìn thấy càng rõ hơn. (Ồ, dạ rồi ạ) wenda20121028A 54:35 楼层的高低问题 女听众：师父，学佛以后买房子是否越高越好？他们说接天气了，应该没关系吧？ 台长答：没关系的，随缘吧。当然高一点比低一点好，但是高过头也不好，家里做什么事情护法 神看得更清楚（哦，好的）

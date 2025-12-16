@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.031Z
+title: "TM KINH - BT NH BA LA MT A TM KINH"
+date: 2025-12-16T01:19:28.989Z
 draft: false
 url: "/2025/12/tam-kinh-bat-nha-ba-la-mat-tam-kinh.html"
 ---

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.940Z
+title: "THAI PH NIM KINH CHO BN THN V CHO CON NH TH NO"
+date: 2025-12-16T01:19:28.915Z
 draft: false
 url: "/2025/12/thai-phu-niem-kinh-cho-ban-than-va-cho.html"
 ---

@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:51.913Z
+title: "Cá phóng sinh không được nhỏ hơn bao nhiêu cm?"
+date: 2025-12-16T01:19:17.094Z
 draft: false
 url: "/2025/03/ca-phong-sinh-khong-uoc-nho-hon-bao.html"
 ---
 
-Tiêu đề bài viết: Cá phóng sinh không được nhỏ hơn bao nhiêu cm? Nội dung chi tiết: Hỏi: Cá phóng sinh, nhỏ nhất không được nhỏ hơn bao nhiêu cm? Đáp: Thông thường không được nhỏ hơn bàn tay. 📩 Bảng tin ngày 19 tháng 5 năm 2019 放生的鱼不能小于多少厘米？ 🔆问：放生鱼，最小不能小于多少厘米？ 🍁答：一般不小于巴掌大小。 2019年5月19日留言板📩
+Hỏi: Cá phóng sinh, nhỏ nhất không được nhỏ hơn bao nhiêu cm? Đáp: Thông thường không được nhỏ hơn bàn tay. 📩 Bảng tin ngày 19 tháng 5 năm 2019 放生的鱼不能小于多少厘米？ 🔆问：放生鱼，最小不能小于多少厘米？ 🍁答：一般不小于巴掌大小。 2019年5月19日留言板📩

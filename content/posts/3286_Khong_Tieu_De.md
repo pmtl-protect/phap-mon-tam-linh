@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:07.639Z
+title: "Ăn nhiều củ sen có thể làm sạch ngũ căn"
+date: 2025-12-16T01:19:26.258Z
 draft: false
 url: "/2025/09/an-nhieu-cu-sen-co-lam-sach-ngu-can.html"
 ---
 
-Tiêu đề bài viết: Ăn nhiều củ sen có thể làm sạch ngũ căn Nội dung chi tiết: Hỏi 28 Hỏi: Mấy ngày trước con nằm mơ, mơ thấy mình đang xem một cuốn tạp chí màu của Pháp Môn Tâm Linh, trong đó có một đoạn nhỏ nói về lời khai thị của sư phụ: chúng ta nên ăn nhiều củ sen, ăn nhiều củ sen có thể làm sạch ngũ căn. Con không biết ăn củ sen thật sự có công hiệu này không, hơn nữa con cũng không hiểu ngũ căn là ngũ căn nào. Đáp: Thật sự là như vậy, ăn nhiều củ sen có thể làm sạch ngũ căn. Ngũ căn là mắt, tai, mũi, lưỡi, thân. Củ sen có thể thanh nhiệt, làm mát máu, kiện tỳ, khai vị, ích khí bổ huyết, cầm máu, tán ứ, rất tốt cho cơ thể, còn có thể phòng ngừa ung thư. Giải đáp thư thắc mắc (84) — 20160114 问28 问：前几天做梦，梦见我在看一本心灵法门的彩绘杂志，其中有一个小篇幅是说师父开示，我们要多吃莲藕，多吃莲藕可以清洁五根。不知道食用莲藕是否真的有这个功效，另外我也不明白五根是哪五根。答：是真的，多吃莲藕可以清洁五根，五根是眼耳鼻舌身。莲藕可以清热凉血、健脾开胃、益气补血、止血散瘀，对身体很有好处，还可以预防癌症。 来信解答八十四 20160114
+Hỏi 28 Hỏi: Mấy ngày trước con nằm mơ, mơ thấy mình đang xem một cuốn tạp chí màu của Pháp Môn Tâm Linh, trong đó có một đoạn nhỏ nói về lời khai thị của sư phụ: chúng ta nên ăn nhiều củ sen, ăn nhiều củ sen có thể làm sạch ngũ căn. Con không biết ăn củ sen thật sự có công hiệu này không, hơn nữa con cũng không hiểu ngũ căn là ngũ căn nào. Đáp: Thật sự là như vậy, ăn nhiều củ sen có thể làm sạch ngũ căn. Ngũ căn là mắt, tai, mũi, lưỡi, thân. Củ sen có thể thanh nhiệt, làm mát máu, kiện tỳ, khai vị, ích khí bổ huyết, cầm máu, tán ứ, rất tốt cho cơ thể, còn có thể phòng ngừa ung thư. Giải đáp thư thắc mắc (84) — 20160114 问28 问：前几天做梦，梦见我在看一本心灵法门的彩绘杂志，其中有一个小篇幅是说师父开示，我们要多吃莲藕，多吃莲藕可以清洁五根。不知道食用莲藕是否真的有这个功效，另外我也不明白五根是哪五根。答：是真的，多吃莲藕可以清洁五根，五根是眼耳鼻舌身。莲藕可以清热凉血、健脾开胃、益气补血、止血散瘀，对身体很有好处，还可以预防癌症。 来信解答八十四 20160114

@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:10.611Z
+title: "Mọi người cần hiểu rằng, con người thực sự phải làm việc thiện, sống tốt, và làm người tốt. Ngoài ra, mọi người hãy nhớ vài thời điểm quan trọng sau"
+date: 2025-12-16T01:19:27.712Z
 draft: false
 url: "/2025/01/moi-nguoi-can-hieu-rang-con-nguoi-thuc.html"
 ---
 
-Tiêu đề bài viết: Mọi người cần hiểu rằng, con người thực sự phải làm việc thiện, sống tốt, và làm người tốt. Ngoài ra, mọi người hãy nhớ vài thời điểm quan trọng sau: Nội dung chi tiết: Vào đêm Giao thừa (tức tối ngày 30 Tết) và sáng mùng Một Tết, trong nhà không nên tắt đèn. • Đêm Giao thừa cần dọn dẹp nhà cửa sạch sẽ. Đặc biệt, hãy chú ý đến những năm tuổi có số 9 trong đó. Một số độ tuổi quan trọng cần cẩn thận là: 36 tuổi, 59 tuổi, 60 tuổi, 72 tuổi, 73 tuổi và 84 tuổi. Trong những độ tuổi này, con người rất dễ bị tai kiếp dẫn đi. ⛅️ — 20110116, Sydney 大家要明白，人真的要做善事，要做好人。另外，大家記住幾個時間，大年三十晚上和大年初一早上家裡不要關燈。 年三十晚上把家裡打掃乾淨。年齡中逢九要特別當心，有幾個主要的年齡要當心的是，36歲，59歲，60歲，72歲，73歲和84歲。在這些年齡時，人很容易被劫帶走。 ⛅️——20110116悉尼
+Vào đêm Giao thừa (tức tối ngày 30 Tết) và sáng mùng Một Tết, trong nhà không nên tắt đèn. • Đêm Giao thừa cần dọn dẹp nhà cửa sạch sẽ. Đặc biệt, hãy chú ý đến những năm tuổi có số 9 trong đó. Một số độ tuổi quan trọng cần cẩn thận là: 36 tuổi, 59 tuổi, 60 tuổi, 72 tuổi, 73 tuổi và 84 tuổi. Trong những độ tuổi này, con người rất dễ bị tai kiếp dẫn đi. ⛅️ — 20110116, Sydney 大家要明白，人真的要做善事，要做好人。另外，大家記住幾個時間，大年三十晚上和大年初一早上家裡不要關燈。 年三十晚上把家裡打掃乾淨。年齡中逢九要特別當心，有幾個主要的年齡要當心的是，36歲，59歲，60歲，72歲，73歲和84歲。在這些年齡時，人很容易被劫帶走。 ⛅️——20110116悉尼

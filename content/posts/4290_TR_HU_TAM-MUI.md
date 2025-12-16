@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.483Z
+title: "TR HU TAM-MUI"
+date: 2025-12-16T01:19:28.606Z
 draft: false
 url: "/2025/12/tri-hue-tam-muoi.html"
 ---

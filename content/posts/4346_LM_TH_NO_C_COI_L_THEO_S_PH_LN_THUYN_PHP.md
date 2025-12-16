@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.754Z
+title: "LM TH NO C COI L THEO S PH LN THUYN PHP"
+date: 2025-12-16T01:19:28.795Z
 draft: false
 url: "/2025/12/lam-nao-e-uoc-coi-la-theo-su-phu-len.html"
 ---

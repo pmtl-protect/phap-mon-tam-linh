@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.721Z
+title: "TNG HP KHAI TH N CHAY NIM KINH PHNG SINH"
+date: 2025-12-16T01:19:28.773Z
 draft: false
 url: "/2025/12/tong-hop-khai-thi-chay-niem-kinh-phong.html"
 ---

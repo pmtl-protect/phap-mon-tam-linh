@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.572Z
+title: "Thính giả chia sẻ sau khi đốt 21 tấm Ngôi Nhà nhỏ cơn sốt cao đã giảm"
+date: 2025-12-16T01:19:28.678Z
 draft: false
 url: "/2025/12/thinh-gia-chia-se-sau-khi-ot-21-tam.html"
 ---

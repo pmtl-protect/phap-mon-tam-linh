@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.228Z
+title: "Đốt Ngôi Nhà Nhỏ là để siêu độ vong linh trước, hay tiêu nghiệp chướng trước?"
+date: 2025-12-16T01:19:23.396Z
 draft: false
 url: "/2025/04/ot-ngoi-nha-nho-la-e-sieu-o-vong-linh.html"
 ---
 
-Tiêu đề bài viết: Đốt Ngôi Nhà Nhỏ là để siêu độ vong linh trước, hay tiêu nghiệp chướng trước? Nội dung chi tiết: Wenda20140214 – 26:37 Nam thính giả: Đối với một người nghiệp chướng nặng, ví dụ họ mắc bệnh do nghiệp chướng, cần đốt hàng trăm hoặc thậm chí hàng ngàn tờ Ngôi Nhà Nhỏ, thường họ sẽ phát nguyện đốt theo đợt, mỗi đợt 21 tờ. Nếu họ không biết rõ bản thân có vong linh hay không, thì khi đốt Ngôi Nhà Nhỏ, trước tiên là siêu độ vong linh hay là tiêu trừ nghiệp chướng? Đài Trưởng: Trước tiên là siêu độ cho vong linh (Nếu có vong linh thì là ưu tiên siêu độ trước đúng không?). Tất nhiên rồi, chỉ cần trên người có vong linh thì vong linh sẽ nhận trước. Vong linh chính là nghiệp chướng đã bị kích hoạt đó. (Con hiểu rồi ạ.) \*\*\*\*\*\*\*\* 【燒的小房子是先還給靈性，還是先消業障】❓ Wenda20140214 26:37 男聽眾：對於一個業障比較厲害的人，比如說他身上有某種業障病，要念幾百甚至上千張小房子，一般他就許願21張一撥撥這樣念。如果他在不知道自己有沒靈性的情況下，小房子燒下去是先超度靈性呢，還是先消他的業障啊？ 台長答：先還給靈性的（有靈性的話就先給靈性？）那當然了，只要身上有靈性，靈性先拿掉了，靈性就是激活的業障啊（明白了）
+Wenda20140214 – 26:37 Nam thính giả: Đối với một người nghiệp chướng nặng, ví dụ họ mắc bệnh do nghiệp chướng, cần đốt hàng trăm hoặc thậm chí hàng ngàn tờ Ngôi Nhà Nhỏ, thường họ sẽ phát nguyện đốt theo đợt, mỗi đợt 21 tờ. Nếu họ không biết rõ bản thân có vong linh hay không, thì khi đốt Ngôi Nhà Nhỏ, trước tiên là siêu độ vong linh hay là tiêu trừ nghiệp chướng? Đài Trưởng: Trước tiên là siêu độ cho vong linh (Nếu có vong linh thì là ưu tiên siêu độ trước đúng không?). Tất nhiên rồi, chỉ cần trên người có vong linh thì vong linh sẽ nhận trước. Vong linh chính là nghiệp chướng đã bị kích hoạt đó. (Con hiểu rồi ạ.) \*\*\*\*\*\*\*\* 【燒的小房子是先還給靈性，還是先消業障】❓ Wenda20140214 26:37 男聽眾：對於一個業障比較厲害的人，比如說他身上有某種業障病，要念幾百甚至上千張小房子，一般他就許願21張一撥撥這樣念。如果他在不知道自己有沒靈性的情況下，小房子燒下去是先超度靈性呢，還是先消他的業障啊？ 台長答：先還給靈性的（有靈性的話就先給靈性？）那當然了，只要身上有靈性，靈性先拿掉了，靈性就是激活的業障啊（明白了）

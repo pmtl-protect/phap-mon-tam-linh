@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:57.600Z
+title: "Không nên đốt Ngôi nhà nhỏ sau khi thắp đầu hương"
+date: 2025-12-16T01:19:20.886Z
 draft: false
 url: "/2025/03/khong-nen-ot-ngoi-nha-nho-sau-khi-thap.html"
 ---
 
-Tiêu đề bài viết: Không nên đốt Ngôi nhà nhỏ sau khi thắp đầu hương Nội dung chi tiết: Wenda20151004A 04:48 Thính giả nam: Lần trước Sư phụ nói rằng vào những ngày lớn, sau khi thắp đầu hương, có thể đốt kinh văn tự tu của Lễ Phật Đại Sám Hối Văn. Nhưng để tránh kích hoạt nghiệp chướng, có thể đốt Ngôi nhà nhỏ vào ban đêm không? Xin Sư phụ từ bi khai thị. Lư Đài Trưởng đáp: Thông thường, Ngôi nhà nhỏ tốt nhất không nên đốt vào ban đêm. Dù là ngày mồng một, rằm hay ngày lớn, việc đốt Ngôi nhà nhỏ cũng cần có thời gian cụ thể, không nên đốt quá muộn. Tốt nhất là không đốt sau nửa đêm - 12h đêm. Hiểu chưa? Thính giả nam: Hiểu rồi, cảm ơn Sư phụ từ bi khai thị! \*\*\* 上头香后最好不要烧小房子 Wenda20151004A 04:48 男听众：上次不是说大日子上头香可以直接烧礼佛大忏悔文的自修经文嘛，但是为了防止业障激活，可以同时在夜里烧小房子吗？请师父慈悲开示一下。 “卢台长”答：一般的，小房子最好晚上不要烧。就是初一十五了，或是大日子了，小房子也就是要有个时间的，不要烧得太晚，小房子最好不要过午，就是不要过到半夜十二点钟之后。明白吗？（好的，谢谢师父慈悲开示！）
+Wenda20151004A 04:48 Thính giả nam: Lần trước Sư phụ nói rằng vào những ngày lớn, sau khi thắp đầu hương, có thể đốt kinh văn tự tu của Lễ Phật Đại Sám Hối Văn. Nhưng để tránh kích hoạt nghiệp chướng, có thể đốt Ngôi nhà nhỏ vào ban đêm không? Xin Sư phụ từ bi khai thị. Lư Đài Trưởng đáp: Thông thường, Ngôi nhà nhỏ tốt nhất không nên đốt vào ban đêm. Dù là ngày mồng một, rằm hay ngày lớn, việc đốt Ngôi nhà nhỏ cũng cần có thời gian cụ thể, không nên đốt quá muộn. Tốt nhất là không đốt sau nửa đêm - 12h đêm. Hiểu chưa? Thính giả nam: Hiểu rồi, cảm ơn Sư phụ từ bi khai thị! \*\*\* 上头香后最好不要烧小房子 Wenda20151004A 04:48 男听众：上次不是说大日子上头香可以直接烧礼佛大忏悔文的自修经文嘛，但是为了防止业障激活，可以同时在夜里烧小房子吗？请师父慈悲开示一下。 “卢台长”答：一般的，小房子最好晚上不要烧。就是初一十五了，或是大日子了，小房子也就是要有个时间的，不要烧得太晚，小房子最好不要过午，就是不要过到半夜十二点钟之后。明白吗？（好的，谢谢师父慈悲开示！）

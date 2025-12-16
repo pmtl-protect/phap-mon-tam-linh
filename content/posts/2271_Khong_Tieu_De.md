@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.352Z
+title: "mơ thấy mình đến một đạo quán để bái một vị thần tiên"
+date: 2025-12-16T01:19:23.464Z
 draft: false
 url: "/2024/11/mo-thay-minh-en-mot-ao-quan-e-bai-mot.html"
 ---
 
-Tiêu đề bài viết: mơ thấy mình đến một đạo quán để bái một vị thần tiên Nội dung chi tiết: Câu hỏi 72: Một đồng tu mơ thấy mình đến một đạo quán để bái một vị thần tiên, nhưng vị thần đó mắng anh ấy. Sau đó, anh ấy đi bái một đạo sĩ, nhưng vị đạo sĩ quay người đi. Anh ấy lo lắng sẽ gặp chuyện, nên mỗi ngày niệm 21 lần Chú Tiêu Tai Cát Tường Thần Chú. Sau đó, anh ấy gặp tai nạn xe nhưng không bị thương. Trả lời 72: Tai nạn xe chính là một tai ương. Mức độ tai ương lớn hay nhỏ phụ thuộc vào tình huống trong giấc mơ. Anh ấy không bị thương nên chỉ có va chạm nhẹ, không có vấn đề nghiêm trọng. Thường thì mơ thấy thần tiên không quan tâm đến mình là dấu hiệu báo trước về một số tai ương. �问72: 同修梦到去一个道观去拜一位神仙，这个神仙骂他，后来他就去拜一个道士，那个道士转身就走了。他怕自己有事，每天就念21遍消灾吉祥神咒，后来他遇到车祸但是没有受伤。 答72: 有车祸就是灾难，灾难大小视梦中情景而定，他没有受伤就是车子磕磕碰碰，代表没有什么太大的问题。一般梦中碰见仙人不理不睬，都是暗示含有一些灾难。 Lời dạy của Thầy Lư và giải đáp thắc mắc trong thư (5) https://lujunhong2or.com/卢台长开示解答来信疑惑 （五） 2011-09-12
+Câu hỏi 72: Một đồng tu mơ thấy mình đến một đạo quán để bái một vị thần tiên, nhưng vị thần đó mắng anh ấy. Sau đó, anh ấy đi bái một đạo sĩ, nhưng vị đạo sĩ quay người đi. Anh ấy lo lắng sẽ gặp chuyện, nên mỗi ngày niệm 21 lần Chú Tiêu Tai Cát Tường Thần Chú. Sau đó, anh ấy gặp tai nạn xe nhưng không bị thương. Trả lời 72: Tai nạn xe chính là một tai ương. Mức độ tai ương lớn hay nhỏ phụ thuộc vào tình huống trong giấc mơ. Anh ấy không bị thương nên chỉ có va chạm nhẹ, không có vấn đề nghiêm trọng. Thường thì mơ thấy thần tiên không quan tâm đến mình là dấu hiệu báo trước về một số tai ương. �问72: 同修梦到去一个道观去拜一位神仙，这个神仙骂他，后来他就去拜一个道士，那个道士转身就走了。他怕自己有事，每天就念21遍消灾吉祥神咒，后来他遇到车祸但是没有受伤。 答72: 有车祸就是灾难，灾难大小视梦中情景而定，他没有受伤就是车子磕磕碰碰，代表没有什么太大的问题。一般梦中碰见仙人不理不睬，都是暗示含有一些灾难。 Lời dạy của Thầy Lư và giải đáp thắc mắc trong thư (5) https://lujunhong2or.com/卢台长开示解答来信疑惑 （五） 2011-09-12

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.635Z
+title: "Ngày ngày độ người Bồ Tát phù hộ thân thể khỏe mạnh"
+date: 2025-12-16T01:19:28.722Z
 draft: false
 url: "/2025/12/ngay-ngay-o-nguoi-bo-tat-phu-ho-than.html"
 ---

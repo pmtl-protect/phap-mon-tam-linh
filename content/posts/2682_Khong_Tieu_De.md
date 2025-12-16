@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.422Z
+title: "Phóng Sinh Trứng Cá – Có Thể Thả Trực Tiếp Vào Nước"
+date: 2025-12-16T01:19:24.503Z
 draft: false
 url: "/2025/04/phong-sinh-trung-ca-co-tha-truc-tiep.html"
 ---
 
-Tiêu đề bài viết: Phóng Sinh Trứng Cá – Có Thể Thả Trực Tiếp Vào Nước Nội dung chi tiết: Wenda20190329 28:31 Nữ thính giả: Thưa Sư phụ, trước đây Sư phụ đã chỉ dạy rằng khi phóng sinh trứng cá, không nên xé bỏ lớp màng bảo vệ bên ngoài. Vậy, trứng cá có thể được thả trực tiếp vào nước không ạ? “Lư Đài Trưởng” trả lời: Đúng vậy. (Có rất nhiều quan điểm trên mạng, có người nói là để trứng cá vào trong túi vải không dệt, hoặc để một khe nhỏ trong túi rồi thả vào nước; có người lại nói là đặt trứng cá vào trong cỏ ven bờ sông, có người còn nói là chôn trứng trong bùn cát bên bờ sông. Vậy thả trực tiếp vào nước có đúng không, Sư phụ?) Đúng rồi. 放生鱼子时可直接放入水中 Wenda20190329 28:31 女听众：师父您之前开示过放生鱼子时，外面的保护膜不要撕开。请问师父，那鱼子是直接放入水中吗？ “卢台长”答：是的（网上有挺多说法，有的是放进无纺布袋子里，或者是给袋子留一个小口，然后再放入水中，有的说是放在河岸边的水草里，有的还说埋在河边的泥沙里。直接放在水中，是吗，师父？）是的
+Wenda20190329 28:31 Nữ thính giả: Thưa Sư phụ, trước đây Sư phụ đã chỉ dạy rằng khi phóng sinh trứng cá, không nên xé bỏ lớp màng bảo vệ bên ngoài. Vậy, trứng cá có thể được thả trực tiếp vào nước không ạ? “Lư Đài Trưởng” trả lời: Đúng vậy. (Có rất nhiều quan điểm trên mạng, có người nói là để trứng cá vào trong túi vải không dệt, hoặc để một khe nhỏ trong túi rồi thả vào nước; có người lại nói là đặt trứng cá vào trong cỏ ven bờ sông, có người còn nói là chôn trứng trong bùn cát bên bờ sông. Vậy thả trực tiếp vào nước có đúng không, Sư phụ?) Đúng rồi. 放生鱼子时可直接放入水中 Wenda20190329 28:31 女听众：师父您之前开示过放生鱼子时，外面的保护膜不要撕开。请问师父，那鱼子是直接放入水中吗？ “卢台长”答：是的（网上有挺多说法，有的是放进无纺布袋子里，或者是给袋子留一个小口，然后再放入水中，有的说是放在河岸边的水草里，有的还说埋在河边的泥沙里。直接放在水中，是吗，师父？）是的

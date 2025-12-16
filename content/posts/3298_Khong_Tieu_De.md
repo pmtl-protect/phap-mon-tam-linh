@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:07.708Z
+title: "Dùng cách quay video để ghi lại cuộc sống thì có phải cũng giống như viết nhật ký, không được sư phụ khuyên làm không ạ?"
+date: 2025-12-16T01:19:26.283Z
 draft: false
 url: "/2025/09/dung-cach-quay-video-e-ghi-lai-cuoc.html"
 ---
 
-Tiêu đề bài viết: Dùng cách quay video để ghi lại cuộc sống thì có phải cũng giống như viết nhật ký, không được sư phụ khuyên làm không ạ? Nội dung chi tiết: Hỏi 10 Hỏi: Dùng cách quay video để ghi lại cuộc sống thì có phải cũng giống như viết nhật ký, không được sư phụ khuyên làm không ạ? Đáp: Đừng làm như vậy. Việc tốt thì ghi lại không sao, nhưng việc xấu mà ghi lại thì sẽ xui xẻo. Ghi lại chuyện không tốt, tức là giống như báo cho bên dưới biết rồi. Ví dụ, vốn dĩ họ một năm hoặc một tháng mới đến kiểm tra, có lúc ý niệm tạo nghiệp của con không mạnh, có thể Hộ Pháp Thần sẽ bỏ qua cho con. Nhưng nếu con đã ghi ra giấy rồi thì bên dưới đều có hồ sơ hết. Rất nhiều người tự tử đều thích viết nhật ký: “Tôi không muốn sống nữa, tôi hận quá…” rồi cuối cùng tự tử. Người ta chỉ cần tra nhật ký là biết rõ hết. Giải đáp thư thắc mắc (172) – 20170721 问10 问：用拍摄视频的方式记录生活是否和写日记一样不被师父推荐呢？�答：不要这样做。好的事情记录没有关系，坏的东西一记录就会倒霉的。把不好的东西记录，等于告诉下面了。比如本来他们一年或一个月来巡视，有时候你造业的意念不是很强，可能护法神就放过你了，但是你记在纸上，下面就都有记录了。很多自杀的人都喜欢写日记的：我不想活了，恨死了……最后自杀了。人家一查他的日记全部知道了。 来信解答一百七十二20170721
+Hỏi 10 Hỏi: Dùng cách quay video để ghi lại cuộc sống thì có phải cũng giống như viết nhật ký, không được sư phụ khuyên làm không ạ? Đáp: Đừng làm như vậy. Việc tốt thì ghi lại không sao, nhưng việc xấu mà ghi lại thì sẽ xui xẻo. Ghi lại chuyện không tốt, tức là giống như báo cho bên dưới biết rồi. Ví dụ, vốn dĩ họ một năm hoặc một tháng mới đến kiểm tra, có lúc ý niệm tạo nghiệp của con không mạnh, có thể Hộ Pháp Thần sẽ bỏ qua cho con. Nhưng nếu con đã ghi ra giấy rồi thì bên dưới đều có hồ sơ hết. Rất nhiều người tự tử đều thích viết nhật ký: “Tôi không muốn sống nữa, tôi hận quá…” rồi cuối cùng tự tử. Người ta chỉ cần tra nhật ký là biết rõ hết. Giải đáp thư thắc mắc (172) – 20170721 问10 问：用拍摄视频的方式记录生活是否和写日记一样不被师父推荐呢？�答：不要这样做。好的事情记录没有关系，坏的东西一记录就会倒霉的。把不好的东西记录，等于告诉下面了。比如本来他们一年或一个月来巡视，有时候你造业的意念不是很强，可能护法神就放过你了，但是你记在纸上，下面就都有记录了。很多自杀的人都喜欢写日记的：我不想活了，恨死了……最后自杀了。人家一查他的日记全部知道了。 来信解答一百七十二20170721

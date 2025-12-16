@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.977Z
+title: "Công đức càng nhiều, cầu nguyện càng linh nghiệm"
+date: 2025-12-16T01:19:24.823Z
 draft: false
 url: "/2025/04/cong-uc-cang-nhieu-cau-nguyen-cang-linh.html"
 ---
 
-Tiêu đề bài viết: Công đức càng nhiều, cầu nguyện càng linh nghiệm Nội dung chi tiết: Chỉ cần có nguyện lực, hãy cố gắng thực hiện bằng được! Nguyện lực vô cùng quan trọng, nó chính là nền tảng giúp bạn viên mãn mọi nhân duyên trên đời, thực chất là năng lượng tiềm ẩn của bạn. Khi một người muốn làm mà không thành, đó là do căn cơ chưa đủ sâu. Vậy căn cơ trong câu "cầu được ước thấy" đến từ đâu? Rất đơn giản, chính là nhờ vào công đức tích lũy hằng ngày! Bạn càng dốc sức làm việc thiện, căn cơ càng vững chắc, khi đó cầu gì được nấy. Hãy nhớ rằng Công đức càng nhiều thì cầu nguyện càng linh ứng! Nếu gặp chuyện khó mà không hóa giải được, chứng tỏ công lực và công đức chưa đủ. Trích từ "Bạch Thoại Phật Pháp 2" Bài 19: Khống chế tâm niệm tụng kinh, mượn giả tu chân \*\*\*\*\*\*\*\* 【功德越多所求就越靈】： 只要有願力就一定要盡量去做，願力很重要，願力可以促使你，是成全你在人間所有因緣的一個根基，其實就是你的能量。 如果一個人想做而做不成這件事情的時候，就是他的根基不深。在人間心想事成，這個根基是怎樣來的呢？很簡單，是你平時的功德所為，你拼命地做功德，你這個根基就越扎越深，這時你求什麽就靈什麽，記住功德越多所求就越靈。 如果遇到問題化解不了，就是說明你們的功力不夠、功德不夠。 摘自白話佛法二、19《控制念經心態，借假修真》
+Chỉ cần có nguyện lực, hãy cố gắng thực hiện bằng được! Nguyện lực vô cùng quan trọng, nó chính là nền tảng giúp bạn viên mãn mọi nhân duyên trên đời, thực chất là năng lượng tiềm ẩn của bạn. Khi một người muốn làm mà không thành, đó là do căn cơ chưa đủ sâu. Vậy căn cơ trong câu "cầu được ước thấy" đến từ đâu? Rất đơn giản, chính là nhờ vào công đức tích lũy hằng ngày! Bạn càng dốc sức làm việc thiện, căn cơ càng vững chắc, khi đó cầu gì được nấy. Hãy nhớ rằng Công đức càng nhiều thì cầu nguyện càng linh ứng! Nếu gặp chuyện khó mà không hóa giải được, chứng tỏ công lực và công đức chưa đủ. Trích từ "Bạch Thoại Phật Pháp 2" Bài 19: Khống chế tâm niệm tụng kinh, mượn giả tu chân \*\*\*\*\*\*\*\* 【功德越多所求就越靈】： 只要有願力就一定要盡量去做，願力很重要，願力可以促使你，是成全你在人間所有因緣的一個根基，其實就是你的能量。 如果一個人想做而做不成這件事情的時候，就是他的根基不深。在人間心想事成，這個根基是怎樣來的呢？很簡單，是你平時的功德所為，你拼命地做功德，你這個根基就越扎越深，這時你求什麽就靈什麽，記住功德越多所求就越靈。 如果遇到問題化解不了，就是說明你們的功力不夠、功德不夠。 摘自白話佛法二、19《控制念經心態，借假修真》

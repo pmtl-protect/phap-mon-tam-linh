@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:00.369Z
+title: "Làm sao để phòng ngừa bệnh đục thủy tinh thể"
+date: 2025-12-16T01:19:22.362Z
 draft: false
 url: "/2025/02/lam-sao-e-phong-ngua-benh-uc-thuy-tinh.html"
 ---
 
-Tiêu đề bài viết: Làm sao để phòng ngừa bệnh đục thủy tinh thể Nội dung chi tiết: Nam thính giả: Thưa Đài trưởng, ngài nói con nhiều năm sau sẽ bị đục thủy tinh thể, bây giờ phải làm sao để tiêu trừ, sau này sẽ không bị đục thủy tinh thể ạ? ☀️ Đài Trưởng đáp: Mắt đừng nhìn lung tung, thường xuyên nhìn một vật gì đó không được quá một tiếng, thường xuyên nhìn về phía xa ( Dạ vâng ) ✨✨✨ Wenda20171006 01:00:20 ☀️ 如何防止白内障 🌻 男听众：台长，您讲我多年以后会有白内障，现在要怎么样消掉，以后不会有白内障？ ☀️ 台长答：眼睛不要乱看东西，经常对着一样东西不要超过一小时，经常看看远方（明白了） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .
+Nam thính giả: Thưa Đài trưởng, ngài nói con nhiều năm sau sẽ bị đục thủy tinh thể, bây giờ phải làm sao để tiêu trừ, sau này sẽ không bị đục thủy tinh thể ạ? ☀️ Đài Trưởng đáp: Mắt đừng nhìn lung tung, thường xuyên nhìn một vật gì đó không được quá một tiếng, thường xuyên nhìn về phía xa ( Dạ vâng ) ✨✨✨ Wenda20171006 01:00:20 ☀️ 如何防止白内障 🌻 男听众：台长，您讲我多年以后会有白内障，现在要怎么样消掉，以后不会有白内障？ ☀️ 台长答：眼睛不要乱看东西，经常对着一样东西不要超过一小时，经常看看远方（明白了） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

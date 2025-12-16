@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.955Z
+title: "NIM NGI NH NH KHNG TP TRUNG CN HN L KHNG NIM"
+date: 2025-12-16T01:19:28.928Z
 draft: false
 url: "/2025/12/niem-ngoi-nha-nho-khong-tap-trung-con.html"
 ---

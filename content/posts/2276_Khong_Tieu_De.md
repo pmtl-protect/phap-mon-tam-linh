@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.372Z
+title: "Cá hoặc rùa được phóng sinh mà chết rồi, thì nên chôn dưới đất hay thả xuống nước?"
+date: 2025-12-16T01:19:23.475Z
 draft: false
 url: "/2025/04/ca-hoac-rua-uoc-phong-sinh-ma-chet-roi.html"
 ---
 
-Tiêu đề bài viết: Cá hoặc rùa được phóng sinh mà chết rồi, thì nên chôn dưới đất hay thả xuống nước? Nội dung chi tiết: Wenda20180812A 27:28 Nữ thính giả: Thưa Sư phụ, có người nói rằng cá phóng sinh sau khi chết thì không nên chôn, mà nên thả xuống nước, có đúng vậy không ạ? “Lư Đài Trưởng” trả lời: Con người thuộc về đất, hấp thụ khí từ đất, nên sau khi chết thì chôn trong đất. Còn cá vốn thuộc về thủy tộc, sống trong nước, nếu không thả nó xuống nước mà lại đem chôn trong đất thì sao hợp lý được? (Thính giả: Dạ. Ôi, con không hiểu...) Không hiểu thì hỏi rồi sẽ hiểu thôi. (Thính giả: Vậy nếu rùa chết thì chôn hay sao ạ?) Rùa có thể sống cả dưới nước lẫn trên đất, nên nếu rùa chết thì tốt nhất là chôn đi. (Thính giả: Dạ, cảm ơn Sư phụ.) 放生的鱼或乌龟死了，是土埋还是放水里 Wenda20180812A 27:28 女听众：师父，有的人说放生的鱼死了，不要埋，应该放在水里，是这样吗？ “卢台长”答：人属于土地上的，接地气的，所以人要埋在土里。鱼本身属于水族，本身就是水里的，不把它放在水里，还把它埋在土里啊？（好的。哎哟，不懂）不懂，问了就懂了（乌龟死之后是埋还是？）乌龟在水里、泥土上都可以活，乌龟死的话，最好把它埋起来（好的。感恩师父）
+Wenda20180812A 27:28 Nữ thính giả: Thưa Sư phụ, có người nói rằng cá phóng sinh sau khi chết thì không nên chôn, mà nên thả xuống nước, có đúng vậy không ạ? “Lư Đài Trưởng” trả lời: Con người thuộc về đất, hấp thụ khí từ đất, nên sau khi chết thì chôn trong đất. Còn cá vốn thuộc về thủy tộc, sống trong nước, nếu không thả nó xuống nước mà lại đem chôn trong đất thì sao hợp lý được? (Thính giả: Dạ. Ôi, con không hiểu...) Không hiểu thì hỏi rồi sẽ hiểu thôi. (Thính giả: Vậy nếu rùa chết thì chôn hay sao ạ?) Rùa có thể sống cả dưới nước lẫn trên đất, nên nếu rùa chết thì tốt nhất là chôn đi. (Thính giả: Dạ, cảm ơn Sư phụ.) 放生的鱼或乌龟死了，是土埋还是放水里 Wenda20180812A 27:28 女听众：师父，有的人说放生的鱼死了，不要埋，应该放在水里，是这样吗？ “卢台长”答：人属于土地上的，接地气的，所以人要埋在土里。鱼本身属于水族，本身就是水里的，不把它放在水里，还把它埋在土里啊？（好的。哎哟，不懂）不懂，问了就懂了（乌龟死之后是埋还是？）乌龟在水里、泥土上都可以活，乌龟死的话，最好把它埋起来（好的。感恩师父）

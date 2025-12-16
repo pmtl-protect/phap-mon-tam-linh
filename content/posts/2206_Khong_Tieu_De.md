@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.094Z
+title: "PHÁP HỘI SINGAPORE – KHAI THỊ NGÀY 2018-05-19"
+date: 2025-12-16T01:19:23.321Z
 draft: false
 url: "/2025/08/phap-hoi-singapore-khai-thi-ngay-2018.html"
 ---
 
-Tiêu đề bài viết: PHÁP HỘI SINGAPORE – KHAI THỊ NGÀY 2018-05-19 Nội dung chi tiết: Người học Phật chúng ta, ở cõi nhân gian, vì học Phật nên đôi khi bị người khác không thấu hiểu, phải chịu những lời lẽ xúc phạm. Tinh tấn nhẫn nhục trong Phật pháp chính là để chúng ta hiểu rằng, chỉ cần kiên trì giữ cho hành vi của mình chính trực, vì chúng sinh, thì không cần chấp vào sự không thấu hiểu tạm thời của người khác, mà phải đặt việc hoàn thành chánh tín, chánh nguyện của bản thân lên hàng đầu. 新加坡法会开示20180519 我们学佛人在人间，为了学佛，有时候被别人不理解，会受到一些语言的侮辱。佛法的忍辱精进就是让我们知道，只要坚持自己的行为是正直的，是为众生的，就不必去计较别人对自己暂时的不理解，要把完成自己的正信正愿放在首位。
+Người học Phật chúng ta, ở cõi nhân gian, vì học Phật nên đôi khi bị người khác không thấu hiểu, phải chịu những lời lẽ xúc phạm. Tinh tấn nhẫn nhục trong Phật pháp chính là để chúng ta hiểu rằng, chỉ cần kiên trì giữ cho hành vi của mình chính trực, vì chúng sinh, thì không cần chấp vào sự không thấu hiểu tạm thời của người khác, mà phải đặt việc hoàn thành chánh tín, chánh nguyện của bản thân lên hàng đầu. 新加坡法会开示20180519 我们学佛人在人间，为了学佛，有时候被别人不理解，会受到一些语言的侮辱。佛法的忍辱精进就是让我们知道，只要坚持自己的行为是正直的，是为众生的，就不必去计较别人对自己暂时的不理解，要把完成自己的正信正愿放在首位。

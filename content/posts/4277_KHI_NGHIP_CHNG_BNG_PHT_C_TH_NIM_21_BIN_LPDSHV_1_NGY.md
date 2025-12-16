@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.428Z
+title: "KHI NGHIP CHNG BNG PHT C TH NIM 21 BIN LPDSHV 1 NGY"
+date: 2025-12-16T01:19:28.572Z
 draft: false
 url: "/2025/12/khi-co-vong-linh-nghiep-chuong-bung.html"
 ---

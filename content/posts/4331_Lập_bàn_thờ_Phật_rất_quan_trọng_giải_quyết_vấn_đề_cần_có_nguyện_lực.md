@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.666Z
+title: "Lập bàn thờ Phật rất quan trọng giải quyết vấn đề cần có nguyện lực"
+date: 2025-12-16T01:19:28.743Z
 draft: false
 url: "/2025/12/lap-ban-tho-phat-rat-quan-trong-giai_0301428476.html"
 ---

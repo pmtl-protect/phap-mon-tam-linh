@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.617Z
+title: "Cửa Kính Sát ất Nhất ịnh Phải Có Rèm Cửa"
+date: 2025-12-16T01:19:28.709Z
 draft: false
 url: "/2025/12/cua-kinh-sat-at-nhat-inh-phai-co-rem-cua.html"
 ---

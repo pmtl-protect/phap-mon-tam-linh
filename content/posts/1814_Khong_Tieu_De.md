@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:00.529Z
+title: "Thai phụ có được niệm ngôi nhà nhỏ siêu độ cho người mất không"
+date: 2025-12-16T01:19:22.443Z
 draft: false
 url: "/2024/11/thai-phu-co-uoc-niem-ngoi-nha-nho-sieu_20.html"
 ---
 
-Tiêu đề bài viết: Thai phụ có được niệm ngôi nhà nhỏ siêu độ cho người mất không Nội dung chi tiết: Thai phụ có được niệm ngôi nhà nhỏ siêu độ cho người mất không Shuohua20130503 03:20 Nữ thính giả: Con là người mới học, có rất nhiều chỗ vẫn chưa hiểu. Ví dụ ở trên mạng con thấy đồng tu nói rằng thau phụ tốt nhất không nên niệm ngôi nhà nhỏ cho người mất. Dạo gần đây con có mấy lần mơ thấy bà ngoại đã qua đời, bà mặc đồ rất sạch sẽ, dáng vẻ trông gọn gàng. Cần niệm ngôi nhà nhỏ cho bà không? Đài trưởng đáp Buổi sáng niệm, không niệm vào buổi tối. ( Dạ buổi sáng có thể niệm sao?) Có thể, không sao cả ( Dạ được. Con có thể niệm tích lũy cho bản thân được không? Bởi vì con vẫn chưa được xem...) Buổi sáng, không niệm vào buổi tối. Khi niệm ngôi nhà nhỏ cho bà cũng không nên quá cố chấp, không được nhớ đến bà, cứ niệm thôi. Nếu quá cố chấp thầy cũng không chắc sẽ có chuyện gì xảy ra. Vì giờ con đã có baby rồi, nếu bà ngoại đầu thai thành con của con thì phiền phức rồi ( Đúng. Con cũng khá lo lắng)
+Thai phụ có được niệm ngôi nhà nhỏ siêu độ cho người mất không Shuohua20130503 03:20 Nữ thính giả: Con là người mới học, có rất nhiều chỗ vẫn chưa hiểu. Ví dụ ở trên mạng con thấy đồng tu nói rằng thau phụ tốt nhất không nên niệm ngôi nhà nhỏ cho người mất. Dạo gần đây con có mấy lần mơ thấy bà ngoại đã qua đời, bà mặc đồ rất sạch sẽ, dáng vẻ trông gọn gàng. Cần niệm ngôi nhà nhỏ cho bà không? Đài trưởng đáp Buổi sáng niệm, không niệm vào buổi tối. ( Dạ buổi sáng có thể niệm sao?) Có thể, không sao cả ( Dạ được. Con có thể niệm tích lũy cho bản thân được không? Bởi vì con vẫn chưa được xem...) Buổi sáng, không niệm vào buổi tối. Khi niệm ngôi nhà nhỏ cho bà cũng không nên quá cố chấp, không được nhớ đến bà, cứ niệm thôi. Nếu quá cố chấp thầy cũng không chắc sẽ có chuyện gì xảy ra. Vì giờ con đã có baby rồi, nếu bà ngoại đầu thai thành con của con thì phiền phức rồi ( Đúng. Con cũng khá lo lắng)

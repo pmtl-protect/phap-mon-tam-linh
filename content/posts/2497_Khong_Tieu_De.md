@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:03.394Z
+title: "Một người niệm kinh giúp cả nhà tránh khỏi tai họa"
+date: 2025-12-16T01:19:24.056Z
 draft: false
 url: "/2024/10/mot-nguoi-niem-kinh-giup-ca-nha-tranh.html"
 ---
 
-Tiêu đề bài viết: Một người niệm kinh giúp cả nhà tránh khỏi tai họa Nội dung chi tiết: Zongshu20200609 26:14 Thính giả nam: Chất lượng niệm kinh của con có tốt không ạ? Trong nhà chỉ có mình con niệm kinh, học Pháp Môn Tâm Linh. Đài trưởng: Ồ, nhờ có con, nếu con không niệm kinh thì năm ngoái gia đình con đã xảy ra chuyện lớn, năm nay cũng vậy. Đã có chuyện xảy ra vào tháng 3 năm nay. Vốn dĩ gia đình con sẽ gặp phiền toái. Sẽ bị lừa tiền hay gì đó. Dù sao thì con cũng sẽ bị mất tiền hay gì đó. Chính là bởi vì con niệm kinh (Ồ) niệm kinh rất tốt, chính mình ngẫm lại sẽ biết. Thính giả nam: Dạ, cảm tạ Sư phụ.
+Zongshu20200609 26:14 Thính giả nam: Chất lượng niệm kinh của con có tốt không ạ? Trong nhà chỉ có mình con niệm kinh, học Pháp Môn Tâm Linh. Đài trưởng: Ồ, nhờ có con, nếu con không niệm kinh thì năm ngoái gia đình con đã xảy ra chuyện lớn, năm nay cũng vậy. Đã có chuyện xảy ra vào tháng 3 năm nay. Vốn dĩ gia đình con sẽ gặp phiền toái. Sẽ bị lừa tiền hay gì đó. Dù sao thì con cũng sẽ bị mất tiền hay gì đó. Chính là bởi vì con niệm kinh (Ồ) niệm kinh rất tốt, chính mình ngẫm lại sẽ biết. Thính giả nam: Dạ, cảm tạ Sư phụ.

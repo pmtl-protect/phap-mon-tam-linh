@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.844Z
+title: "Niệm Ngôi Nhà Nhỏ cũng có thể cầu nguyện cho mình được không"
+date: 2025-12-16T01:19:28.848Z
 draft: false
 url: "/2025/12/niem-ngoi-nha-nho-cung-co-cau-nguyen.html"
 ---

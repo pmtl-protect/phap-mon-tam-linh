@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.744Z
+title: "Sự khác biệt giữa thỉnh cầu chung chung và thỉnh cầu có mục tiêu"
+date: 2025-12-16T01:19:28.788Z
 draft: false
 url: "/2025/12/su-khac-biet-giua-thinh-cau-chung-chung.html"
 ---

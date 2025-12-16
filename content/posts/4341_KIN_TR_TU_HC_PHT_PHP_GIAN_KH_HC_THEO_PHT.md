@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.729Z
+title: "KIN TR TU HC PHT PHP GIAN KH HC THEO PHT"
+date: 2025-12-16T01:19:28.778Z
 draft: false
 url: "/2025/12/kien-tri-tu-hoc-phat-phap-gian-kho-hoc.html"
 ---

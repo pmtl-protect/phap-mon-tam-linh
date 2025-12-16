@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.702Z
+title: "V SAO TRONG KHI TC GIN LI CNG LC CNG TC GIN HN"
+date: 2025-12-16T01:19:28.762Z
 draft: false
 url: "/2025/12/vi-sao-trong-khi-tuc-gian-lai-cang-luc_0225991216.html"
 ---

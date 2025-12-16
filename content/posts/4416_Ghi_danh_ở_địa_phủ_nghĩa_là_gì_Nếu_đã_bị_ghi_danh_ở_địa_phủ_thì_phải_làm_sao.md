@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.126Z
+title: "Ghi danh ở địa phủ nghĩa là gì Nếu đã bị ghi danh ở địa phủ thì phải làm sao"
+date: 2025-12-16T01:19:29.063Z
 draft: false
 url: "/2025/12/ghi-danh-o-ia-phu-nghia-la-gi-neu-bi.html"
 ---

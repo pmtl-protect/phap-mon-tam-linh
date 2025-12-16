@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.490Z
+title: "Khi cảm thấy sợ hãi có thể tăng cường niệm Chú ại Bi"
+date: 2025-12-16T01:19:28.611Z
 draft: false
 url: "/2025/12/khi-cam-thay-so-hai-co-tang-cuong-niem.html"
 ---

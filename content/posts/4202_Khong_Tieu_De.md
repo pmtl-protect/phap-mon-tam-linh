@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.108Z
+title: "Về việc niệm tụng kinh văn hỗ trợ cầu sự như ý trong Tết Trùng Dương"
+date: 2025-12-16T01:19:28.411Z
 draft: false
 url: "/2024/10/ve-viec-niem-tung-kinh-van-ho-tro-cau.html"
 ---
 
-Tiêu đề bài viết: Về việc niệm tụng kinh văn hỗ trợ cầu sự như ý trong Tết Trùng Dương Nội dung chi tiết: Wenda20181104A 40:13 Thính giả nữ: Trước đó Sư phụ đã khai thị, Tết Trùng Dương có thể niệm 49 lần Như Ý Bảo Luân Vương Đà La Ni và 3 lần Chú Đại Bi thỉnh cầu vạn sự như ý. Xin hỏi Sư phụ, niệm tụng hai loại kinh văn này có giống như niệm Chuẩn Đề Thần Chú hay không, cần phải tiêu hao công đức mới có thể được thuận lợi như ý ạ? Đài trưởng: Không nhất thiết, cho dù con không có công đức, con niệm như này cũng sẽ tăng trưởng công đức, chính là vấn đề số lượng, số lượng nhiều mới có thể tăng trưởng công đức. Thính giả nữ: Con hiểu rồi ạ.
+Wenda20181104A 40:13 Thính giả nữ: Trước đó Sư phụ đã khai thị, Tết Trùng Dương có thể niệm 49 lần Như Ý Bảo Luân Vương Đà La Ni và 3 lần Chú Đại Bi thỉnh cầu vạn sự như ý. Xin hỏi Sư phụ, niệm tụng hai loại kinh văn này có giống như niệm Chuẩn Đề Thần Chú hay không, cần phải tiêu hao công đức mới có thể được thuận lợi như ý ạ? Đài trưởng: Không nhất thiết, cho dù con không có công đức, con niệm như này cũng sẽ tăng trưởng công đức, chính là vấn đề số lượng, số lượng nhiều mới có thể tăng trưởng công đức. Thính giả nữ: Con hiểu rồi ạ.

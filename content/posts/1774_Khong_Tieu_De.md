@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:00.354Z
+title: "Về vấn đề hợp tuổi"
+date: 2025-12-16T01:19:22.356Z
 draft: false
 url: "/2024/10/ve-van-e-hop-tuoi.html"
 ---
 
-Tiêu đề bài viết: Về vấn đề hợp tuổi Nội dung chi tiết: shuohua20141205 00:59 Thính giả nam: Con nhớ Sư phụ từng nói tuổi Dậu với tuổi Tuất là không hợp, người cùng một tuổi cũng không hợp. Vậy đối với các con giáp trong 12 con giáp, ví dụ như người tuổi Tý thì hợp với tuổi nào hơn ạ? Sư phụ đáp: Haha, người tuổi Tý hợp với tuổi Hợi đấy, cũng khá hợp với tuổi Mùi. Trong đó đều có sự lý giải riêng. shuohua20141205 00:59 关于属相相配的问题 男听众：记得师父说过属鸡的和属狗的，鸡鸡狗狗不行，同一个属相也不行。那针对十二生肖里的属相，比如属老鼠的找什么属相比较好呢？ 台长答：呵呵，属老鼠的跟猪不是挺好的嘛，跟羊也蛮好的，这里边都有讲究的。
+shuohua20141205 00:59 Thính giả nam: Con nhớ Sư phụ từng nói tuổi Dậu với tuổi Tuất là không hợp, người cùng một tuổi cũng không hợp. Vậy đối với các con giáp trong 12 con giáp, ví dụ như người tuổi Tý thì hợp với tuổi nào hơn ạ? Sư phụ đáp: Haha, người tuổi Tý hợp với tuổi Hợi đấy, cũng khá hợp với tuổi Mùi. Trong đó đều có sự lý giải riêng. shuohua20141205 00:59 关于属相相配的问题 男听众：记得师父说过属鸡的和属狗的，鸡鸡狗狗不行，同一个属相也不行。那针对十二生肖里的属相，比如属老鼠的找什么属相比较好呢？ 台长答：呵呵，属老鼠的跟猪不是挺好的嘛，跟羊也蛮好的，这里边都有讲究的。

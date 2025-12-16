@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.793Z
+title: "tranh thủ thời gian niệm kinh không muốn nói chuyện nhiều với người khác có phải"
+date: 2025-12-16T01:19:28.818Z
 draft: false
 url: "/2025/12/voi-vang-tranh-thu-thoi-gian-niem-kinh.html"
 ---

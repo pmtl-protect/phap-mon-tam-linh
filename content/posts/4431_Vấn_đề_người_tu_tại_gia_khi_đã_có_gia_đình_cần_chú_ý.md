@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.190Z
+title: "Vấn đề người tu tại gia khi đã có gia đình cần chú ý"
+date: 2025-12-16T01:19:29.109Z
 draft: false
 url: "/2025/12/van-e-nguoi-tu-tai-gia-khi-co-gia-inh.html"
 ---

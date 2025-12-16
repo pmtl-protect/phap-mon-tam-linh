@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:04.240Z
+title: "Cuộc sống là một quá trình liên tục gặp phải và giải quyết vấn đề, chúng ta chỉ là người chuyển tiếp sang thế giới loài người, chỉ cần chúng ta còn ở "
+date: 2025-12-16T01:19:24.386Z
 draft: false
 url: "/2025/03/cuoc-song-la-mot-qua-trinh-lien-tuc-gap.html"
 ---
 
-Tiêu đề bài viết: Cuộc sống là một quá trình liên tục gặp phải và giải quyết vấn đề, chúng ta chỉ là người chuyển tiếp sang thế giới loài người, chỉ cần chúng ta còn ở trong thế giới loài người, những rắc rối và rắc rối của bạn và gia đình sẽ không bao giờ dừng lại Nội dung chi tiết: Cuộc sống là một quá trình liên tục gặp phải và giải quyết vấn đề, chúng ta chỉ là người chuyển tiếp sang thế giới loài người, chỉ cần chúng ta còn ở trong thế giới loài người, những rắc rối và rắc rối của bạn và gia đình sẽ không bao giờ dừng lại. Vinh quang phú của thế giới là trống rỗng và không thể lấy đi, tình yêu của con người cũng cay đắng, và nhân gian hồng trần tình ái cuối cùng một chữ đắng. Vĩnh hoa phú quý không lấy đi được, như vớt trăng dưới nước, chẳng được gì, vất vả cả đời cũng không mang theo được. Chỉ khi hiểu được những nguyên tắc này, bạn mới có thể thực sự được giải thoát, thực sự buông bỏ bản thân, thực sự tìm kiếm Phật quả, và thực sự trở thành một vị Phật Bồ tát Pháp hội Sydney 150208 Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con
+Cuộc sống là một quá trình liên tục gặp phải và giải quyết vấn đề, chúng ta chỉ là người chuyển tiếp sang thế giới loài người, chỉ cần chúng ta còn ở trong thế giới loài người, những rắc rối và rắc rối của bạn và gia đình sẽ không bao giờ dừng lại. Vinh quang phú của thế giới là trống rỗng và không thể lấy đi, tình yêu của con người cũng cay đắng, và nhân gian hồng trần tình ái cuối cùng một chữ đắng. Vĩnh hoa phú quý không lấy đi được, như vớt trăng dưới nước, chẳng được gì, vất vả cả đời cũng không mang theo được. Chỉ khi hiểu được những nguyên tắc này, bạn mới có thể thực sự được giải thoát, thực sự buông bỏ bản thân, thực sự tìm kiếm Phật quả, và thực sự trở thành một vị Phật Bồ tát Pháp hội Sydney 150208 Trong quá trình dịch có điều gì sai xót xin chư Phật chư Bồ tát chư Hộ pháp từ Bi tha thứ cho con

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.120Z
+title: "ừng tự dựng lên cho mình một cuộc đời đau khổ"
+date: 2025-12-16T01:19:29.059Z
 draft: false
 url: "/2025/12/ung-tu-dung-len-cho-minh-mot-cuoc-oi-au.html"
 ---

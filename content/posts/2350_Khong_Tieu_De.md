@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:02.692Z
+title: "Bùng phát dịch cúm liên quan đến cộng nghiệp ăn hải sản sống, sát sinh, dâm loạn"
+date: 2025-12-16T01:19:23.666Z
 draft: false
 url: "/2025/04/bung-phat-dich-cum-lien-quan-en-cong.html"
 ---
 
-Tiêu đề bài viết: Bùng phát dịch cúm liên quan đến cộng nghiệp ăn hải sản sống, sát sinh, dâm loạn Nội dung chi tiết: Nam thính giả: Thưa Sư phụ, hiện nay một số khu vực đang lưu hành loại virus cúm, thậm chí có người đã qua đời. Vậy nhân quả đằng sau loại virus cúm này là gì ạ? Đài Trưởng: Cộng nghiệp ăn hải sản sống, sát sinh, dâm loạn... đều có thể dẫn đến điều này. Các bậc hiền triết cổ đại Trung Quốc của chúng ta rất thâm thúy khi nói: "Vạn ác dâm vi thủ" - Trăm ngàn điều ác, dâm dục đứng đầu, "Bách thiện hiếu vi tiên" - Trăm điều thiện, hiếu thảo xếp trước. Hiếu thảo không chỉ là hiếu với cha mẹ, mà còn hiếu với sư trưởng, thầy giáo, Sư phụ, hiếu với người lớn tuổi, chẳng lẽ không gọi là hiếu thảo sao? (Dạ dạ, đúng vậy, con hiểu rồi ạ) Wenda20170806B 24:58 Wenda20170806B 24:58 爆发流感与共业吃活的海鲜、杀生、淫乱都有关 男听众：师父，现在有的地区流行那种流感病毒，也有人走了，其实这种流感病毒是什么样的因果呢？ 台长答：共业吃活的海鲜、杀生、淫乱……都会有的。我们中国古代先贤他们都很厉害的，“万恶淫为首”啊，“万恶淫为首，百善孝为先”。孝顺，不单单是孝顺父母，孝顺师长、老师、师父，孝顺年纪大的人，难道不叫孝顺吗？（对对对，是的，明白了）
+Nam thính giả: Thưa Sư phụ, hiện nay một số khu vực đang lưu hành loại virus cúm, thậm chí có người đã qua đời. Vậy nhân quả đằng sau loại virus cúm này là gì ạ? Đài Trưởng: Cộng nghiệp ăn hải sản sống, sát sinh, dâm loạn... đều có thể dẫn đến điều này. Các bậc hiền triết cổ đại Trung Quốc của chúng ta rất thâm thúy khi nói: "Vạn ác dâm vi thủ" - Trăm ngàn điều ác, dâm dục đứng đầu, "Bách thiện hiếu vi tiên" - Trăm điều thiện, hiếu thảo xếp trước. Hiếu thảo không chỉ là hiếu với cha mẹ, mà còn hiếu với sư trưởng, thầy giáo, Sư phụ, hiếu với người lớn tuổi, chẳng lẽ không gọi là hiếu thảo sao? (Dạ dạ, đúng vậy, con hiểu rồi ạ) Wenda20170806B 24:58 Wenda20170806B 24:58 爆发流感与共业吃活的海鲜、杀生、淫乱都有关 男听众：师父，现在有的地区流行那种流感病毒，也有人走了，其实这种流感病毒是什么样的因果呢？ 台长答：共业吃活的海鲜、杀生、淫乱……都会有的。我们中国古代先贤他们都很厉害的，“万恶淫为首”啊，“万恶淫为首，百善孝为先”。孝顺，不单单是孝顺父母，孝顺师长、老师、师父，孝顺年纪大的人，难道不叫孝顺吗？（对对对，是的，明白了）

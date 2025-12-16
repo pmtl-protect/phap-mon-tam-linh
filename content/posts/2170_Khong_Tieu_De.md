@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:01.921Z
+title: "Trẻ con không chịu ăn cơm phải làm sao ạ?"
+date: 2025-12-16T01:19:23.237Z
 draft: false
 url: "/2025/04/blog-post.html"
 ---
 
-Tiêu đề bài viết: Trẻ con không chịu ăn cơm phải làm sao ạ? Nội dung chi tiết: Wenda20110909  15:24 Nữ thính giả: Trẻ con không chịu ăn cơm phải làm sao ạ? Nó không thích ăn cơm ạ. Đài trưởng đáp: Đầu tiên phải cầu xin vong linh trên người đứa bé, trên thực tế trẻ con không chịu ăn cơm là do có áp lực và ngăn cản của một loại vong linh, ví dụ như nói con không muốn ăn cơm, nhìn thấy cơm liền cảm thấy phiền toái, cũng có những lúc ăn cơm ảnh hưởng đến nó ví dụ như nó đang chơi game, giống như những vấn đề này chủ yếu là vấn đề của vong linh, giúp nó đọc kinh, nó sẽ dần dần tỉnh táo, Tâm Kinh là chìa khoá khai sáng mọi thứ. Nữ thính giả: Là niệm Tâm Kinh ạ, hiện nay con chưa biết hoàn cảnh gì thì cần niệm. Đài trưởng đáp: Đúng, còn phải niệm Chuẩn Đề Thần Chú, cũng sẽ tốt lên. wenda20110909  15:24 小孩子不爱吃饭如何念经 女听众：小孩子吃饭不好应该怎么办？他是不爱吃饭。 台长答：首先要从他的心灵救起，小孩子不愿意吃饭实际上是一种心理的压力和阻碍，比方说我就不愿意吃饭，看见这些饭就觉得麻烦。还有的时候，吃饭影响他比方说小朋友在玩游戏机啊，像这种主要还是心灵的问题，帮他多念心经，他会慢慢开窍的，心经就是开百窍的钥匙（就是念心经，目前不知道是什么情况就要念）对，还有准提神咒，也会好的。 🙏 Trong quá trình dịch nếu có gì chưa đúng lý đúng pháp, thỉnh chư Phật, chư Bồ tát, chư Hộ pháp từ bi tha thứ cho con. 🙏
+Wenda20110909  15:24 Nữ thính giả: Trẻ con không chịu ăn cơm phải làm sao ạ? Nó không thích ăn cơm ạ. Đài trưởng đáp: Đầu tiên phải cầu xin vong linh trên người đứa bé, trên thực tế trẻ con không chịu ăn cơm là do có áp lực và ngăn cản của một loại vong linh, ví dụ như nói con không muốn ăn cơm, nhìn thấy cơm liền cảm thấy phiền toái, cũng có những lúc ăn cơm ảnh hưởng đến nó ví dụ như nó đang chơi game, giống như những vấn đề này chủ yếu là vấn đề của vong linh, giúp nó đọc kinh, nó sẽ dần dần tỉnh táo, Tâm Kinh là chìa khoá khai sáng mọi thứ. Nữ thính giả: Là niệm Tâm Kinh ạ, hiện nay con chưa biết hoàn cảnh gì thì cần niệm. Đài trưởng đáp: Đúng, còn phải niệm Chuẩn Đề Thần Chú, cũng sẽ tốt lên. wenda20110909  15:24 小孩子不爱吃饭如何念经 女听众：小孩子吃饭不好应该怎么办？他是不爱吃饭。 台长答：首先要从他的心灵救起，小孩子不愿意吃饭实际上是一种心理的压力和阻碍，比方说我就不愿意吃饭，看见这些饭就觉得麻烦。还有的时候，吃饭影响他比方说小朋友在玩游戏机啊，像这种主要还是心灵的问题，帮他多念心经，他会慢慢开窍的，心经就是开百窍的钥匙（就是念心经，目前不知道是什么情况就要念）对，还有准提神咒，也会好的。 🙏 Trong quá trình dịch nếu có gì chưa đúng lý đúng pháp, thỉnh chư Phật, chư Bồ tát, chư Hộ pháp từ bi tha thứ cho con. 🙏

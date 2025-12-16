@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:07.892Z
+title: "Kiết Tường Ngọa (tư thế nằm ngủ kiết tường) công đức rất lớn"
+date: 2025-12-16T01:19:26.359Z
 draft: false
 url: "/2024/11/kiet-tuong-ngoa-tu-nam-ngu-kiet-tuong.html"
 ---
 
-Tiêu đề bài viết: Kiết Tường Ngọa (tư thế nằm ngủ kiết tường) công đức rất lớn, Nội dung chi tiết: Lúc lâm chung sẽ không rơi vào cõi ác đạo ! (Đài trưởng Lư Wenda20200405 00:50) 🔸Kiết Tường Ngọa (tư thế nằm ngủ kiết tường) có thể loại bỏ được rất nhiều tà niệm (ý nghĩ tà dâm) của quý vị . Có thể loại bỏ được sự khởi phát của rất nhiều loại tà niệm (những ý nghĩ tà dâm) khi ở trên giường , Tư thế nằm ngủ như thế này cũng rất tốt đối với tim mạch . (Đài trưởng Lư 20191019 Kuala Lumpur ) 吉祥臥功德非常大， 臨終不會墮惡道！ ——盧台長Wenda20200405 00:50 吉祥臥可以消掉你很多的淫念， 可以消掉很多在床上 會產生的各種不好的淫念， 對心臟也有好處。 ——盧台長20191019 吉隆坡
+Lúc lâm chung sẽ không rơi vào cõi ác đạo ! (Đài trưởng Lư Wenda20200405 00:50) 🔸Kiết Tường Ngọa (tư thế nằm ngủ kiết tường) có thể loại bỏ được rất nhiều tà niệm (ý nghĩ tà dâm) của quý vị . Có thể loại bỏ được sự khởi phát của rất nhiều loại tà niệm (những ý nghĩ tà dâm) khi ở trên giường , Tư thế nằm ngủ như thế này cũng rất tốt đối với tim mạch . (Đài trưởng Lư 20191019 Kuala Lumpur ) 吉祥臥功德非常大， 臨終不會墮惡道！ ——盧台長Wenda20200405 00:50 吉祥臥可以消掉你很多的淫念， 可以消掉很多在床上 會產生的各種不好的淫念， 對心臟也有好處。 ——盧台長20191019 吉隆坡

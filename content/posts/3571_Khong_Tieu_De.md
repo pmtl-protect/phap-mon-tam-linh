@@ -1,8 +1,8 @@
 ---
 title: "Hy vọng các con nỗ lực thật tốt. Nhất định phải chiến thắng chính mình"
-date: 2025-12-16T01:11:09.216Z
+date: 2025-12-16T01:19:26.999Z
 draft: false
 url: "/2025/11/hy-vong-cac-con-no-luc-that-tot-nhat.html"
 ---
 
-Tiêu đề bài viết: Hy vọng các con nỗ lực thật tốt. Nhất định phải chiến thắng chính mình. Nội dung chi tiết: Phải chiến thắng bệnh tật trên thân. Chiến thắng những tật xấu trên người của bản thân. Phải kiên cường. Có lúc , không nhất định phải để sư phụ nói với các con quá nhiều. Khi ở bên cạnh thầy. Các con hãy xem Bạch thoại Phật pháp của sư phụ nhiều hơn. Các con đọc kinh nhiều hơn, niệm kinh nhiều hơn. Ở cùng mọi người để giúp đỡ lẫn nhau. Các con nhất định sẽ thoát khỏi lục đạo. Sư phụ tin tưởng các con. Ngày mai nhất định càng tốt hơn. Tin rằng vài chục năm sau, chúng ta—nhiều người thiện lương như chúng ta Nhất định có thể gặp lại Quan Thế Âm Bồ Tát ở thiên thượng. --- Lời Phật – Lời dạy mỗi ngày của Sư phụ｜Ngày 16 tháng 7 năm 2021 --- 希望你们好好努力，一定要战胜自己，要战胜身上的疾病，战胜自己身上的毛病，要坚强。有的时候，不一定要师父跟你们讲了太多，在我的边上。你们多看看师父的白话佛法，你们多看看经文，多念念经，跟大家在一起相互帮助，你们一定会超出六道的。师父相信你们，明天一定更好。相信几十年之后，我们这么多善良的人，一定能够在天上和观世音菩萨再见。 --- 师父每日佛言佛语｜2021年7月16日 ---
+Phải chiến thắng bệnh tật trên thân. Chiến thắng những tật xấu trên người của bản thân. Phải kiên cường. Có lúc , không nhất định phải để sư phụ nói với các con quá nhiều. Khi ở bên cạnh thầy. Các con hãy xem Bạch thoại Phật pháp của sư phụ nhiều hơn. Các con đọc kinh nhiều hơn, niệm kinh nhiều hơn. Ở cùng mọi người để giúp đỡ lẫn nhau. Các con nhất định sẽ thoát khỏi lục đạo. Sư phụ tin tưởng các con. Ngày mai nhất định càng tốt hơn. Tin rằng vài chục năm sau, chúng ta—nhiều người thiện lương như chúng ta Nhất định có thể gặp lại Quan Thế Âm Bồ Tát ở thiên thượng. --- Lời Phật – Lời dạy mỗi ngày của Sư phụ｜Ngày 16 tháng 7 năm 2021 --- 希望你们好好努力，一定要战胜自己，要战胜身上的疾病，战胜自己身上的毛病，要坚强。有的时候，不一定要师父跟你们讲了太多，在我的边上。你们多看看师父的白话佛法，你们多看看经文，多念念经，跟大家在一起相互帮助，你们一定会超出六道的。师父相信你们，明天一定更好。相信几十年之后，我们这么多善良的人，一定能够在天上和观世音菩萨再见。 --- 师父每日佛言佛语｜2021年7月16日 ---

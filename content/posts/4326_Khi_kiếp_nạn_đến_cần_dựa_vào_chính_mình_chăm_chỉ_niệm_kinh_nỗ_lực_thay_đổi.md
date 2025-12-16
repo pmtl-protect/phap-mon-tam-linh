@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.642Z
+title: "Khi kiếp nạn đến cần dựa vào chính mình chăm chỉ niệm kinh nỗ lực thay đổi"
+date: 2025-12-16T01:19:28.727Z
 draft: false
 url: "/2025/12/khi-kiep-nan-en-can-dua-vao-chinh-minh.html"
 ---

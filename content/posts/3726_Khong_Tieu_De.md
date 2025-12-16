@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:09.828Z
+title: "Em bé một tuổi ném tượng Bồ Tát vào bô, phải sám hối thế nào?"
+date: 2025-12-16T01:19:27.347Z
 draft: false
 url: "/2025/02/em-be-mot-tuoi-nem-tuong-bo-tat-vao-bo.html"
 ---
 
-Tiêu đề bài viết: Em bé một tuổi ném tượng Bồ Tát vào bô, phải sám hối thế nào? Nội dung chi tiết: Wenda20180119 01:08:34 Nữ thính giả: Có một em bé một tuổi vô tình ném tượng Phật Di Lặc vào bô của mình. Vậy phải giúp bé niệm kinh Lễ Phật Đại Sám Hối Văn như thế nào? “Lư Đài Trưởng” đáp: Niệm 3 biến. Đứa trẻ này sau này lớn lên sẽ phải chịu quả báo (Vậy nếu đã niệm 3 biến rồi thì vẫn bị báo ứng sao?) Đương nhiên rồi. Không niệm thì bị báo ngay lập tức, còn nếu niệm 3 biến thì quả báo sẽ đến sau này (Ồ, vậy là sau khi bé lớn lên…) Đúng vậy, sau này tự tu hành mới có thể hóa giải, người khác không thể thay thế được. Chắc chắn sau này nó sẽ gặp vận hạn lớn. \*\*\* 一岁小孩子把菩萨像扔到尿盆里，该怎样忏悔 Wenda20180119 01:08:34 女听众：有一个一岁的小孩子把弥勒佛的那个……不小心扔到了他的尿盆里，该怎么帮他念礼佛大忏悔文？ “卢台长”答：3遍，这个孩子以后大起来会受报的（那3遍念了之后还会受报吗？）那当然。不念3遍是马上受报，念了3遍是以后受报（哦，那就是让他长大了……）对啊，自己修，只有自己修掉，别人替不了他的，他一定会倒大霉的。
+Wenda20180119 01:08:34 Nữ thính giả: Có một em bé một tuổi vô tình ném tượng Phật Di Lặc vào bô của mình. Vậy phải giúp bé niệm kinh Lễ Phật Đại Sám Hối Văn như thế nào? “Lư Đài Trưởng” đáp: Niệm 3 biến. Đứa trẻ này sau này lớn lên sẽ phải chịu quả báo (Vậy nếu đã niệm 3 biến rồi thì vẫn bị báo ứng sao?) Đương nhiên rồi. Không niệm thì bị báo ngay lập tức, còn nếu niệm 3 biến thì quả báo sẽ đến sau này (Ồ, vậy là sau khi bé lớn lên…) Đúng vậy, sau này tự tu hành mới có thể hóa giải, người khác không thể thay thế được. Chắc chắn sau này nó sẽ gặp vận hạn lớn. \*\*\* 一岁小孩子把菩萨像扔到尿盆里，该怎样忏悔 Wenda20180119 01:08:34 女听众：有一个一岁的小孩子把弥勒佛的那个……不小心扔到了他的尿盆里，该怎么帮他念礼佛大忏悔文？ “卢台长”答：3遍，这个孩子以后大起来会受报的（那3遍念了之后还会受报吗？）那当然。不念3遍是马上受报，念了3遍是以后受报（哦，那就是让他长大了……）对啊，自己修，只有自己修掉，别人替不了他的，他一定会倒大霉的。

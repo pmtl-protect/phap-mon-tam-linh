@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.529Z
+title: "Mơ thấy ài trưởng"
+date: 2025-12-16T01:19:28.644Z
 draft: false
 url: "/2025/12/mo-thay-ai-truong.html"
 ---

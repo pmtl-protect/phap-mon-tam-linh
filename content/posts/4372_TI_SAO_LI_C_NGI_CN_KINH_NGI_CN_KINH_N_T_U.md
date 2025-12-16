@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.882Z
+title: "TI SAO LI C NGI CN KINH NGI CN KINH N T U"
+date: 2025-12-16T01:19:28.875Z
 draft: false
 url: "/2025/12/tai-sao-lai-co-nguoi-can-kinh-nguoi-can.html"
 ---

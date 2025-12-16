@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.863Z
+title: "VONG LINH KHNG CN NGI NH NH CH CN LY MNG"
+date: 2025-12-16T01:19:28.862Z
 draft: false
 url: "/2025/12/vong-linh-khong-can-ngoi-nha-nho-chi.html"
 ---

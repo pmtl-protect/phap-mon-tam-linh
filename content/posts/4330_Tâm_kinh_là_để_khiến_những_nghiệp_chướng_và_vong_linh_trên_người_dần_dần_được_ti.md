@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.660Z
+title: "Tâm kinh là để khiến những nghiệp chướng và vong linh trên người dần dần được ti"
+date: 2025-12-16T01:19:28.740Z
 draft: false
 url: "/2025/12/tam-kinh-la-e-khien-nhung-nghiep-chuong.html"
 ---

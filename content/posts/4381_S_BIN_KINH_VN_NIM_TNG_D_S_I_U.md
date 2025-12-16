@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.951Z
+title: "S BIN KINH VN NIM TNG D S I U"
+date: 2025-12-16T01:19:28.925Z
 draft: false
 url: "/2025/12/so-bien-kinh-van-niem-tung-du-se-i-au.html"
 ---

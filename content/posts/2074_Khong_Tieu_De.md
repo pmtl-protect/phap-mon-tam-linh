@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:01.566Z
+title: "Bàn Thờ Nhỏ có thể làm nghi thức dâng hương theo nghi thức bàn thờ lớn không? Bàn Thờ Nhỏ có thể cúng nước và đèn đâu"
+date: 2025-12-16T01:19:23.024Z
 draft: false
 url: "/2025/02/ban-tho-nho-co-lam-nghi-thuc-dang-huong.html"
 ---
 
-Tiêu đề bài viết: Bàn Thờ Nhỏ có thể làm nghi thức dâng hương theo nghi thức bàn thờ lớn không? Bàn Thờ Nhỏ có thể cúng nước và đèn đâu Nội dung chi tiết: Nam thính giả: Hiện nay bàn thờ nhỏ chuyên dùng để niệm kinh có thể cúng nước và cúng đèn dầu. Dạ thưa Thầy, nếu đã cúng nước và đèn dầu, thì có thể làm nghi thức dâng hương theo nghi thức của Bàn Thờ Lớn được không ạ? ☀️ Đài Trưởng đáp: Thực ra Bàn Thờ Nhỏ rất đơn giản, bởi vì Bồ Tát không đến Bàn Thờ Nhỏ này, cho nên con làm theo nghi thức bàn thờ lớn… con cung kính thì không sai, nhưng không cần thiết. Bàn Thờ Lớn là để con lạy lạy, cúng bái, bàn thờ nhỏ thì giống như là để con có thể liên lạc với Bồ Tát bất cứ lúc nào. 🌻 (Dạ con hiểu rồi ạ) ✨✨✨ Wenda20200918 47:58 ☀️ 小佛台可否按大佛台的流程来上香 🌻 男听众：现在念经专用的小佛台可以供水和供油灯。请问师父，如果是供了水和油灯，是不是可以按照大佛台的流程来做上香仪式？ ☀️ 台长答：其实小佛台最简单了，因为不是菩萨到这个佛台上来，所以你做了大佛台的……你尊敬总是没错，但是没必要。大佛台就是让你磕头、供的，小佛台就是等于随时让你能够联系到菩萨（明白了） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .
+Nam thính giả: Hiện nay bàn thờ nhỏ chuyên dùng để niệm kinh có thể cúng nước và cúng đèn dầu. Dạ thưa Thầy, nếu đã cúng nước và đèn dầu, thì có thể làm nghi thức dâng hương theo nghi thức của Bàn Thờ Lớn được không ạ? ☀️ Đài Trưởng đáp: Thực ra Bàn Thờ Nhỏ rất đơn giản, bởi vì Bồ Tát không đến Bàn Thờ Nhỏ này, cho nên con làm theo nghi thức bàn thờ lớn… con cung kính thì không sai, nhưng không cần thiết. Bàn Thờ Lớn là để con lạy lạy, cúng bái, bàn thờ nhỏ thì giống như là để con có thể liên lạc với Bồ Tát bất cứ lúc nào. 🌻 (Dạ con hiểu rồi ạ) ✨✨✨ Wenda20200918 47:58 ☀️ 小佛台可否按大佛台的流程来上香 🌻 男听众：现在念经专用的小佛台可以供水和供油灯。请问师父，如果是供了水和油灯，是不是可以按照大佛台的流程来做上香仪式？ ☀️ 台长答：其实小佛台最简单了，因为不是菩萨到这个佛台上来，所以你做了大佛台的……你尊敬总是没错，但是没必要。大佛台就是让你磕头、供的，小佛台就是等于随时让你能够联系到菩萨（明白了） 🙏🙏🙏 Trong quá trình dịch và chia sẻ Pháp , con có gì sai sót. không Đúng Lý Đúng Pháp . Con xin Chư Phật , Chư Bồ Tát , Chư Thần Hộ Pháp , Từ Bi tha thứ cho con .

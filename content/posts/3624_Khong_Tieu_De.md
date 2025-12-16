@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:09.416Z
+title: "Mơ thấy “Thừa nguyện tái lai”; Không có tiền làm công đức, niệm kinh chính là của cải tốt nhất"
+date: 2025-12-16T01:19:27.114Z
 draft: false
 url: "/2024/10/mo-thay-thua-nguyen-tai-lai-khong-co.html"
 ---
 
-Tiêu đề bài viết: Mơ thấy “Thừa nguyện tái lai”; Không có tiền làm công đức, niệm kinh chính là của cải tốt nhất Nội dung chi tiết: Wenda20200920 13:11 Thính giả nữ: Buổi sáng đồng tu nằm mơ, trước mắt hiện lên bốn chữ “Thừa nguyện tái lai”, sau đó có một con bướm bay đi. Xin hỏi Sư phụ, điều này có nghĩa là gì? Đài trưởng: Chính là nói rõ cô ấy là thừa nguyện tái lai, thừa nguyện tái lai cũng có A La Hán, cũng có Bồ Tát, cũng có hộ pháp, nói rõ cô ấy ít nhất là từ thiên giới xuống, bảo cô ấy phải quý trọng, không nên lãng phí sinh mệnh nữa. Thính giả nữ: Đồng tu nói hiện tại cô bị đình chỉ công tác ở nhà chăm sóc con nhỏ ăn chay, cũng không có dư tiền đi làm công đức, cô cũng rất tinh tấn niệm kinh, dẫn dắt con nhỏ niệm kinh. Cô ấy hỏi như vậy có được không? Đài trưởng: Đương nhiên có thể, Bồ Tát đâu có chê nghèo đâu nào? Bồ Tát là từ bi nhất. Cho nên để cho cô ấy nỗ lực niệm kinh cho tốt. Ta nói cho con biết, nếu không có tiền, niệm kinh chính là tài sản, của cải tốt nhất. Thính giả nữ: Con hiểu rồi ạ.
+Wenda20200920 13:11 Thính giả nữ: Buổi sáng đồng tu nằm mơ, trước mắt hiện lên bốn chữ “Thừa nguyện tái lai”, sau đó có một con bướm bay đi. Xin hỏi Sư phụ, điều này có nghĩa là gì? Đài trưởng: Chính là nói rõ cô ấy là thừa nguyện tái lai, thừa nguyện tái lai cũng có A La Hán, cũng có Bồ Tát, cũng có hộ pháp, nói rõ cô ấy ít nhất là từ thiên giới xuống, bảo cô ấy phải quý trọng, không nên lãng phí sinh mệnh nữa. Thính giả nữ: Đồng tu nói hiện tại cô bị đình chỉ công tác ở nhà chăm sóc con nhỏ ăn chay, cũng không có dư tiền đi làm công đức, cô cũng rất tinh tấn niệm kinh, dẫn dắt con nhỏ niệm kinh. Cô ấy hỏi như vậy có được không? Đài trưởng: Đương nhiên có thể, Bồ Tát đâu có chê nghèo đâu nào? Bồ Tát là từ bi nhất. Cho nên để cho cô ấy nỗ lực niệm kinh cho tốt. Ta nói cho con biết, nếu không có tiền, niệm kinh chính là tài sản, của cải tốt nhất. Thính giả nữ: Con hiểu rồi ạ.

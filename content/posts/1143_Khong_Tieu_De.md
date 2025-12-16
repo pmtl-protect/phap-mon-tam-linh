@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:57.395Z
+title: "Chỉ có ở nhân gian là tiêu nghiệp nhanh nhất, chớ lãng phí thời gian"
+date: 2025-12-16T01:19:20.764Z
 draft: false
 url: "/2024/12/chi-co-o-nhan-gian-la-tieu-nghiep-nhanh.html"
 ---
 
-Tiêu đề bài viết: Chỉ có ở nhân gian là tiêu nghiệp nhanh nhất, chớ lãng phí thời gian Nội dung chi tiết: Hỏi: Thưa Sư Phụ, có phải khi còn sống, nghiệp chướng của chúng ta dễ tiêu trừ hơn, còn sau khi chết thì khó tiêu hơn không? Đáp: Đúng vậy, đương nhiên là đúng rồi. Làm quỷ thì làm sao mà tiêu được nghiệp đây? Lên trời rồi thì vui sướng đến mức không còn nghĩ đến việc tiến bộ nữa, bạn nói làm sao tiêu được? Họ không còn ý chí để phấn đấu nữa, hiểu không? (Vậy nên mong mọi người trân quý thân người, tinh tấn học Phật, niệm kinh.) Đúng rồi, chỉ có ở nhân gian là tiêu nghiệp nhanh nhất. Không còn cách nào khác. Nhưng nhiều người lại lãng phí thời gian, không chịu tiêu nghiệp. — Trích Wenda20181104A, 17:10 《只有在人間消業最快，切勿消磨時光》 問：請問師父，是不是活著的時候，我們的業障就容易消掉些，死了就難消了？ 答：對啊，當然對了。做鬼了，怎麼消啊？到天上去已經開心得不得了了，你說怎麼消啊？都不思進取了，明白了嗎？（所以希望大家能夠珍惜人身，能夠精進地學佛念經）對，只有人間消業最快。沒有辦法。但是很多人在消磨時光，沒有消業。 ———Wenda20181104A 17:10
+Hỏi: Thưa Sư Phụ, có phải khi còn sống, nghiệp chướng của chúng ta dễ tiêu trừ hơn, còn sau khi chết thì khó tiêu hơn không? Đáp: Đúng vậy, đương nhiên là đúng rồi. Làm quỷ thì làm sao mà tiêu được nghiệp đây? Lên trời rồi thì vui sướng đến mức không còn nghĩ đến việc tiến bộ nữa, bạn nói làm sao tiêu được? Họ không còn ý chí để phấn đấu nữa, hiểu không? (Vậy nên mong mọi người trân quý thân người, tinh tấn học Phật, niệm kinh.) Đúng rồi, chỉ có ở nhân gian là tiêu nghiệp nhanh nhất. Không còn cách nào khác. Nhưng nhiều người lại lãng phí thời gian, không chịu tiêu nghiệp. — Trích Wenda20181104A, 17:10 《只有在人間消業最快，切勿消磨時光》 問：請問師父，是不是活著的時候，我們的業障就容易消掉些，死了就難消了？ 答：對啊，當然對了。做鬼了，怎麼消啊？到天上去已經開心得不得了了，你說怎麼消啊？都不思進取了，明白了嗎？（所以希望大家能夠珍惜人身，能夠精進地學佛念經）對，只有人間消業最快。沒有辦法。但是很多人在消磨時光，沒有消業。 ———Wenda20181104A 17:10

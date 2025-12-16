@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:56.946Z
+title: "VN NIM L PHT I SM HI VN VO NGY L"
+date: 2025-12-16T01:19:20.510Z
 draft: false
 url: "/2025/05/ngay-sinh-cua-uc-thich-ca-mau-ni-phat.html"
 ---

@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:10:55.829Z
+title: "Trong mơ hứa với vong linh điều gì phải thực hiện; không nên nói chuyện với m.a"
+date: 2025-12-16T01:19:19.989Z
 draft: false
 url: "/2025/05/trong-mo-hua-voi-vong-linh-ieu-gi-phai.html"
 ---
 
-Tiêu đề bài viết: Trong mơ hứa với vong linh điều gì phải thực hiện; không nên nói chuyện với m.a Nội dung chi tiết: Chương trình "Huyền Nghệ Vấn Đáp" ngày 10/7/2015, 57:20 Thính giả nữ: Đôi khi trong mơ, chúng ta vô tình nói chuyện với vong linh hoặc các linh thể mà không biết. Nếu trong lúc đối thoại, chúng ta lỡ hứa hẹn điều gì đó, thì có cần thực hiện không? Đài Trưởng: Đương nhiên phải thực hiện. Con đã hứa với ma thì phải làm, vì ma rất nhỏ nhen, chúng sẽ luôn dõi theo bạn. Chính vì vậy mới có câu “ma nhỏ nhen” (tiểu khí quỷ). Thính giả: Con hiểu rồi, hơn nữa cần sám hối với Quan Thế Âm Bồ Tát đúng không ạ? Đài Trưởng: Đúng vậy, cần phải sám hối. Nói chuyện với ma là điều không nên. Hiểu chưa? Thính giả: Con hiểu, vậy con sẽ chú ý hơn. 梦中答应灵性的事情要做到；不要跟鬼说话 Wenda20150710 57:20 梦中答应灵性的事情要做到；不要跟鬼说话 女听众：我们有时做梦会在不知道的情况下，不小心跟要经者还是灵性对话了，可能一些对答中有答应一些东西，这样的情况下我们是不是就要做到呢？ 台长答：当然要做到。你答应鬼的事情，鬼很小气的，他盯着你呀，所以叫“小气鬼”（明白，而且要跟观世音菩萨忏悔）要忏悔的，跟鬼讲过话……不可以的，明白吗？（明白，所以这个要注意）
+Chương trình "Huyền Nghệ Vấn Đáp" ngày 10/7/2015, 57:20 Thính giả nữ: Đôi khi trong mơ, chúng ta vô tình nói chuyện với vong linh hoặc các linh thể mà không biết. Nếu trong lúc đối thoại, chúng ta lỡ hứa hẹn điều gì đó, thì có cần thực hiện không? Đài Trưởng: Đương nhiên phải thực hiện. Con đã hứa với ma thì phải làm, vì ma rất nhỏ nhen, chúng sẽ luôn dõi theo bạn. Chính vì vậy mới có câu “ma nhỏ nhen” (tiểu khí quỷ). Thính giả: Con hiểu rồi, hơn nữa cần sám hối với Quan Thế Âm Bồ Tát đúng không ạ? Đài Trưởng: Đúng vậy, cần phải sám hối. Nói chuyện với ma là điều không nên. Hiểu chưa? Thính giả: Con hiểu, vậy con sẽ chú ý hơn. 梦中答应灵性的事情要做到；不要跟鬼说话 Wenda20150710 57:20 梦中答应灵性的事情要做到；不要跟鬼说话 女听众：我们有时做梦会在不知道的情况下，不小心跟要经者还是灵性对话了，可能一些对答中有答应一些东西，这样的情况下我们是不是就要做到呢？ 台长答：当然要做到。你答应鬼的事情，鬼很小气的，他盯着你呀，所以叫“小气鬼”（明白，而且要跟观世音菩萨忏悔）要忏悔的，跟鬼讲过话……不可以的，明白吗？（明白，所以这个要注意）

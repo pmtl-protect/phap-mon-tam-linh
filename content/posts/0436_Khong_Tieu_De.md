@@ -1,8 +1,8 @@
 ---
 title: "Tốt nhất là nên khấn cầu ở bàn thờ Phật trước rồi hãy đi phóng sinh"
-date: 2025-12-16T01:10:54.083Z
+date: 2025-12-16T01:19:19.001Z
 draft: false
 url: "/2025/06/tot-nhat-la-nen-khan-cau-o-ban-tho-phat.html"
 ---
 
-Tiêu đề bài viết: Tốt nhất là nên khấn cầu ở bàn thờ Phật trước rồi hãy đi phóng sinh. Nội dung chi tiết: Đệ Tử Hỏi: Sư Phụ từng khai thị rằng tốt nhất là nên khấn cầu ở bàn thờ Phật trước rồi hãy đi phóng sinh. Nhưng hiện nay có những Sư huynh mỗi ngày đều có thể đi phóng sinh giúp các Sư huynh khác. Nhưng vì số lượng cá ở chợ thay đổi mỗi ngày vậy thì có thể phóng sinh rồi sau đó mới khấn có được không ạ? Đài Trưởng Trả lời: Đều được , cái này không thành vấn đề. Số lượng không chắc chắn, nhưng vẫn có thể nói trước, vì việc khấn trước vẫn quan trọng. Con có thể nói "Hôm nay con sẽ đi phóng sinh " và đừng nói số lượng trước là được. Đệ Tử  : Dạ Vâng , con cảm ơn Sư Phụ. Wenda20200628  45:26
+Đệ Tử Hỏi: Sư Phụ từng khai thị rằng tốt nhất là nên khấn cầu ở bàn thờ Phật trước rồi hãy đi phóng sinh. Nhưng hiện nay có những Sư huynh mỗi ngày đều có thể đi phóng sinh giúp các Sư huynh khác. Nhưng vì số lượng cá ở chợ thay đổi mỗi ngày vậy thì có thể phóng sinh rồi sau đó mới khấn có được không ạ? Đài Trưởng Trả lời: Đều được , cái này không thành vấn đề. Số lượng không chắc chắn, nhưng vẫn có thể nói trước, vì việc khấn trước vẫn quan trọng. Con có thể nói "Hôm nay con sẽ đi phóng sinh " và đừng nói số lượng trước là được. Đệ Tử  : Dạ Vâng , con cảm ơn Sư Phụ. Wenda20200628  45:26

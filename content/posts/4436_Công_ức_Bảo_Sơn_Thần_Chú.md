@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.214Z
+title: "Công ức Bảo Sơn Thần Chú"
+date: 2025-12-16T01:19:29.125Z
 draft: false
 url: "/2025/12/cong-uc-bao-son-than-chu.html"
 ---

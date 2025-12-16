@@ -1,8 +1,8 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:08.036Z
+title: "Thiên thời gấp gáp"
+date: 2025-12-16T01:19:26.426Z
 draft: false
 url: "/2024/11/thien-thoi-gap-gap.html"
 ---
 
-Tiêu đề bài viết: Thiên thời gấp gáp, Nội dung chi tiết: Mỗi ngày tốt nhất hãy giữ bên mình 1 tấm ngôi nhà nhỏ, Lấy tấm vải đỏ hoặc kẹp lên 1 quyển sách, Khi nào rảnh hãy niệm. Đầu tiên lựa bài niệm kinh đơn giản niệm trước, niệm thất Phật trước Sau đó là niệm chú vãng sanh, rồi niệm Tâm Kinh và Chú đại bi. Như vậy quý vị sẽ cảm thấy niệm rất nhanh, niệm chéo qua lại không có vấn đề gì cả. Wenda20170526 \*\*\* 天时紧， 每天最好把小房子拿在手上， 拿个红布或夹在一本书， 一有空就念一念。 先挑简单的念， 先把七佛念完， 然后把往生咒念完， 再念心经和大悲咒。 这样念你会觉得很快。 交叉进行念都没问题。 Wenda20170526
+Mỗi ngày tốt nhất hãy giữ bên mình 1 tấm ngôi nhà nhỏ, Lấy tấm vải đỏ hoặc kẹp lên 1 quyển sách, Khi nào rảnh hãy niệm. Đầu tiên lựa bài niệm kinh đơn giản niệm trước, niệm thất Phật trước Sau đó là niệm chú vãng sanh, rồi niệm Tâm Kinh và Chú đại bi. Như vậy quý vị sẽ cảm thấy niệm rất nhanh, niệm chéo qua lại không có vấn đề gì cả. Wenda20170526 \*\*\* 天时紧， 每天最好把小房子拿在手上， 拿个红布或夹在一本书， 一有空就念一念。 先挑简单的念， 先把七佛念完， 然后把往生咒念完， 再念心经和大悲咒。 这样念你会觉得很快。 交叉进行念都没问题。 Wenda20170526

@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:13.133Z
+title: "CHM THIU CHM TRN NGI NH NH NHNG L T I RI TH PHI LM SAO"
+date: 2025-12-16T01:19:29.069Z
 draft: false
 url: "/2025/04/a-ot-xong-kinh-van-cua-ngoi-nha-nho.html"
 ---

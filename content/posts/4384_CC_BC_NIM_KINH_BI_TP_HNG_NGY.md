@@ -1,6 +1,6 @@
 ---
-title: "Khong Tieu De - Can Sua"
-date: 2025-12-16T01:11:12.964Z
+title: "CC BC NIM KINH BI TP HNG NGY"
+date: 2025-12-16T01:19:28.934Z
 draft: false
 url: "/2025/12/cac-buoc-niem-kinh-bai-tap-hang-ngay.html"
 ---
